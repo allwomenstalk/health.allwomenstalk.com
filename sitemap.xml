@@ -1,6 +1,12 @@
 <?xml version='1.0' encoding='utf-8'?>
 <urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9">
   <url>
+    <loc>https://health.allwomenstalk.com/natural-allergy-remedies-that-really-work/</loc>
+    <lastmod>2023-04-28</lastmod>
+    <changefreq>weekly</changefreq>
+    <priority>0.8</priority>
+  </url>
+  <url>
     <loc>https://health.allwomenstalk.com/easy-ways-to-stay-cool/</loc>
     <lastmod>2022-07-27</lastmod>
     <changefreq>weekly</changefreq>
@@ -33,12 +39,6 @@
   <url>
     <loc>https://health.allwomenstalk.com/easiest-ways-to-improve-your-health/</loc>
     <lastmod>2023-07-22</lastmod>
-    <changefreq>weekly</changefreq>
-    <priority>0.8</priority>
-  </url>
-  <url>
-    <loc>https://health.allwomenstalk.com/natural-allergy-remedies-that-really-work/</loc>
-    <lastmod>2023-04-28</lastmod>
     <changefreq>weekly</changefreq>
     <priority>0.8</priority>
   </url>
