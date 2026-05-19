@@ -1,0 +1,63 @@
+---
+title: "7 Reasons You Crave Nut Butter and Cant Stop Binging on It ..."
+description: "You’re Not Eating Enough Fat; You’re Short on Magnesium; B Vitamins; You Went Raw; It’s Your Binge Food; More ..."
+url: "https://health.allwomenstalk.com/reasons-you-crave-nut-butter-and-cant-stop-binging-on-it/"
+category: "health"
+last_updated: "2026-05-19"
+---
+
+# 7 Reasons You Crave Nut Butter and Cant Stop Binging on It ...
+
+I find it interesting that one food seems to trouble women with overeating and binging even more than cereal, chocolate, or cookies- nut butter. I bet you’re nodding your head up and down right now, right? All nut butters, from simple peanut butter to trendy almond, cashew, walnut, and coconut butters, are all some of the most tempting foods for women everywhere. We feel guilty when we can’t stop eating them, even though we know [nuts](https://food.allwomenstalk.com/varieties-of-nuts-you-should-be-eating-for-your-health/) are healthy for us. I can’t tell you the money I’ve wasted on nut butters that didn’t last me more than a week or two. I rarely just ate the 2 tablespoon serving size on these either. The funny thing is, if I was given a handful of nuts, I’d have no trouble stopping after a serving size, but for some reason nut butters were always a different story. Something about diving into that jar of nut butter spoonful after spoonful is just so tempting, so delicious, and so dang hard to stop! But then a few weeks go by and you realize your jeans don’t fit, you’re broke from buying so many nut butters, your stomach kinda hurts, and you feel guilty about feeling guilty about eating a healthy food. It’s pure madness, right? Well, have you ever considered why you’re really craving nut butters? For me, I couldn’t stop binging on them until I realized why I couldn’t stop craving them. What I discovered was eye opening, and a mental lifesaver. Not to mention, my wallet and my jean size both went back to their optimal levels! Here’s the real reason you’re craving nut butter, and how to stop binging on one of nature’s most delicious, but high calorie, foods.
+
+## 1. You’re Not Eating Enough Fat
+
+Your body is so much smarter than you, and one reason it craves nut butters isn’t just because they’re like heaven in a jar, but because you’re short on fat in your diet. If you avoid fat most of the time or eat teeny tiny amounts, guess what? Your body will cry out for you to eat more, in uncontrollable ways. When you dive into that nut butter with just the intention of eating one spoonful, or even two, your body will say “Thank you,” and keep you eating more. It’s in desperate need of fats, which are the number one thing your brain is made of. Your body needs fat for so many different functions, so be sure you eat more healthy fats throughout the day, spread throughout your meals from whole foods like nuts, seeds, avocados, and even wild fish if you eat animal foods. This will help regulate your blood sugar, helping you crave less dense sources of fat like nut butter, which is hard to stop at just a couple tablespoons. You could have 20 almonds or 2 tablespoons of nut butter. I’d be willing to bet you’d stop after 20 almonds but probably eat more than 2 tablespoons of nut butter if you hadn’t had any fat the rest of the day, right?
+
+## 2. You’re Short on Magnesium
+
+When we’re stressed, we lose one critical mineral from our body that lowers our stress and our appetite- magnesium. It regulates our nervous system almost better than any other nutrient. It keeps us calm, lowers our insulin, regulates our appetites and makes us feel at ease. Anytime we are stressed, our bodies will naturally crave more magnesium rich foods. Almonds are one of the highest sources of magnesium out there. Crave almond butter? Maybe you just need some magnesium. As I said, your body is so smart, and it knows nuts are one of the most abundant sources of magnesium out there, along with chocolate, which is why you also crave chocolate when you’re stressed. You have two options here. First, I’d suggest eating more magnesium rich foods all throughout the day. This won’t only help you manage your stress, but replenish your magnesium when it runs low during stressful times. Leafy greens are one of the top sources of magnesium, so be sure you eat more of those on a daily basis, preferably at every single meal. Foods that are high in magnesium include oats, quinoa, carrots, beans, legumes, nuts, seeds, and yes, dark chocolate. It’s fine to have the nuts and dark chocolate, but be sure you’re eating the other foods too, so you don’t only crave the nuts and chocolate to get your magnesium quota. Secondly, if you suffer a high stress life style, you can also try a magnesium supplement, in around 400 milligrams or more, to be sure you get enough.
+
+## 3. B Vitamins
+
+Vitamins B5 and B6 are both found abundantly in nuts and seeds. Both of these regulate blood sugar, lower stress, and increase your energy. When your body’s blood sugar is low, you’re stressed, or you’re tired, your body naturally wants B vitamin rich foods. So you might be craving nut butter because you’re short on your B vitamins, and there’s luckily many foods out there that have plenty of B vitamins to help you get your dosage. Leafy greens, broccoli, avocado, tomato, bananas, cucumbers, zucchini, whole nuts and whole seeds, quinoa, oats, barley, beans and legumes all have B vitamins, along with dairy, eggs, meat, and poultry. Eating mostly plant sources is optimal, but don’t rule out organic eggs and dairy, poultry, or seaweed either. As long as you choose good sources of these foods, there’s nothing wrong with having them if you enjoy them. Also, remember, nuts and seeds aren’t bad for you, so feel free to get your B vitamins from nuts and seeds, but try to also get a wide range from other foods, so you’re not only consuming one source of B vitamins. Your body will naturally crave less nut butter and other dense fatty foods when it gets enough fuel from other sources during the day.
+
+## 4. You Went Raw
+
+Many people on a [raw food diet](https://food.allwomenstalk.com/ways-to-eat-more-raw-foods/) don’t intend to come up nutritionally shy of nutrients, but it is easy to do. If you went on a raw food diet, most likely you’re not getting enough protein, which can lead you to crave nut butter. Nuts are one of the primary sources of protein on a raw food diet, which means nut butter becomes a prime source of fuel. If you’re not consuming enough sources of protein from a wide range of foods, it might lead you to eat copious amounts of nut butter to raise your protein levels. Protein is something many people fear, but is something your body needs desperately. Your appetite will go down, blood sugar will be more even, metabolism will improve, mental focus will improve, and your stress will improve as well. Leafy greens, vegan protein powder, avocados, hemp seeds, chia seeds, and spirulina are all wonderful sources of vegan protein. Eat a wide range of protein if you’re on a raw food diet, and you’ll likely crave less nut butter.
+
+## 5. It’s Your Binge Food
+
+If nut butter is that one food that you secretly hide and keep for binges, then no matter what else you eat, you’ll naturally overeat on it. If you have an “issue” with nut butter, you might not only want to consider why as suggested above, but also consider eliminating it for awhile. For me, I found that not allowing myself to buy whole jars kept me from binging on it. I decided to buy whole nuts instead, and guess what? I naturally ate less of them. I also had no desire to binge on them. Nut butter is a fatty, dense food, which most people crave when they binge. It’s an immediate sense of satiety and gives your brain a “high,” no matter if it comes from nut butter or a doughnut. Your brain knows when it gets fat, and it makes you feel good, no matter where it comes from. If you know that nut butter is a food you can’t control yourself with, you might want to consider eliminating it and buying whole nuts instead. Since this is where nut butter comes from anyway, it’s just as healthy, and healthier for your binging habit. And don’t feel bad about this! Almost every woman I know that’s ever had a binging problem will tell me she can’t keep nut butter in her house. It’s a common issue, and nothing to be embarrassed of.
+
+## 6. Low Calorie
+
+Do you eat a low calorie diet? This is an obvious reason you might crave more nut butter, especially at night or late in the afternoon. It’s easy to skip meals earlier in the day, and as the day goes by, your body really starts to crave food, and [high calorie foods](https://allwomenstalk.com/high-calorie-food-list-get-fat-fast/) at that, to help it catch up. If you’re skipping meals or eating a low calorie diet, your body will crave high calorie foods like nut butters later in the day or at night. If you’re not willing to eat several tablespoons or more of nut butter for breakfast, then do you really think you need it? No. What you do need is to increase your calories earlier in the day, and eat throughout the day to prevent this incredible hunger at night. Chances are, your metabolism will improve, along with your energy. I find a breakfast of rolled oats with flaxseeds helps keep me satiated in the morning, and for lunch, I always have a high protein, veggie-filled lunch with healthy fats, or a whole foods smoothie. As an afternoon snack, an ounce of 100% dark chocolate takes care of cravings and at night, I’m barely even hungry most of the time, but I still eat a veggie-filled dinner with protein and a little healthy fat. This type of breakdown isn’t one you have to follow, but doing so helps me crave fewer dense fatty foods at night, and helps me stop from binging on the nut butter so much!
+
+## 7. It’s Delicious
+
+That’s right, sometimes even science can’t explain why you crave nut butter. Let’s be honest- it’s just downright delicious! There’s nothing wrong with having nut butter, so don’t fear it or remove it from your diet unless you know you have a binging problem. Nut butter is delicious and in raw, unsalted forms, it’s incredibly healthy for you. One handy way to moderate your portions is to opt for the individual packets of nut butter instead of the jars. This is one little trick I always use. I’m willing to pay $5 per container more of packaged nut butter than I am for a jar, because I know I won’t tear into 5 packages at a time, but I could easily spoon out five servings of nut butter if I’m hungry and haven’t eaten enough. Nut butter is delicious, so if you’re going to eat it, enjoy it, but find a way to do so that won’t cause you to overeat on it.
+
+As I said, eating whole foods like whole nuts is always better for you and your budget. You can get a whole pound of organic almonds at most stores for $7-$8, but raw organic almond nut butter can cost as much as $20 per 16 ounces! That’s crazy, so spend your calories and your money smart and buy whole nuts most of the time. Have you ever had a nut craving issue too?
+
+## Related Posts
+
+- [how to gain back weight after being sick](https://health.allwomenstalk.com/tips-for-gaining-weight-after-an-illness/)
+- [cracklin oat bran cereal nutrition](https://food.allwomenstalk.com/cereals-you-should-avoid-if-youre-on-a-diet/)
+- [is onion soup good for weight loss](https://food.allwomenstalk.com/foods-to-stay-away-from-when-eating-out-so-you-can-lose-weight/)
+- [grains and leaky gut](https://health.allwomenstalk.com/reasons-to-reconsider-grains-if-you-have-leaky-gut-syndrome/)
+- [eating junk food after workout](https://food.allwomenstalk.com/worst-foods-to-eat-after-a-workout/)
+- [worst food for weight loss](https://food.allwomenstalk.com/worst-foods-to-eat-for-breakfast-if-youre-trying-to-lose-weight/)
+- [what happens when you skip a meal](https://diet.allwomenstalk.com/things-that-happen-to-your-body-when-you-skip-a-meal/)
+- [what kind of toast for brat diet](https://diet.allwomenstalk.com/benefits-of-the-brat-diet-for-belly-woes/)
+- [can you live off of honey](https://diet.allwomenstalk.com/reasons-the-paleo-diet-doesnt-work-for-everyone/)
+- [is mcdonalds food unhealthy](https://food.allwomenstalk.com/reasons-to-avoid-fast-food-like-its-the-plague/)
+- [7 Reasons Why Cookies Are Good for You ...](https://allwomenstalk.com/7-reasons-why-cookies-are-good-for-you/)
+- [7 Signs Youre a Compulsive Eater ...](https://allwomenstalk.com/7-signs-youre-a-compulsive-eater/)
+
+## Site Information
+
+- [Main page](https://allwomenstalk.com)
+- [Contact us](https://allwomenstalk.com/contact.html)
+- [HTML article](https://health.allwomenstalk.com/reasons-you-crave-nut-butter-and-cant-stop-binging-on-it/)
+
