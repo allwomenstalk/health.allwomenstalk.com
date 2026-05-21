@@ -3,7 +3,7 @@ title: "How to Calculate Exactly How Much Water You Should Drink per Day ..."
 description: "Take Your Current Body Weight in Pounds and Divide That by 2.2; Now Multiply That Number Depending on Your Age, as Follows:; Next, You Need to Divide That Sum by the Number 28.3; The Number That You Are Left with after Doing All of Those Calculations is the Number of Ounces That You Should Be Aiming to Drink Every Single Day. You Can Divide the Number by 8 to Get the Results in Familiar Cup Measurements; Divide the Number of Minutes That You Have Exercised by 30; More ..."
 url: "https://health.allwomenstalk.com/how-to-calculate-exactly-how-much-water-you-should-drink-per-day/"
 category: "health"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # How to Calculate Exactly How Much Water You Should Drink per Day ...

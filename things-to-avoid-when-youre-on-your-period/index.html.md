@@ -3,7 +3,7 @@ title: "7 Things to Avoid when Youre on Your Period ..."
 description: "Exercise Unfit for the Occasion; Saturated Fats; Being a Martyr to Chocolate Cravings; Getting Dehydrated; Overlooking the Importance of Fiber in Your Diet; More ..."
 url: "https://health.allwomenstalk.com/things-to-avoid-when-youre-on-your-period/"
 category: "health"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Things to Avoid when Youre on Your Period ...
@@ -42,15 +42,15 @@ All of these are based on good health principles that you can adopt as a lifesty
 
 ## Related Posts
 
-- [17 Unhealthy Things That Wont Help Raise Your Self...](https://beauty.allwomenstalk.com/unhealthy-things-that-wont-help-raise-your-self-esteem/)
+- [how to break up with hairdresser who is a friend](https://hair.allwomenstalk.com/never-do-these-things-at-a-hair-salon/)
 - [should love be earned](https://love.allwomenstalk.com/things-you-shouldnt-have-to-do-to-earn-his-love/)
 - [These 7 Things Will Make Your PMS Even Worse ...](https://health.allwomenstalk.com/these-things-will-make-your-pms-even-worse/)
-- [7 Things Single Ladies Hate Hearing ...](https://love.allwomenstalk.com/things-single-ladies-hate-hearing/)
-- [7 Hurtful Things That Can Lead to Cheating ...](https://love.allwomenstalk.com/hurtful-things-that-can-lead-to-cheating/)
-- [how to break up with hairdresser who is a friend](https://hair.allwomenstalk.com/never-do-these-things-at-a-hair-salon/)
 - [7 Expectations You Shouldnt Set for Your BF ...](https://love.allwomenstalk.com/expectations-you-shouldnt-set-for-your-bf/)
-- [17 Secrets You Should Never Keep from Your Boyfrie...](https://love.allwomenstalk.com/secrets-you-should-never-keep-from-your-boyfriend/)
 - [Stop Doing These Things That Make You Look Less Cl...](https://fashion.allwomenstalk.com/stop-doing-these-things-that-make-you-look-less-classy/)
+- [7 Hurtful Things That Can Lead to Cheating ...](https://love.allwomenstalk.com/hurtful-things-that-can-lead-to-cheating/)
+- [7 Things Single Ladies Hate Hearing ...](https://love.allwomenstalk.com/things-single-ladies-hate-hearing/)
+- [17 Unhealthy Things That Wont Help Raise Your Self...](https://beauty.allwomenstalk.com/unhealthy-things-that-wont-help-raise-your-self-esteem/)
+- [17 Secrets You Should Never Keep from Your Boyfrie...](https://love.allwomenstalk.com/secrets-you-should-never-keep-from-your-boyfriend/)
 - [Never Write These Things in a Professional Email ....](https://lifestyle.allwomenstalk.com/never-write-these-things-in-a-professional-email/)
 - [10 Pros and Cons of Using Pads for Your Period ...](https://allwomenstalk.com/10-pros-and-cons-of-using-pads-for-your-period/)
 - [10 Things about Your Period You Should Know ...](https://allwomenstalk.com/10-things-about-your-period-you-should-know/)

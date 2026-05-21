@@ -3,7 +3,7 @@ title: "Eating Disorder Alert: See if You Could Be Orthorexic ..."
 description: "What is Orthorexia Nervosa?; Eating Clean; Symptoms; Is It a True Eating Disorder?; Who is Affected?; More ..."
 url: "https://health.allwomenstalk.com/eating-disorder-alert-see-if-you-could-be-orthorexic/"
 category: "health"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Eating Disorder Alert: See if You Could Be Orthorexic ...
@@ -42,16 +42,16 @@ Do you have orthorexia? Never, ever stop eating healthy for fear that you’ll d
 
 ## Related Posts
 
-- [eat too much fast food](https://diet.allwomenstalk.com/things-that-will-happen-if-you-eat-too-much-fast-food/)
-- [gear hormones gain mode](https://weightloss.allwomenstalk.com/causes-of-weight-gain-that-will-shock-you/)
-- [what fruits to avoid to lose weight](https://food.allwomenstalk.com/avoid-these-high-calorie-fruits-to-lose-weight/)
-- [low calorie salad toppers](https://food.allwomenstalk.com/salad-toppings-to-stay-away-from-if-trying-to-lose-weight/)
-- [weight loss tips for college students](https://weightloss.allwomenstalk.com/why-losing-weight-is-such-a-struggle-for-college-students/)
-- [quotes for healthy diet](https://diet.allwomenstalk.com/celebrity-quotes-on-dieting/)
-- [taking the stairs instead of the elevator](https://health.allwomenstalk.com/why-you-should-ignore-the-lift-and-take-the-stairs/)
-- [does the color of food affect your appetite](https://food.allwomenstalk.com/did-you-know-that-these-colors-affect-your-appetite/)
 - [paula deen spanish rice](https://food.allwomenstalk.com/heres-why-you-should-never-run-out-of-rice/)
+- [does the color of food affect your appetite](https://food.allwomenstalk.com/did-you-know-that-these-colors-affect-your-appetite/)
+- [quotes for healthy diet](https://diet.allwomenstalk.com/celebrity-quotes-on-dieting/)
+- [eat too much fast food](https://diet.allwomenstalk.com/things-that-will-happen-if-you-eat-too-much-fast-food/)
 - [you cant outrun a bad diet](https://weightloss.allwomenstalk.com/the-real-reasons-why-you-cant-outrun-a-bad-diet/)
+- [low calorie salad toppers](https://food.allwomenstalk.com/salad-toppings-to-stay-away-from-if-trying-to-lose-weight/)
+- [taking the stairs instead of the elevator](https://health.allwomenstalk.com/why-you-should-ignore-the-lift-and-take-the-stairs/)
+- [gear hormones gain mode](https://weightloss.allwomenstalk.com/causes-of-weight-gain-that-will-shock-you/)
+- [weight loss tips for college students](https://weightloss.allwomenstalk.com/why-losing-weight-is-such-a-struggle-for-college-students/)
+- [what fruits to avoid to lose weight](https://food.allwomenstalk.com/avoid-these-high-calorie-fruits-to-lose-weight/)
 - [8 Signs You Have an Overeating Problem ...](https://allwomenstalk.com/8-signs-you-have-an-overeating-problem/)
 - [8 Signs of Anorexia ...](https://mindfulness.allwomenstalk.com/8-signs-of-anorexia/)
 

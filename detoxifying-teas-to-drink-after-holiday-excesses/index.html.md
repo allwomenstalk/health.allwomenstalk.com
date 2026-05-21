@@ -3,7 +3,7 @@ title: "Coping with Post-Holiday Excess? do a Detox with Your Next Cuppa ..."
 description: "Walnut Leaf Tea; Dandelion Root Tea; Green Tea; Sarsaparilla; Peppermint Tea; More ..."
 url: "https://health.allwomenstalk.com/detoxifying-teas-to-drink-after-holiday-excesses/"
 category: "health"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Coping with Post\-Holiday Excess? do a Detox with Your Next Cuppa ...
@@ -56,16 +56,16 @@ If you’re already used to drinking herbal teas, you’ll appreciate the benefi
 
 ## Related Posts
 
-- [Cheers This is Everything You Ever Wanted to Know ...](https://food.allwomenstalk.com/cheers-this-is-everything-you-ever-wanted-to-know-about-wine/)
-- [Yes Please These Are the 26 Most Refreshing Pitche...](https://food.allwomenstalk.com/yes-please-these-are-the-most-refreshing-pitcher-drinks-for-summer/)
-- [The Best Frozen Summertime Drinks for Evening Cock...](https://food.allwomenstalk.com/the-best-frozen-summertime-drinks-for-evening-cocktail-hour/)
 - [green pinch](https://food.allwomenstalk.com/pinch-proof-your-st-pattys-with-these-tasty-green-drinks/)
-- [Start the New Year off Right with dry January - No...](https://health.allwomenstalk.com/start-the-new-year-off-right-with-dry-january-no-drinking-for-days/)
 - [Coffee Addicts Rejoice 31 to-Die-for Coffee Recipe...](https://lifestyle.allwomenstalk.com/coffee-addicts-rejoice-to-die-for-coffee-recipes/)
 - [21 Low-Calorie Summer Smoothies That Are Utterly D...](https://weightloss.allwomenstalk.com/delicious-summer-smoothies-that-are-low-in-calories/)
-- [Youve Never Tried These Things in a Smoothie until...](https://food.allwomenstalk.com/youve-never-tried-these-things-in-a-smoothie-until-now/)
-- [Healthy Alternatives to Juice Detoxing Your Body W...](https://health.allwomenstalk.com/healthy-alternatives-to-juice-detoxing-your-body-will-love/)
 - [diet friendly cocktails](https://weightloss.allwomenstalk.com/healthy-and-refreshing-cocktails-that-wont-destroy-your-diet/)
+- [Healthy Alternatives to Juice Detoxing Your Body W...](https://health.allwomenstalk.com/healthy-alternatives-to-juice-detoxing-your-body-will-love/)
+- [The Best Frozen Summertime Drinks for Evening Cock...](https://food.allwomenstalk.com/the-best-frozen-summertime-drinks-for-evening-cocktail-hour/)
+- [Cheers This is Everything You Ever Wanted to Know ...](https://food.allwomenstalk.com/cheers-this-is-everything-you-ever-wanted-to-know-about-wine/)
+- [Youve Never Tried These Things in a Smoothie until...](https://food.allwomenstalk.com/youve-never-tried-these-things-in-a-smoothie-until-now/)
+- [Start the New Year off Right with dry January - No...](https://health.allwomenstalk.com/start-the-new-year-off-right-with-dry-january-no-drinking-for-days/)
+- [Yes Please These Are the 26 Most Refreshing Pitche...](https://food.allwomenstalk.com/yes-please-these-are-the-most-refreshing-pitcher-drinks-for-summer/)
 - [7 Reasons to Go on a Detox Diet ...](https://health.allwomenstalk.com/reasons-to-go-on-a-detox-diet/)
 - [Should You Fast to Detox](https://allwomenstalk.com/should-you-fast-to-detox/)
 

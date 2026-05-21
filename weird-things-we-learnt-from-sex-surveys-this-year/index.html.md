@@ -3,7 +3,7 @@ title: "8 Weird Things We Learnt from Sex Surveys This Year ..."
 description: "The Color of Love?; Think of England…; Librarians Aren’t Quiet…; Europe is Best for Sexy Holidays; More than You Bargained for; More ..."
 url: "https://health.allwomenstalk.com/weird-things-we-learnt-from-sex-surveys-this-year/"
 category: "health"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 8 Weird Things We Learnt from Sex Surveys This Year ...
@@ -46,16 +46,16 @@ Some sex survey questions are just down-right bizarre, but most do tell us somet
 
 ## Related Posts
 
-- [i want to make it clear](https://love.allwomenstalk.com/ways-to-make-clear-you-just-want-sex/)
 - [why do people have one night stands](https://love.allwomenstalk.com/pros-cons-of-one-night-stands/)
+- [elbow kisses](https://love.allwomenstalk.com/erogenous-zones-to-explore/)
+- [are sagittarius good in bed](https://love.allwomenstalk.com/beautiful-sex-tips-for-a-sagittarius/)
+- [virgo man turn ons](https://love.allwomenstalk.com/fabulous-sex-tips-for-a-virgo/)
 - [7 Surprisingly Common Sex Injuries ...](https://love.allwomenstalk.com/surprisingly-common-sex-injuries/)
 - [gemini man scorpio woman](https://love.allwomenstalk.com/enchanting-sex-tips-for-a-gemini/)
 - [how freaky are cancers](https://love.allwomenstalk.com/awesome-sex-tips-for-a-cancer/)
 - [soymonks life](https://food.allwomenstalk.com/worst-foods-for-your-sex-life/)
-- [elbow kisses](https://love.allwomenstalk.com/erogenous-zones-to-explore/)
+- [i want to make it clear](https://love.allwomenstalk.com/ways-to-make-clear-you-just-want-sex/)
 - [what turns on an aries](https://love.allwomenstalk.com/mind-blowing-sex-tips-for-an-aries/)
-- [are sagittarius good in bed](https://love.allwomenstalk.com/beautiful-sex-tips-for-a-sagittarius/)
-- [virgo man turn ons](https://love.allwomenstalk.com/fabulous-sex-tips-for-a-virgo/)
 - [7 Myths about Sex Revealed ...](https://health.allwomenstalk.com/7-myths-about-sex-revealed/)
 - [8 Myths about Sexual Health Busted ...](https://health.allwomenstalk.com/8-myths-about-sexual-health-busted/)
 

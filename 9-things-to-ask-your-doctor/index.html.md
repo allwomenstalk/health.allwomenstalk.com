@@ -3,7 +3,7 @@ title: "9 Things to Ask Your Doctor ..."
 description: "Vitamins; STDs; Screenings; Contraception; Weight Issues; More ..."
 url: "https://health.allwomenstalk.com/9-things-to-ask-your-doctor/"
 category: "health"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 9 Things to Ask Your Doctor ...
@@ -52,14 +52,14 @@ Top Photo Credit: _profholtz_
 
 ## Related Posts
 
-- [pros and cons of lasik eye surgery](https://health.allwomenstalk.com/8-pros-and-cons-about-laser-eye-surgery/)
-- [7 Things That May Cause Infertility in Women. ...](https://health.allwomenstalk.com/7-things-that-may-cause-infertility-in-women/)
-- [8 Horrid Health Dangers in the Home ...](https://health.allwomenstalk.com/horrid-health-dangers-in-the-home/)
 - [Common Foot Problems ...](https://allwomenstalk.com/common-foot-problems/)
-- [detox facts](https://allwomenstalk.com/15-important-facts-about-detox-you-must-know/)
-- [Eye Care What You Should Know ...](https://allwomenstalk.com/eye-care-what-you-should-know-2/)
 - [11 Things You Should Know about Farmers Markets .....](https://lifestyle.allwomenstalk.com/things-you-should-know-about-farmers-markets/)
 - [5 Mysterious Medical Issues Men Face ...](https://lifestyle.allwomenstalk.com/mysterious-medical-issues-men-face/)
+- [7 Things That May Cause Infertility in Women. ...](https://health.allwomenstalk.com/7-things-that-may-cause-infertility-in-women/)
+- [pros and cons of lasik eye surgery](https://health.allwomenstalk.com/8-pros-and-cons-about-laser-eye-surgery/)
+- [Eye Care What You Should Know ...](https://allwomenstalk.com/eye-care-what-you-should-know-2/)
+- [detox facts](https://allwomenstalk.com/15-important-facts-about-detox-you-must-know/)
+- [8 Horrid Health Dangers in the Home ...](https://health.allwomenstalk.com/horrid-health-dangers-in-the-home/)
 - [8 Highly Essential Health Checks You Shouldnt Negl...](https://health.allwomenstalk.com/8-highly-essential-health-checks-you-shouldnt-neglect/)
 - [8 Rare Diseases Youve Probably Not Heard of ...](https://health.allwomenstalk.com/8-rare-diseases-youve-probably-not-heard-of/)
 - [10 Things Pregnant Women Should Know ...](https://parenting.allwomenstalk.com/10-things-pregnant-women-should-know/)

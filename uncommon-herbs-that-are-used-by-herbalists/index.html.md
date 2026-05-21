@@ -3,7 +3,7 @@ title: "9 Uncommon Herbs That Are Used by Herbalists ..."
 description: "Horsetail; Codonopsis; Meadowsweet; Devil’s Claw; Yellow Dock Root; More ..."
 url: "https://health.allwomenstalk.com/uncommon-herbs-that-are-used-by-herbalists/"
 category: "health"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 9 Uncommon Herbs That Are Used by Herbalists ...
@@ -70,16 +70,16 @@ Although some of the names of these uncommon herbs are strange and barely pronou
 
 ## Related Posts
 
-- [dark circles food](https://skincare.allwomenstalk.com/natural-ways-to-reduce-under-eye-circles/)
+- [gram lentil soup recipe to delay periods](https://health.allwomenstalk.com/ways-to-delay-your-period-that-are-worth-trying/)
 - [honeymoon cysitis](https://wedding.allwomenstalk.com/tips-to-help-you-prevent-getting-honeymoon-cystitis-on-your-honeymoon/)
 - [herbs that help acne](https://skincare.allwomenstalk.com/wonderful-herbs-to-eat-that-combat-acne/)
-- [ways to eat honey](https://diy.allwomenstalk.com/ways-to-use-honey-other-than-eating-it/)
-- [to reduce exposure to pesticides](https://food.allwomenstalk.com/ways-to-reduce-your-exposure-to-pesticides/)
+- [dark circles food](https://skincare.allwomenstalk.com/natural-ways-to-reduce-under-eye-circles/)
 - [things to do while sick at home](https://health.allwomenstalk.com/things-to-do-when-you-are-sick/)
-- [gram lentil soup recipe to delay periods](https://health.allwomenstalk.com/ways-to-delay-your-period-that-are-worth-trying/)
+- [to reduce exposure to pesticides](https://food.allwomenstalk.com/ways-to-reduce-your-exposure-to-pesticides/)
+- [how to identify real cinnamon](https://food.allwomenstalk.com/ways-to-tell-if-your-cinnamon-is-true-cinnamon/)
+- [ways to eat honey](https://diy.allwomenstalk.com/ways-to-use-honey-other-than-eating-it/)
 - [windburned skin](https://skincare.allwomenstalk.com/top-tips-to-treat-and-prevent-windburn/)
 - [7 Ways to Use Foods to Treat Parasites and Yeast i...](https://health.allwomenstalk.com/ways-to-use-foods-to-treat-parasites-and-yeast-in-the-body/)
-- [how to identify real cinnamon](https://food.allwomenstalk.com/ways-to-tell-if-your-cinnamon-is-true-cinnamon/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 - [5 Healing Herbs ...](https://gardening.allwomenstalk.com/5-healing-herbs/)
 

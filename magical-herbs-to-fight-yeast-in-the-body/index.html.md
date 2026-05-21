@@ -3,7 +3,7 @@ title: "7 Magical Herbs to Fight Yeast in the Body ..."
 description: "Oregano; Pau D'Arco; Garlic; Echinacea; Black Walnut; More ..."
 url: "https://health.allwomenstalk.com/magical-herbs-to-fight-yeast-in-the-body/"
 category: "health"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Magical Herbs to Fight Yeast in the Body ...
@@ -44,16 +44,16 @@ Symptoms of Candidiasis include fatigue, depression, digestive problems, abdomin
 
 ## Related Posts
 
-- [windburned skin](https://skincare.allwomenstalk.com/top-tips-to-treat-and-prevent-windburn/)
-- [tea tree oil uses for nails](https://skincare.allwomenstalk.com/amazing-uses-for-tea-tree-oil-youve-got-to-try/)
-- [uncommon herbs](https://health.allwomenstalk.com/uncommon-herbs-that-are-used-by-herbalists/)
 - [whole foods rescue remedy](https://health.allwomenstalk.com/bach-flower-remedies-groups-and-remedy-options/)
 - [ocean potion with lidocaine](https://skincare.allwomenstalk.com/sure-fire-ways-to-deal-with-sunburn/)
 - [grandmas home remedies](https://lifestyle.allwomenstalk.com/natural-old-fashioned-remedies-that-your-grandma-swears-by/)
-- [pain relieving pressure points](https://health.allwomenstalk.com/pain-relieving-pressure-points-in-your-body/)
-- [juicing gerson therapy](https://health.allwomenstalk.com/principles-of-the-gerson-therapy-that-are-thought-to-heal-the-body-from-cancer/)
-- [messenger bag hurts shoulder](https://bags.allwomenstalk.com/ways-to-reduce-neck-and-shoulder-pain-caused-by-a-heavy-handbag/)
 - [anti yeast foods](https://food.allwomenstalk.com/unique-foods-to-fight-off-candida-yeast-in-the-body-fast/)
+- [uncommon herbs](https://health.allwomenstalk.com/uncommon-herbs-that-are-used-by-herbalists/)
+- [messenger bag hurts shoulder](https://bags.allwomenstalk.com/ways-to-reduce-neck-and-shoulder-pain-caused-by-a-heavy-handbag/)
+- [windburned skin](https://skincare.allwomenstalk.com/top-tips-to-treat-and-prevent-windburn/)
+- [juicing gerson therapy](https://health.allwomenstalk.com/principles-of-the-gerson-therapy-that-are-thought-to-heal-the-body-from-cancer/)
+- [pain relieving pressure points](https://health.allwomenstalk.com/pain-relieving-pressure-points-in-your-body/)
+- [tea tree oil uses for nails](https://skincare.allwomenstalk.com/amazing-uses-for-tea-tree-oil-youve-got-to-try/)
 - [5 Healing Herbs ...](https://gardening.allwomenstalk.com/5-healing-herbs/)
 - [10 Must Have Herbs in the House ...](https://gardening.allwomenstalk.com/10-must-have-herbs-in-the-house/)
 

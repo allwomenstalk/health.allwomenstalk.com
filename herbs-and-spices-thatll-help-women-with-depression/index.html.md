@@ -3,7 +3,7 @@ title: "10 Herbs and Spices That Fight Depression as Well as Medication ..."
 description: "St. John’s Wort is One of the Best Herbs; Saffron is a Spice You Should Have in Your Pantry; Camu Camu is One You Might Not Have Heard of; You Can’t Go Wrong with Maca; Ginkgo Biloba is a Classic Option; More ..."
 url: "https://health.allwomenstalk.com/herbs-and-spices-thatll-help-women-with-depression/"
 category: "health"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 10 Herbs and Spices That Fight Depression as Well as Medication ...
@@ -74,16 +74,16 @@ What do you for your depression? Would you be willing to try any of these herbs 
 
 ## Related Posts
 
-- [breath247](https://health.allwomenstalk.com/tips-for-sweet-smelling-breath/)
+- [something to sweeten your day](https://inspiration.allwomenstalk.com/ways-to-sweeten-up-a-sour-day/)
 - [what can i use for stretch marks](https://skincare.allwomenstalk.com/easy-home-remedies-for-stretch-marks/)
+- [herb similar foods](https://food.allwomenstalk.com/herbs-and-spices-to-use-instead-of-salt/)
+- [camgirl](https://health.allwomenstalk.com/one-ingredient-detox-bath/)
+- [apple cider vinegar and fibroids](https://health.allwomenstalk.com/natural-remedies-for-fibroids/)
+- [home remedies for freckles](https://skincare.allwomenstalk.com/effective-home-remedies-for-acne-2/)
+- [breath247](https://health.allwomenstalk.com/tips-for-sweet-smelling-breath/)
 - [savvy deodorant](https://skincare.allwomenstalk.com/super-savvy-ways-to-give-up-your-deodorant-and-go-all-natural/)
 - [home remedies for fluid retention](https://health.allwomenstalk.com/fool-proof-home-remedies-for-water-retention/)
-- [apple cider vinegar and fibroids](https://health.allwomenstalk.com/natural-remedies-for-fibroids/)
 - [natural remedies for autism](https://health.allwomenstalk.com/herbal-supplements-for-autism/)
-- [herb similar foods](https://food.allwomenstalk.com/herbs-and-spices-to-use-instead-of-salt/)
-- [something to sweeten your day](https://inspiration.allwomenstalk.com/ways-to-sweeten-up-a-sour-day/)
-- [home remedies for freckles](https://skincare.allwomenstalk.com/effective-home-remedies-for-acne-2/)
-- [camgirl](https://health.allwomenstalk.com/one-ingredient-detox-bath/)
 - [5 Healing Herbs ...](https://gardening.allwomenstalk.com/5-healing-herbs/)
 - [10 Super Foods That Help Fight Illness ...](https://health.allwomenstalk.com/10-super-foods-that-help-fight-illness/)
 

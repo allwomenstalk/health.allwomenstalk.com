@@ -3,7 +3,7 @@ title: "7 Totally Strange Addictions That Youve Got to Check out ..."
 description: "Ice Chewing; Hair Pulling; Craving and Eating Dirt; Addiction to Tanning, I.e. Tanorexia; IPhone/Blackberry Obsession; More ..."
 url: "https://health.allwomenstalk.com/totally-strange-addictions-that-youve-got-to-check-out/"
 category: "health"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Totally Strange Addictions That Youve Got to Check out ...
@@ -44,16 +44,16 @@ These are all addictions that may seem slightly humorous or shocking, but people
 
 ## Related Posts
 
-- [food after fainting](https://health.allwomenstalk.com/things-to-do-after-you-faint/)
 - [controversial supplements](https://health.allwomenstalk.com/controversial-health-supplements-and-what-you-need-to-know/)
-- [what to know before getting a tattoo](https://lifestyle.allwomenstalk.com/things-to-consider-before-getting-a-tattoo/)
-- [things you sign](https://lifestyle.allwomenstalk.com/things-you-should-sign-up-for/)
+- [fluoride negative effects](https://health.allwomenstalk.com/negative-effects-of-fluoride-on-your-health/)
 - [ensure anorexia](https://health.allwomenstalk.com/signs-you-may-need-to-take-ensure-supplements/)
-- [what gives away your age](https://beauty.allwomenstalk.com/body-parts-that-can-give-away-your-age/)
-- [minerals your body needs daily](https://health.allwomenstalk.com/minerals-your-body-needs-every-day/)
 - [detox symptoms from juicing](https://health.allwomenstalk.com/effects-of-cleansing-to-be-aware-of-before-you-start/)
 - [what do feet tell you about your health](https://health.allwomenstalk.com/things-your-feet-can-tell-you-about-your-health/)
-- [fluoride negative effects](https://health.allwomenstalk.com/negative-effects-of-fluoride-on-your-health/)
+- [minerals your body needs daily](https://health.allwomenstalk.com/minerals-your-body-needs-every-day/)
+- [food after fainting](https://health.allwomenstalk.com/things-to-do-after-you-faint/)
+- [what gives away your age](https://beauty.allwomenstalk.com/body-parts-that-can-give-away-your-age/)
+- [things you sign](https://lifestyle.allwomenstalk.com/things-you-should-sign-up-for/)
+- [what to know before getting a tattoo](https://lifestyle.allwomenstalk.com/things-to-consider-before-getting-a-tattoo/)
 - [7 Strangest Myths from around the World ...](https://allwomenstalk.com/7-strangest-myths-from-around-the-world/)
 - [7 Strangest Addictions ...](https://allwomenstalk.com/7-strangest-addictions/)
 

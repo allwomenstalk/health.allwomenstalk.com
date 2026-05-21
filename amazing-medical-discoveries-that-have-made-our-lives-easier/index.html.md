@@ -3,7 +3,7 @@ title: "7 Amazing Medical Discoveries That Have Made Our Lives Easier ..."
 description: "Penicillin; Maggot Therapy!; The Stethoscope; McRoberts' Position; Malaria Prophylaxis; More ..."
 url: "https://health.allwomenstalk.com/amazing-medical-discoveries-that-have-made-our-lives-easier/"
 category: "health"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Amazing Medical Discoveries That Have Made Our Lives Easier ...
@@ -42,15 +42,15 @@ The great thing about medical discoveries is they are ongoing! Not-so-surprising
 
 ## Related Posts
 
-- [7 Causes of Irregular Periods That You Should Be A...](https://health.allwomenstalk.com/causes-of-irregular-periods-that-you-should-be-aware-of/)
-- [7 Things You Should Know before Taking Antidepress...](https://mindfulness.allwomenstalk.com/things-you-should-know-before-taking-antidepressants/)
-- [7 Facts about Fibromyalgia That You Should Know .....](https://health.allwomenstalk.com/facts-about-fibromyalgia-that-you-should-know/)
-- [7 Ways Your Lifestyle Could Be Aging You ...](https://health.allwomenstalk.com/ways-your-lifestyle-could-be-aging-you/)
-- [7 Common Health Problems in Teens to Be Aware of ....](https://teen.allwomenstalk.com/common-health-problems-in-teens-to-be-aware-of/)
 - [common cat health problems](https://lifestyle.allwomenstalk.com/common-cat-health-problems-that-you-should-be-aware-of/)
+- [7 Things You Should Know before Taking Antidepress...](https://mindfulness.allwomenstalk.com/things-you-should-know-before-taking-antidepressants/)
+- [7 Ways Your Lifestyle Could Be Aging You ...](https://health.allwomenstalk.com/ways-your-lifestyle-could-be-aging-you/)
+- [7 Causes of Irregular Periods That You Should Be A...](https://health.allwomenstalk.com/causes-of-irregular-periods-that-you-should-be-aware-of/)
+- [7 Common Health Problems in Teens to Be Aware of ....](https://teen.allwomenstalk.com/common-health-problems-in-teens-to-be-aware-of/)
 - [These 7 Chemicals Are Affecting Your Hormones ...](https://health.allwomenstalk.com/these-chemicals-are-affecting-your-hormones/)
 - [7 Ways Cancer Affects More than the Patient ...](https://health.allwomenstalk.com/ways-cancer-affects-more-than-the-patient/)
 - [chronic silent migraine symptoms](https://health.allwomenstalk.com/things-to-know-about-silent-migraines/)
+- [7 Facts about Fibromyalgia That You Should Know .....](https://health.allwomenstalk.com/facts-about-fibromyalgia-that-you-should-know/)
 - [natural female health supplements and herbs](https://health.allwomenstalk.com/herbal-supplements-that-can-help-with-female-health-issues/)
 - [7 Foods That Help Ease Pain Naturally ...](https://food.allwomenstalk.com/foods-that-help-ease-pain-naturally/)
 - [7 Helpful Hints for Dealing with Medical Condition...](https://health.allwomenstalk.com/helpful-hints-for-dealing-with-medical-conditions/)

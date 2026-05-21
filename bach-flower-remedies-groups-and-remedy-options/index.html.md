@@ -3,7 +3,7 @@ title: "7 Bach Flower Remedies Groups and Remedy Options ..."
 description: "Despondency or Despair; Fear Group; Oversensitivity Group; Uncertainty Group; Overcare for Welfare of Others Group; More ..."
 url: "https://health.allwomenstalk.com/bach-flower-remedies-groups-and-remedy-options/"
 category: "health"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Bach Flower Remedies Groups and Remedy Options ...
@@ -42,16 +42,16 @@ You should see after reading about the 7 groups that they are all inter-related 
 
 ## Related Posts
 
-- [things to do while sick at home](https://health.allwomenstalk.com/things-to-do-when-you-are-sick/)
-- [tea tree oil uses for nails](https://skincare.allwomenstalk.com/amazing-uses-for-tea-tree-oil-youve-got-to-try/)
-- [pain relieving pressure points](https://health.allwomenstalk.com/pain-relieving-pressure-points-in-your-body/)
-- [grandmas home remedies](https://lifestyle.allwomenstalk.com/natural-old-fashioned-remedies-that-your-grandma-swears-by/)
-- [juicing gerson therapy](https://health.allwomenstalk.com/principles-of-the-gerson-therapy-that-are-thought-to-heal-the-body-from-cancer/)
-- [uncommon herbs](https://health.allwomenstalk.com/uncommon-herbs-that-are-used-by-herbalists/)
-- [windburned skin](https://skincare.allwomenstalk.com/top-tips-to-treat-and-prevent-windburn/)
 - [messenger bag hurts shoulder](https://bags.allwomenstalk.com/ways-to-reduce-neck-and-shoulder-pain-caused-by-a-heavy-handbag/)
 - [anti yeast foods](https://food.allwomenstalk.com/unique-foods-to-fight-off-candida-yeast-in-the-body-fast/)
+- [uncommon herbs](https://health.allwomenstalk.com/uncommon-herbs-that-are-used-by-herbalists/)
+- [pain relieving pressure points](https://health.allwomenstalk.com/pain-relieving-pressure-points-in-your-body/)
+- [things to do while sick at home](https://health.allwomenstalk.com/things-to-do-when-you-are-sick/)
+- [juicing gerson therapy](https://health.allwomenstalk.com/principles-of-the-gerson-therapy-that-are-thought-to-heal-the-body-from-cancer/)
+- [grandmas home remedies](https://lifestyle.allwomenstalk.com/natural-old-fashioned-remedies-that-your-grandma-swears-by/)
 - [ocean potion with lidocaine](https://skincare.allwomenstalk.com/sure-fire-ways-to-deal-with-sunburn/)
+- [windburned skin](https://skincare.allwomenstalk.com/top-tips-to-treat-and-prevent-windburn/)
+- [tea tree oil uses for nails](https://skincare.allwomenstalk.com/amazing-uses-for-tea-tree-oil-youve-got-to-try/)
 - [5 Healing Herbs ...](https://gardening.allwomenstalk.com/5-healing-herbs/)
 - [7 Remedies for an Aching Stomach ...](https://health.allwomenstalk.com/7-remedies-for-an-aching-stomach/)
 

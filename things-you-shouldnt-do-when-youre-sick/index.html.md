@@ -3,7 +3,7 @@ title: "9 Things You Shouldnt do when Youre Sick ..."
 description: "Take Too Much Medicine; Boost Energy with Caffeine; Use Dirty Nasal Spray; Use Old or Leftover Prescription Medications; Blow Your Nose Too Hard; More ..."
 url: "https://health.allwomenstalk.com/things-you-shouldnt-do-when-youre-sick/"
 category: "health"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 9 Things You Shouldnt do when Youre Sick ...
@@ -50,16 +50,16 @@ Being sick means changing some of your habits. If you avoid at least most of thi
 
 ## Related Posts
 
+- [7 Times when You Should Avoid Alcohol ...](https://health.allwomenstalk.com/times-when-you-should-avoid-alcohol/)
+- [7 Things Your Boyfriend Should Never Make You do f...](https://love.allwomenstalk.com/things-your-boyfriend-should-never-make-you-do-for-him/)
+- [a bad driving habit you should avoid is:](https://travel.allwomenstalk.com/bad-driving-habits-you-should-avoid/)
+- [25 Things to Dump before You Turn 30 ...](https://lifestyle.allwomenstalk.com/things-to-dump-before-you-turn-30/)
+- [7 Bad Money Moves to Avoid on a First Date ...](https://money.allwomenstalk.com/bad-money-moves-to-avoid-on-a-first-date/)
 - [7 Words You Should Never Use at a Job Interview .....](https://money.allwomenstalk.com/words-you-should-never-use-at-a-job-interview/)
+- [7 Things Not to do Right before You Graduate ...](https://teen.allwomenstalk.com/things-not-to-do-right-before-you-graduate/)
+- [7 Grammar Mistakes You Should Never Make Again ...](https://lifestyle.allwomenstalk.com/grammar-mistakes-you-should-never-make-again/)
 - [7 Emotionally Abusive Things You Should Never Tell...](https://love.allwomenstalk.com/emotionally-abusive-things-you-should-never-tell-your-partner/)
 - [Avoid These Questions at All Costs during Your Job...](https://money.allwomenstalk.com/questions-to-avoid-during-a-job-interview/)
-- [a bad driving habit you should avoid is:](https://travel.allwomenstalk.com/bad-driving-habits-you-should-avoid/)
-- [7 Things Not to do Right before You Graduate ...](https://teen.allwomenstalk.com/things-not-to-do-right-before-you-graduate/)
-- [7 Bad Money Moves to Avoid on a First Date ...](https://money.allwomenstalk.com/bad-money-moves-to-avoid-on-a-first-date/)
-- [25 Things to Dump before You Turn 30 ...](https://lifestyle.allwomenstalk.com/things-to-dump-before-you-turn-30/)
-- [7 Things Your Boyfriend Should Never Make You do f...](https://love.allwomenstalk.com/things-your-boyfriend-should-never-make-you-do-for-him/)
-- [7 Times when You Should Avoid Alcohol ...](https://health.allwomenstalk.com/times-when-you-should-avoid-alcohol/)
-- [7 Grammar Mistakes You Should Never Make Again ...](https://lifestyle.allwomenstalk.com/grammar-mistakes-you-should-never-make-again/)
 - [9 Things to Ask Your Doctor ...](https://health.allwomenstalk.com/9-things-to-ask-your-doctor/)
 - [10 Things to Know to Stay Healthy ...](https://health.allwomenstalk.com/things-to-know-to-stay-healthy/)
 

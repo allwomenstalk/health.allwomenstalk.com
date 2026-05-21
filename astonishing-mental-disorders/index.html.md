@@ -3,7 +3,7 @@ title: "7 Astonishing Mental Disorders ..."
 description: "Capgras Delusion; Exploding Head Syndrome; Synesthesia; Folie À Deux (or Shared Psychiatric Disorder); Alien Hand Syndrome and Anarchic Hand Syndrome; More ..."
 url: "https://health.allwomenstalk.com/astonishing-mental-disorders/"
 category: "health"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Astonishing Mental Disorders ...
@@ -56,16 +56,16 @@ I find the vast number of disorders and syndromes staggering. To think that ther
 
 ## Related Posts
 
-- [7 Shows I Could Live without ...](https://movies.allwomenstalk.com/shows-i-could-live-without/)
-- [scrubs musical episode](https://movies.allwomenstalk.com/favorite-scrubs-episodes/)
-- [best tv series crime](https://celebs.allwomenstalk.com/best-crime-tv-shows/)
-- [8 Spring TV Finales to Look Forward to ...](https://movies.allwomenstalk.com/spring-tv-finales-to-look-forward-to/)
-- [best season finales](https://movies.allwomenstalk.com/best-season-finales-ever/)
-- [7 Reality Shows I Actually Enjoy ...](https://movies.allwomenstalk.com/reality-shows-i-actually-enjoy/)
-- [9 Unusual Ways to Be Buried ...](https://paranormal.allwomenstalk.com/unusual-ways-to-be-buried/)
-- [9 Cory Monteith Glee Moments Well Never Forget ...](https://celebs.allwomenstalk.com/cory-monteith-glee-moments-well-never-forget/)
-- [7 Must See Cold Openings from the Office ...](https://movies.allwomenstalk.com/must-see-cold-openings-from-the-office/)
 - [7 What Would You do Videos ...](https://inspiration.allwomenstalk.com/what-would-you-do-videos/)
+- [9 Cory Monteith Glee Moments Well Never Forget ...](https://celebs.allwomenstalk.com/cory-monteith-glee-moments-well-never-forget/)
+- [best tv series crime](https://celebs.allwomenstalk.com/best-crime-tv-shows/)
+- [9 Unusual Ways to Be Buried ...](https://paranormal.allwomenstalk.com/unusual-ways-to-be-buried/)
+- [scrubs musical episode](https://movies.allwomenstalk.com/favorite-scrubs-episodes/)
+- [best season finales](https://movies.allwomenstalk.com/best-season-finales-ever/)
+- [8 Spring TV Finales to Look Forward to ...](https://movies.allwomenstalk.com/spring-tv-finales-to-look-forward-to/)
+- [7 Shows I Could Live without ...](https://movies.allwomenstalk.com/shows-i-could-live-without/)
+- [7 Reality Shows I Actually Enjoy ...](https://movies.allwomenstalk.com/reality-shows-i-actually-enjoy/)
+- [7 Must See Cold Openings from the Office ...](https://movies.allwomenstalk.com/must-see-cold-openings-from-the-office/)
 - [7 Great Books on Mental Illness ...](https://health.allwomenstalk.com/great-books-on-mental-illness/)
 - [7 Celebrities with Anxiety Disorders ...](https://allwomenstalk.com/7-celebrities-with-anxiety-disorders/)
 

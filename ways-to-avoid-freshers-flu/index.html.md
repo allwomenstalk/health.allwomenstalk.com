@@ -3,7 +3,7 @@ title: "Ways to Avoid Freshers Flu for Students Starting College ..."
 description: "Eat Some Fruit and Veg; Drink More Water; Over the Counter Medication; Exercise; Practice Good Hygiene; More ..."
 url: "https://health.allwomenstalk.com/ways-to-avoid-freshers-flu/"
 category: "health"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Ways to Avoid Freshers Flu  for Students Starting College ...
@@ -48,16 +48,16 @@ If you do end up feeling ill or run down, give your body time to recover. Sleep 
 
 ## Related Posts
 
-- [how do i become a straight a student](https://inspiration.allwomenstalk.com/how-to-be-a-straight-a-student/)
-- [how to stay organized during the school year](https://teen.allwomenstalk.com/pro-tips-to-stay-organized-during-the-school-year/)
-- [how to respond to hows it going](https://teen.allwomenstalk.com/how-to-respond-to-the-hows-college-question-when-you-hate-college/)
 - [complete](https://lifestyle.allwomenstalk.com/benefits-for-students-of-getting-work-done-early/)
-- [revision hacks](https://teen.allwomenstalk.com/revision-hacks/)
+- [how to stay organized during the school year](https://teen.allwomenstalk.com/pro-tips-to-stay-organized-during-the-school-year/)
 - [things to consider when buying a laptop for colleg...](https://lifestyle.allwomenstalk.com/key-considerations-when-buying-a-student-laptop/)
+- [revision hacks](https://teen.allwomenstalk.com/revision-hacks/)
+- [how to respond to hows it going](https://teen.allwomenstalk.com/how-to-respond-to-the-hows-college-question-when-you-hate-college/)
+- [things to look for in college](https://teen.allwomenstalk.com/awesome-things-to-look-forward-to-in-college/)
 - [poses for 5 friends](https://teen.allwomenstalk.com/how-to-make-college-the-best-years-of-your-life/)
+- [how do i become a straight a student](https://inspiration.allwomenstalk.com/how-to-be-a-straight-a-student/)
 - [how to deal with college rejection](https://teen.allwomenstalk.com/essential-tips-for-how-to-deal-with-college-rejection/)
 - [preparing for university](https://teen.allwomenstalk.com/how-to-prepare-yourself-for-university/)
-- [things to look for in college](https://teen.allwomenstalk.com/awesome-things-to-look-forward-to-in-college/)
 - [8 Ways to Stay Safe on Campus ...](https://lifestyle.allwomenstalk.com/ways-to-stay-safe-on-campus/)
 - [How to Avoid the Doctor during COVID ...](https://allwomenstalk.com/how-to-avoid-the-doctor-during-covid/)
 

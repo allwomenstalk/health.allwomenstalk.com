@@ -3,7 +3,7 @@ title: "7 Ways PMS Affects Your Digestion and What to do about It ..."
 description: "Constipation; Diarrhea; Gas; Gurgling; IBS Symptoms; More ..."
 url: "https://health.allwomenstalk.com/ways-pms-affects-your-digestion-and-what-to-do-about-it/"
 category: "health"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Ways PMS Affects Your Digestion and What to do about It ...
@@ -44,16 +44,16 @@ PMS is no fun as we all know, and poor digestion is usually the reason so many o
 
 ## Related Posts
 
-- [7 Things You Should Know about Spring Allergies .....](https://health.allwomenstalk.com/things-you-should-know-about-spring-allergies/)
 - [7 Things Your Eyes Say about Your Health ...](https://health.allwomenstalk.com/things-your-eyes-say-about-your-health/)
-- [10 Essential Vitamins and Supplements That Every W...](https://health.allwomenstalk.com/essential-vitamins-and-supplements-that-every-woman-should-know-about/)
+- [7 Things You Should Know about Spring Allergies .....](https://health.allwomenstalk.com/things-you-should-know-about-spring-allergies/)
+- [7 Important Things You Need to Know about Antibiot...](https://vityle.com/important-things-you-need-to-know-about-antibiotics/)
 - [7 Things That Can Influence Your Memory You Might ...](https://inspiration.allwomenstalk.com/things-that-can-influence-your-memory-you-might-not-know-about/)
+- [10 Essential Vitamins and Supplements That Every W...](https://health.allwomenstalk.com/essential-vitamins-and-supplements-that-every-woman-should-know-about/)
+- [face mapping for health](https://health.allwomenstalk.com/things-face-mapping-can-tell-you-about-your-health/)
 - [7 Things You Need to Know before Going Paleo ...](https://diet.allwomenstalk.com/things-you-need-to-know-before-going-paleo/)
-- [7 Important Things You Need to Know about Iodine ....](https://health.allwomenstalk.com/important-things-you-need-to-know-about-iodine/)
 - [15 Milestones in the History of Menstruation ...](https://health.allwomenstalk.com/milestones-in-the-history-of-menstruation/)
 - [7 Things to Consider before Getting Botox ...](https://skincare.allwomenstalk.com/things-to-consider-before-getting-botox/)
-- [face mapping for health](https://health.allwomenstalk.com/things-face-mapping-can-tell-you-about-your-health/)
-- [7 Important Things You Need to Know about Antibiot...](https://vityle.com/important-things-you-need-to-know-about-antibiotics/)
+- [7 Important Things You Need to Know about Iodine ....](https://health.allwomenstalk.com/important-things-you-need-to-know-about-iodine/)
 - [7 Remedies for PMS Cramps ...](https://health.allwomenstalk.com/7-remedies-for-pms-cramps/)
 - [8 Foods That Fight PMS ...](https://allwomenstalk.com/8-foods-that-fight-pms/)
 
