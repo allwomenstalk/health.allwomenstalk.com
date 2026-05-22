@@ -3,7 +3,7 @@ title: "7 Healthy Addictions Its Okay to Have ..."
 description: "Exercise; Music; Healthy Foods; Water; Reading; More ..."
 url: "https://health.allwomenstalk.com/healthy-addictions-its-okay-to-have/"
 category: "health"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Healthy Addictions Its Okay to Have ...
@@ -52,16 +52,16 @@ We all develop addictions at least once in our lives. Some of us are naturally m
 
 ## Related Posts
 
+- [punctual people](https://lifestyle.allwomenstalk.com/most-common-habits-of-punctual-people/)
+- [things to do on a hot day in sydney](https://parenting.allwomenstalk.com/best-things-about-being-the-oldest/)
+- [teenage worries](https://teen.allwomenstalk.com/top-things-teens-worry-about/)
 - [body language mistakes](https://lifestyle.allwomenstalk.com/body-language-mistakes-you-may-be-making/)
 - [the youngest of the family](https://parenting.allwomenstalk.com/best-things-about-being-the-youngest/)
-- [dont let what youre good at define who you are](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-emotional-baggage-so-it-doesnt-define-you/)
-- [knitting life](https://inspiration.allwomenstalk.com/timeless-lessons-about-life-that-knitting-taught-me/)
-- [misconceptions about me](https://teen.allwomenstalk.com/common-misconceptions-about-teenagers-today/)
-- [things to do on a hot day in sydney](https://parenting.allwomenstalk.com/best-things-about-being-the-oldest/)
-- [people in your life](https://inspiration.allwomenstalk.com/types-of-people-you-need-in-your-life-to-make-you-happy/)
-- [teenage worries](https://teen.allwomenstalk.com/top-things-teens-worry-about/)
 - [mom was right](https://parenting.allwomenstalk.com/times-your-mother-was-right/)
-- [punctual people](https://lifestyle.allwomenstalk.com/most-common-habits-of-punctual-people/)
+- [misconceptions about me](https://teen.allwomenstalk.com/common-misconceptions-about-teenagers-today/)
+- [knitting life](https://inspiration.allwomenstalk.com/timeless-lessons-about-life-that-knitting-taught-me/)
+- [people in your life](https://inspiration.allwomenstalk.com/types-of-people-you-need-in-your-life-to-make-you-happy/)
+- [dont let what youre good at define who you are](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-emotional-baggage-so-it-doesnt-define-you/)
 - [7 Unhealthy Habits and How to Stop Them ...](https://health.allwomenstalk.com/unhealthy-habits-and-how-to-stop-them/)
 - [7 Foods That Make You Happy ...](https://allwomenstalk.com/7-foods-that-make-you-happy/)
 

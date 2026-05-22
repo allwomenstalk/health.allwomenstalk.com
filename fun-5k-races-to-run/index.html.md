@@ -3,7 +3,7 @@ title: "7 Fun 5k Races to Run ..."
 description: "The Color Run; Columbia Muddy Buddy; The Ugly Sweater Run; The Warrior Dash; Run for Your Lives; More ..."
 url: "https://health.allwomenstalk.com/fun-5k-races-to-run/"
 category: "health"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Fun 5k Races to Run ...
@@ -46,14 +46,14 @@ Top Image Source: _cbsnews.com_
 
 - [reykjavik new years eve](https://travel.allwomenstalk.com/ways-to-spend-new-years-eve-around-the-world/)
 - [cheap fun things to do with friends](https://lifestyle.allwomenstalk.com/cheap-and-fun-things-to-do-with-friends/)
-- [obvious things](https://travel.allwomenstalk.com/not-so-obvious-things-to-do-in-amsterdam/)
-- [9 Things to do in Branson ...](https://travel.allwomenstalk.com/things-to-do-in-branson/)
+- [10 Things That Should Be on Your Spring Bucket Lis...](https://lifestyle.allwomenstalk.com/things-that-should-be-on-your-spring-bucket-list/)
 - [7 Easy and Fun Outdoor Activities for Kids ...](https://parenting.allwomenstalk.com/easy-and-fun-outdoor-activities-for-kids/)
-- [7 Fun Ideas for This Spring ...](https://lifestyle.allwomenstalk.com/fun-ideas-for-this-spring/)
-- [7 Things to do in Boston for Free ...](https://travel.allwomenstalk.com/free-things-to-do-in-boston-for-free/)
 - [7 St. Patricks Day Activities for Kids ...](https://parenting.allwomenstalk.com/st-patricks-day-activities-for-kids/)
 - [budget friendly kids activities](https://parenting.allwomenstalk.com/inexpensive-kid-friendly-activities/)
-- [10 Things That Should Be on Your Spring Bucket Lis...](https://lifestyle.allwomenstalk.com/things-that-should-be-on-your-spring-bucket-list/)
+- [7 Things to do in Boston for Free ...](https://travel.allwomenstalk.com/free-things-to-do-in-boston-for-free/)
+- [9 Things to do in Branson ...](https://travel.allwomenstalk.com/things-to-do-in-branson/)
+- [7 Fun Ideas for This Spring ...](https://lifestyle.allwomenstalk.com/fun-ideas-for-this-spring/)
+- [obvious things](https://travel.allwomenstalk.com/not-so-obvious-things-to-do-in-amsterdam/)
 - [6 Sports to Try This Spring ...](https://allwomenstalk.com/6-sports-to-try-this-spring/)
 - [5 Fun Things to do...](https://allwomenstalk.com/5-fun-things-to-do/)
 

@@ -3,7 +3,7 @@ title: "7 Telling Signs Youre Not Taking Proper Care of Yourself ..."
 description: "Always Tired; Weight Gain; Weight Loss; Miserable; Your Skin; More ..."
 url: "https://health.allwomenstalk.com/telling-signs-youre-not-taking-proper-care-of-yourself/"
 category: "health"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Telling Signs Youre Not Taking Proper Care of Yourself ...
@@ -42,16 +42,16 @@ These are some of the signs you might not be looking after yourself. Has anyone 
 
 ## Related Posts
 
-- [signs your birth control isnt working](https://health.allwomenstalk.com/signs-your-birth-control-pill-is-not-the-right-one/)
-- [7 Signs You Need to Change Your Way of Thinking .....](https://inspiration.allwomenstalk.com/signs-you-need-to-change-your-way-of-thinking/)
 - [8 Things Your Intuition Might Be Trying to Tell Yo...](https://inspiration.allwomenstalk.com/things-your-intuition-might-be-trying-to-tell-you/)
-- [7 Signs You Often Say Yes when You Really Want to ...](https://inspiration.allwomenstalk.com/signs-you-often-say-yes-when-you-really-want-to-say-no/)
-- [7 signs of a confident woman](https://lifestyle.allwomenstalk.com/signs-you-are-over-all-the-insecurities-you-had-in-high-school/)
-- [Dont Worry Be Happy Signs You Worry Way Too Much ....](https://inspiration.allwomenstalk.com/dont-worry-be-happy-signs-you-worry-way-too-much/)
-- [Stop Everything Youre Doing: You Must Know These S...](https://health.allwomenstalk.com/stop-everything-youre-doing-you-must-know-these-signs-of-heat-stroke/)
 - [Watch Yourself - 7 Signs Youre about to Make a Ter...](https://money.allwomenstalk.com/watch-yourself-signs-youre-about-to-make-a-terrible-decision/)
+- [7 Signs You Need to Change Your Way of Thinking .....](https://inspiration.allwomenstalk.com/signs-you-need-to-change-your-way-of-thinking/)
 - [too long clothes](https://funny.allwomenstalk.com/nothing-to-wear-signs-you-wait-too-long-to-do-laundry/)
+- [Stop Everything Youre Doing: You Must Know These S...](https://health.allwomenstalk.com/stop-everything-youre-doing-you-must-know-these-signs-of-heat-stroke/)
+- [Dont Worry Be Happy Signs You Worry Way Too Much ....](https://inspiration.allwomenstalk.com/dont-worry-be-happy-signs-you-worry-way-too-much/)
+- [7 Signs You Often Say Yes when You Really Want to ...](https://inspiration.allwomenstalk.com/signs-you-often-say-yes-when-you-really-want-to-say-no/)
 - [11 Signs Your Self-Esteem Needs Boosting ...](https://inspiration.allwomenstalk.com/signs-your-self-esteem-needs-boosting/)
+- [7 signs of a confident woman](https://lifestyle.allwomenstalk.com/signs-you-are-over-all-the-insecurities-you-had-in-high-school/)
+- [signs your birth control isnt working](https://health.allwomenstalk.com/signs-your-birth-control-pill-is-not-the-right-one/)
 - [7 Warning Signs of Stress You Should Be Aware of ....](https://allwomenstalk.com/7-warning-signs-of-stress-you-should-be-aware-of/)
 - [7 Period Problems You Shouldnt Ignore ...](https://allwomenstalk.com/7-period-problems-you-shouldnt-ignore/)
 

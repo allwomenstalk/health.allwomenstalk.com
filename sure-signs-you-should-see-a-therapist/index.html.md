@@ -3,7 +3,7 @@ title: "7 Sure Signs You Should See a Therapist ..."
 description: "A Problem Causes Significant Distress in Your Everyday Life; Your Friends Feel Overwhelmed by Your Problems; You Can’t do the Things You like to do; Something Traumatic Has Happened; Nothing You’ve Done Seems to Have Helped; More ..."
 url: "https://health.allwomenstalk.com/sure-signs-you-should-see-a-therapist/"
 category: "health"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Sure Signs You Should See a Therapist ...
@@ -46,16 +46,16 @@ _psychologytoday.com_
 
 ## Related Posts
 
-- [signage for food trucks](https://food.allwomenstalk.com/sure-signs-that-prove-youre-a-foodie/)
-- [signs youre mature](https://inspiration.allwomenstalk.com/signs-that-you-have-matured-that-you-should-consider/)
 - [what is a high maintenance girlfriend](https://love.allwomenstalk.com/signs-you-are-a-high-maintenance-woman/)
-- [nonchalant](https://lifestyle.allwomenstalk.com/signs-of-a-selfish-person-that-you-should-pay-attention-to/)
-- [wedding high](https://wedding.allwomenstalk.com/obvious-signs-that-you-are-high-on-wedding-fever/)
-- [how to know if your a picky eater](https://food.allwomenstalk.com/sure-signs-youre-a-picky-eater/)
-- [a moody person](https://lifestyle.allwomenstalk.com/signs-of-excessive-moodiness/)
-- [my coworkers suddenly acting strange](https://money.allwomenstalk.com/top-signs-that-a-pink-slip-is-coming/)
 - [complete family drawing](https://parenting.allwomenstalk.com/ways-to-know-when-your-familys-complete/)
+- [a moody person](https://lifestyle.allwomenstalk.com/signs-of-excessive-moodiness/)
+- [signage for food trucks](https://food.allwomenstalk.com/sure-signs-that-prove-youre-a-foodie/)
+- [wedding high](https://wedding.allwomenstalk.com/obvious-signs-that-you-are-high-on-wedding-fever/)
+- [nonchalant](https://lifestyle.allwomenstalk.com/signs-of-a-selfish-person-that-you-should-pay-attention-to/)
+- [signs youre mature](https://inspiration.allwomenstalk.com/signs-that-you-have-matured-that-you-should-consider/)
 - [signs of a bad driver](https://funny.allwomenstalk.com/funny-but-real-signs-youre-a-bad-driver/)
+- [how to know if your a picky eater](https://food.allwomenstalk.com/sure-signs-youre-a-picky-eater/)
+- [my coworkers suddenly acting strange](https://money.allwomenstalk.com/top-signs-that-a-pink-slip-is-coming/)
 - [7 Signs You Have an Addiction Problem ...](https://allwomenstalk.com/7-signs-you-have-an-addiction-problem/)
 - [7 Warning Signs of Stress You Should Be Aware of ....](https://allwomenstalk.com/7-warning-signs-of-stress-you-should-be-aware-of/)
 

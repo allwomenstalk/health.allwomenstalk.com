@@ -3,7 +3,7 @@ title: "7 Unhealthy Activities as Dangerous as Smoking ..."
 description: "Skipping the Sunscreen Can Lead to Skin Cancer; Forgoing Your Workout for Lazing around on the Couch Watching Netflix; The Occasional Tablet of Ecstasy is Super Dangerous; Letting Your Weight Creep up is a Recipe for Disaster; Screen Time Limits Aren’t Just for Kids; More ..."
 url: "https://health.allwomenstalk.com/unhealthy-activities-as-dangerous-as-smoking/"
 category: "health"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Unhealthy Activities as Dangerous as Smoking ...
@@ -42,16 +42,16 @@ Which of these activities do you engage in? Don’t worry – you aren’t alone
 
 ## Related Posts
 
-- [Skip the Doctor : This Chart Will Tell You Why You...](https://health.allwomenstalk.com/skip-the-doctor-this-chart-will-tell-you-why-youre-sick/)
-- [These Shocking Things Are Triggering Your Anxiety ...](https://health.allwomenstalk.com/these-shocking-things-are-triggering-your-anxiety-watch-out/)
-- [Myths about Birth Control Pills That Sexually Acti...](https://health.allwomenstalk.com/myths-about-birth-control-pills-that-sexually-active-women-should-know/)
-- [brushing teeth wrong](https://health.allwomenstalk.com/ways-youve-been-brushing-your-teeth-wrong/)
-- [The Answers to All of Your Embarrassing Period Que...](https://health.allwomenstalk.com/the-answers-to-all-of-your-embarrassing-period-questions/)
 - [What to Expect during Your Very First Gynecologica...](https://health.allwomenstalk.com/what-to-expect-during-your-very-first-gynecological-visit/)
+- [The Answers to All of Your Embarrassing Period Que...](https://health.allwomenstalk.com/the-answers-to-all-of-your-embarrassing-period-questions/)
+- [Myths about Birth Control Pills That Sexually Acti...](https://health.allwomenstalk.com/myths-about-birth-control-pills-that-sexually-active-women-should-know/)
 - [le stylo eye always pink](https://health.allwomenstalk.com/things-you-should-do-when-you-get-pink-eye/)
-- [The 7 Biggest Health Questions from around the Wor...](https://health.allwomenstalk.com/the-biggest-health-questions-from-around-the-world/)
+- [These Shocking Things Are Triggering Your Anxiety ...](https://health.allwomenstalk.com/these-shocking-things-are-triggering-your-anxiety-watch-out/)
+- [brushing teeth wrong](https://health.allwomenstalk.com/ways-youve-been-brushing-your-teeth-wrong/)
 - [The inside Scoop on the Essential Elements Your Bo...](https://health.allwomenstalk.com/the-low-down-on-the-elements-your-body-needs/)
 - [These Things Are Actually Making Your Period Worse...](https://health.allwomenstalk.com/these-things-are-actually-making-your-period-worse/)
+- [The 7 Biggest Health Questions from around the Wor...](https://health.allwomenstalk.com/the-biggest-health-questions-from-around-the-world/)
+- [Skip the Doctor : This Chart Will Tell You Why You...](https://health.allwomenstalk.com/skip-the-doctor-this-chart-will-tell-you-why-youre-sick/)
 - [7 Potentially Harmful Weight Loss Methods ...](https://weightloss.allwomenstalk.com/7-potentially-harmful-weight-loss-methods/)
 - [7 Ways to Keep Your Heart Healthy ...](https://health.allwomenstalk.com/7-ways-to-keep-your-heart-healthy/)
 

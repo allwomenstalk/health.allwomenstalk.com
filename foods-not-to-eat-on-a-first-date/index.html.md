@@ -3,7 +3,7 @@ title: "8 Foods Not to Eat on a First Date ..."
 description: "Onions; Garlic; Avoid Beans and Legumes; The Same Goes for Broccoli and Cabbage; Avoid Dairy; More ..."
 url: "https://health.allwomenstalk.com/foods-not-to-eat-on-a-first-date/"
 category: "health"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 8 Foods Not to Eat on a First Date ...
@@ -46,15 +46,15 @@ Remember that ideal options such as choosing asparagus as a side, cucumber and/o
 
 ## Related Posts
 
-- [what are you looking to avoid in a career](https://lifestyle.allwomenstalk.com/career-mistakes-to-avoid/)
-- [17 Things You Should Definitely Stop Buying ...](https://baking.allwomenstalk.com/things-you-should-definitely-stop-buying/)
 - [10 Critical Things You Should Not Tolerate ...](https://health.allwomenstalk.com/critical-things-you-should-not-tolerate/)
-- [7 friends photos](https://lifestyle.allwomenstalk.com/social-networking-habits-to-avoid/)
-- [7 Worst Allergens to Avoid ...](https://health.allwomenstalk.com/worst-allergens-to-avoid/)
-- [17 Things to Avoid during Pregnancy ...](https://vityle.com/things-to-avoid-during-pregnancy/)
-- [8 Types of Toxic Relationships to Avoid ...](https://love.allwomenstalk.com/types-of-toxic-relationships-to-avoid/)
-- [7 Words to Avoid in 2013 ...](https://lifestyle.allwomenstalk.com/words-to-avoid-in/)
 - [7 Careless Types of People Youll See on the Road ....](https://lifestyle.allwomenstalk.com/careless-types-of-people-youll-see-on-the-road/)
+- [8 Types of Toxic Relationships to Avoid ...](https://love.allwomenstalk.com/types-of-toxic-relationships-to-avoid/)
+- [17 Things to Avoid during Pregnancy ...](https://vityle.com/things-to-avoid-during-pregnancy/)
+- [17 Things You Should Definitely Stop Buying ...](https://baking.allwomenstalk.com/things-you-should-definitely-stop-buying/)
+- [7 Words to Avoid in 2013 ...](https://lifestyle.allwomenstalk.com/words-to-avoid-in/)
+- [7 friends photos](https://lifestyle.allwomenstalk.com/social-networking-habits-to-avoid/)
+- [what are you looking to avoid in a career](https://lifestyle.allwomenstalk.com/career-mistakes-to-avoid/)
+- [7 Worst Allergens to Avoid ...](https://health.allwomenstalk.com/worst-allergens-to-avoid/)
 - [7 Security Measures That Just Dont Work ...](https://lifestyle.allwomenstalk.com/security-measures-that-just-dont-work/)
 - [7 Foods You Shouldnt Make for a Romantic Dinner .....](https://cooking.allwomenstalk.com/7-foods-you-shouldnt-make-for-a-romantic-dinner/)
 - [8 Undeniably Obvious First Date Donts ...](https://love.allwomenstalk.com/undeniably-obvious-first-date-donts/)

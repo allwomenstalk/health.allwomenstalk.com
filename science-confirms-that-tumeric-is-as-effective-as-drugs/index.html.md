@@ -3,7 +3,7 @@ title: "Science Confirms That Tumeric is as Effective as Drugs ..."
 description: "It's an anti-septic; Beat Breast Cancer; Tumeric + Cauliflower; Melanoma; Leukemia; More ..."
 url: "https://health.allwomenstalk.com/science-confirms-that-tumeric-is-as-effective-as-drugs/"
 category: "health"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # Science Confirms That Tumeric is as Effective as Drugs ...
@@ -50,16 +50,16 @@ These are just a few of the ways tumeric can be used to replace or supplement dr
 
 ## Related Posts
 
-- [The Benefits of Nutritional Yeast for Girls Lookin...](https://diet.allwomenstalk.com/the-benefits-of-nutritional-yeast/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/the-importance-of-trace-minerals/)
-- [The 5 Benefits We All Experience from Physical Tou...](https://health.allwomenstalk.com/benefits-of-physical-touch/)
-- [site:food.allwomenstalk.com](https://food.allwomenstalk.com/health-benefits-of-tea/)
-- [is rice water good for weight loss](https://beauty.allwomenstalk.com/amazing-benefits-of-rice-water-all-pretty-instagrammers-are-addicted-to/)
 - [10 Health Benefits of Tea Not All Women Might Know...](https://health.allwomenstalk.com/health-benefits-of-tea-2/)
-- [Health Benefits of Coffee for Girls Concerned Thei...](https://health.allwomenstalk.com/health-benefits-of-coffee/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/the-importance-of-trace-minerals/)
 - [12 Awesome Health Benefits of Bananas That Will Ma...](https://diet.allwomenstalk.com/health-benefits-of-bananas/)
-- [The Jaw Dropping Benefits of Thalassotherapy ...](https://health.allwomenstalk.com/jaw-dropping-benefits-of-thalassotherapy/)
+- [The 5 Benefits We All Experience from Physical Tou...](https://health.allwomenstalk.com/benefits-of-physical-touch/)
+- [The Benefits of Nutritional Yeast for Girls Lookin...](https://diet.allwomenstalk.com/the-benefits-of-nutritional-yeast/)
+- [site:food.allwomenstalk.com](https://food.allwomenstalk.com/health-benefits-of-tea/)
+- [Health Benefits of Coffee for Girls Concerned Thei...](https://health.allwomenstalk.com/health-benefits-of-coffee/)
 - [Look into the Future at the Wonder Spice Known as ...](https://health.allwomenstalk.com/look-into-the-future-at-the-wonder-spice-known-as-turmeric/)
+- [is rice water good for weight loss](https://beauty.allwomenstalk.com/amazing-benefits-of-rice-water-all-pretty-instagrammers-are-addicted-to/)
+- [The Jaw Dropping Benefits of Thalassotherapy ...](https://health.allwomenstalk.com/jaw-dropping-benefits-of-thalassotherapy/)
 - [Green Tea Helps in the Fight against Heart Disease...](https://allwomenstalk.com/green-tea-helps-in-the-fight-against-heart-disease/)
 - [8 Natural Pain Cures That Really Work ...](https://allwomenstalk.com/8-natural-pain-cures-that-really-work/)
 

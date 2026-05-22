@@ -3,7 +3,7 @@ title: "7 Things to do While Recovering from an Eating Disorder to Help You Heal
 description: "Baby Steps; Find a Relaxing Activity; Try One New Food a Week; Listen to Music; Quit Reading so Much; More ..."
 url: "https://health.allwomenstalk.com/things-to-do-while-recovering-from-an-eating-disorder-to-help-you-heal/"
 category: "health"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Things to do While Recovering from an Eating Disorder to Help You Heal ...
@@ -44,16 +44,16 @@ These are all things that I found helpful when recovering from an eating disorde
 
 ## Related Posts
 
-- [7 Ways Fitness Can Make You Eat Healthier ...](https://fitness.allwomenstalk.com/ways-fitness-can-make-you-eat-healthier/)
-- [7 Smart Ways to Maximize Your Calories Each and Ev...](https://diet.allwomenstalk.com/smart-ways-to-maximize-your-calories-each-and-every-day/)
-- [7 Ways to Avoid Unwanted Calories Daily ...](https://diet.allwomenstalk.com/ways-to-avoid-unwanted-calories-daily/)
-- [Little Yet Smart Ways to Reduce Bloating after Eac...](https://diet.allwomenstalk.com/smart-little-ways-to-reduce-bloating-after-each-meal/)
-- [tips for eating dairy](https://diet.allwomenstalk.com/smart-tips-for-eating-dairy-if-youre-on-a-diet/)
-- [7 Tips for Success when Eating out on a Diet ...](https://diet.allwomenstalk.com/tips-for-success-when-eating-out-on-a-diet/)
+- [7 Ways to Improve Your Bone Health ...](https://health.allwomenstalk.com/ways-to-improve-your-bone-health/)
 - [sneak eating](https://diet.allwomenstalk.com/ways-to-sneak-in-healthy-eating/)
 - [sushi bloating](https://food.allwomenstalk.com/ways-to-make-sushi-healthier/)
+- [7 Ways to Avoid Unwanted Calories Daily ...](https://diet.allwomenstalk.com/ways-to-avoid-unwanted-calories-daily/)
 - [7 Simple Strategies to Make Changes to Your Diet ....](https://diet.allwomenstalk.com/simple-strategies-to-make-changes-to-your-diet/)
-- [7 Ways to Improve Your Bone Health ...](https://health.allwomenstalk.com/ways-to-improve-your-bone-health/)
+- [tips for eating dairy](https://diet.allwomenstalk.com/smart-tips-for-eating-dairy-if-youre-on-a-diet/)
+- [7 Ways Fitness Can Make You Eat Healthier ...](https://fitness.allwomenstalk.com/ways-fitness-can-make-you-eat-healthier/)
+- [7 Smart Ways to Maximize Your Calories Each and Ev...](https://diet.allwomenstalk.com/smart-ways-to-maximize-your-calories-each-and-every-day/)
+- [7 Tips for Success when Eating out on a Diet ...](https://diet.allwomenstalk.com/tips-for-success-when-eating-out-on-a-diet/)
+- [Little Yet Smart Ways to Reduce Bloating after Eac...](https://diet.allwomenstalk.com/smart-little-ways-to-reduce-bloating-after-each-meal/)
 - [7 Ways to Repair Your Relationship with Food ...](https://diet.allwomenstalk.com/ways-to-repair-your-relationship-with-food/)
 - [10 Ways to Beat Dysfunctional Eating Habits ...](https://diet.allwomenstalk.com/ways-to-beat-dysfunctional-eating-habits/)
 

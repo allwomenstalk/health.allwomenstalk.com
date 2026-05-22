@@ -3,7 +3,7 @@ title: "7 Ways Yoga Can Help You Recover from Your Eating Disorder ..."
 description: "Mind/Body Connection; Mindfulness; Kind; Muscle Memory; Listening to Your Body; More ..."
 url: "https://health.allwomenstalk.com/ways-yoga-can-help-you-recover-from-your-eating-disorder/"
 category: "health"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Ways Yoga Can Help You Recover from Your Eating Disorder ...
@@ -43,15 +43,15 @@ Recovering from an eating disorder is difficult but not impossible. Yoga has pro
 ## Related Posts
 
 - [fettanteil reduzieren](https://food.allwomenstalk.com/smart-ways-to-reduce-the-fat-content-in-food/)
-- [what is raw diet](https://food.allwomenstalk.com/ways-to-eat-more-raw-foods/)
-- [lowest calorie dip](https://food.allwomenstalk.com/tips-for-making-low-cal-and-low-fat-dips/)
-- [what type of chocolate has health benefits](https://food.allwomenstalk.com/healthy-ways-to-eat-more-chocolate/)
 - [healthy easter](https://fitness.allwomenstalk.com/fitness-tips-for-a-healthy-easter/)
-- [power up meal](https://food.allwomenstalk.com/ways-to-power-up-your-morning-meal-with-delicious-food/)
+- [adding fat to diet](https://food.allwomenstalk.com/tips-for-adding-more-healthy-fat-to-your-diet/)
+- [what is raw diet](https://food.allwomenstalk.com/ways-to-eat-more-raw-foods/)
+- [what type of chocolate has health benefits](https://food.allwomenstalk.com/healthy-ways-to-eat-more-chocolate/)
+- [lowest calorie dip](https://food.allwomenstalk.com/tips-for-making-low-cal-and-low-fat-dips/)
+- [cookie alternative food](https://food.allwomenstalk.com/ways-to-make-your-cookies-healthier/)
 - [are tacos healthy for weight loss](https://food.allwomenstalk.com/ways-to-make-tacos-healthier/)
 - [french diet plan](https://diet.allwomenstalk.com/french-diet-tips-that-will-work-for-you/)
-- [cookie alternative food](https://food.allwomenstalk.com/ways-to-make-your-cookies-healthier/)
-- [adding fat to diet](https://food.allwomenstalk.com/tips-for-adding-more-healthy-fat-to-your-diet/)
+- [power up meal](https://food.allwomenstalk.com/ways-to-power-up-your-morning-meal-with-delicious-food/)
 - [7 Ways to Repair Your Relationship with Food ...](https://diet.allwomenstalk.com/ways-to-repair-your-relationship-with-food/)
 - [7 Tips on How to Recover from a Food Binge ...](https://health.allwomenstalk.com/tips-on-how-to-recover-from-a-food-binge/)
 

@@ -3,7 +3,7 @@ title: "9 Foods to Avoid if You Have Acid Reflux ..."
 description: "Chocolate; Spicy; Tomato-Based; Citrus; Fried Foods; More ..."
 url: "https://health.allwomenstalk.com/foods-to-avoid-if-you-have-acid-reflux/"
 category: "health"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 9 Foods to Avoid if You Have Acid Reflux ...
@@ -64,16 +64,16 @@ Do you have acid reflux? What foods do you have to avoid and which ones here are
 
 ## Related Posts
 
-- [healthy alternative to mms](https://food.allwomenstalk.com/healthy-vegan-candy-alternatives-that-wont-break-your-diet/)
-- [ac6 salad](https://food.allwomenstalk.com/healthy-salad-recipes-that-act-as-full-meals/)
-- [are artichokes fermented](https://food.allwomenstalk.com/foods-that-increase-your-good-gut-bacteria-to-help-you-feel-better-fast/)
-- [fruit pouches](https://food.allwomenstalk.com/best-pouch-snacks-for-easy-healthy-snacking/)
-- [orange and calcium](https://food.allwomenstalk.com/ways-for-vegans-to-up-their-calcium-intake/)
-- [kashi bars nutrition](https://food.allwomenstalk.com/yummy-nutritional-bars-to-keep-you-satisfied-on-the-go/)
 - [maca post workout](https://food.allwomenstalk.com/great-post-workout-foods-that-are-also-pretty-delicious-too/)
-- [a bad rap or bad rep](https://food.allwomenstalk.com/healthy-foods-with-a-bad-reputation/)
+- [fruit pouches](https://food.allwomenstalk.com/best-pouch-snacks-for-easy-healthy-snacking/)
+- [ac6 salad](https://food.allwomenstalk.com/healthy-salad-recipes-that-act-as-full-meals/)
+- [orange and calcium](https://food.allwomenstalk.com/ways-for-vegans-to-up-their-calcium-intake/)
+- [healthy alternative to mms](https://food.allwomenstalk.com/healthy-vegan-candy-alternatives-that-wont-break-your-diet/)
 - [dried fig recipes healthy](https://food.allwomenstalk.com/delicious-fig-recipes-that-will-keep-you-happy-and-healthy/)
+- [kashi bars nutrition](https://food.allwomenstalk.com/yummy-nutritional-bars-to-keep-you-satisfied-on-the-go/)
+- [are artichokes fermented](https://food.allwomenstalk.com/foods-that-increase-your-good-gut-bacteria-to-help-you-feel-better-fast/)
 - [do oranges help with anxiety](https://food.allwomenstalk.com/foods-that-will-boost-your-mood-and-help-with-anxiety/)
+- [a bad rap or bad rep](https://food.allwomenstalk.com/healthy-foods-with-a-bad-reputation/)
 - [8 Foods to Avoid While Breastfeeding ...](https://parenting.allwomenstalk.com/8-foods-to-avoid-while-breastfeeding/)
 - [7 Foods to Avoid While Pregnant ...](https://parenting.allwomenstalk.com/7-foods-to-avoid-while-pregnant/)
 

@@ -3,7 +3,7 @@ title: "9 Worst Foods to Eat when Youre Sick ..."
 description: "Sugary Treats; Milk; Fatty Foods; Eggs; Alcohol; More ..."
 url: "https://health.allwomenstalk.com/worst-foods-to-eat-when-youre-sick/"
 category: "health"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 9 Worst Foods to Eat when Youre Sick ...
@@ -68,16 +68,16 @@ Everyone has foods they love and hate when they're sick. However, some foods are
 
 ## Related Posts
 
-- [how long do alfalfa sprouts last in the fridge](https://food.allwomenstalk.com/foods-you-should-never-eat-past-their-expiry-date/)
-- [cat person food ingredients](https://food.allwomenstalk.com/feed-that-girl-pink-food-that-looks-as-fabulous-as-it-tastes/)
 - [benefits of almond milk yogurt](https://food.allwomenstalk.com/surprising-alternatives-to-yogurt-with-similar-benefits/)
-- [7 of the Best Eating Plans for 2015 ...](https://diet.allwomenstalk.com/of-the-best-eating-plans-for/)
-- [5925 ale 48 ring](https://food.allwomenstalk.com/super-bowl-foods-to-help-you-forget-youre-watching-football/)
+- [how long do alfalfa sprouts last in the fridge](https://food.allwomenstalk.com/foods-you-should-never-eat-past-their-expiry-date/)
 - [foods that create energy](https://food.allwomenstalk.com/delicious-organic-foods-that-will-boost-your-energy/)
-- [vitamins and minerals food items](https://food.allwomenstalk.com/healthy-foods-that-wont-break-the-bank/)
-- [kinds of cereals for breakfast](https://food.allwomenstalk.com/hearty-and-healthy-homemade-cereals-youre-going-to-love/)
+- [cat person food ingredients](https://food.allwomenstalk.com/feed-that-girl-pink-food-that-looks-as-fabulous-as-it-tastes/)
 - [cute smoothie bowls](https://food.allwomenstalk.com/nutritious-and-addictive-smoothie-bowls-to-try-for-breakfast/)
+- [5925 ale 48 ring](https://food.allwomenstalk.com/super-bowl-foods-to-help-you-forget-youre-watching-football/)
+- [vitamins and minerals food items](https://food.allwomenstalk.com/healthy-foods-that-wont-break-the-bank/)
+- [7 of the Best Eating Plans for 2015 ...](https://diet.allwomenstalk.com/of-the-best-eating-plans-for/)
 - [food with less than 50 calories](https://weightloss.allwomenstalk.com/dont-go-hungry-when-dieting-snacks-under-50-calories/)
+- [kinds of cereals for breakfast](https://food.allwomenstalk.com/hearty-and-healthy-homemade-cereals-youre-going-to-love/)
 - [10 Super Foods That Help Fight Illness ...](https://health.allwomenstalk.com/10-super-foods-that-help-fight-illness/)
 - [7 Most Unhealthy Foods to Avoid ...](https://health.allwomenstalk.com/most-unhealthy-foods-to-avoid/)
 
