@@ -44,16 +44,16 @@ Top Photo Credit: _Angelo Nairod_
 
 ## Related Posts
 
-- [9 Sagely Effective Ways to Banish Emotional Eating...](https://health.allwomenstalk.com/sagely-effective-ways-to-banish-emotional-eating/)
-- [how to keep a food journal](https://allwomenstalk.com/12-tips-on-how-to-keep-a-food-journal/)
 - [Eating Well in the New Year.](https://allwomenstalk.com/eating-well-in-the-new-year/)
+- [how to prevent obesity](https://allwomenstalk.com/10-ways-to-prevent-obesity/)
+- [how to keep a food journal](https://allwomenstalk.com/12-tips-on-how-to-keep-a-food-journal/)
+- [Beauty Tips Articles: Healthy Snacking Habits ...](https://allwomenstalk.com/beauty-tips-articles-healthy-snacking-habits/)
 - [7 Highly Useful Tips on How to Stop Drinking Soda ...](https://health.allwomenstalk.com/tips-on-how-to-stop-drinking-soda/)
 - [Healthy Eating and Diet Tips: Part 2](https://allwomenstalk.com/healthy-eating-and-diet-tips-part-2/)
-- [how to resist temptation food](https://allwomenstalk.com/resisting-the-food-temptation/)
-- [Beauty Tips Articles: Healthy Snacking Habits ...](https://allwomenstalk.com/beauty-tips-articles-healthy-snacking-habits/)
 - [how to lower your calorie intake](https://allwomenstalk.com/10-ways-to-reduce-calorie-intake/)
 - [meals with 100 calories](https://allwomenstalk.com/10-ways-to-cut-100-calories-every-meal-without-noticing/)
-- [how to prevent obesity](https://allwomenstalk.com/10-ways-to-prevent-obesity/)
+- [9 Sagely Effective Ways to Banish Emotional Eating...](https://health.allwomenstalk.com/sagely-effective-ways-to-banish-emotional-eating/)
+- [how to resist temptation food](https://allwomenstalk.com/resisting-the-food-temptation/)
 - [7 Ways to Control Your Cravings ...](https://cooking.allwomenstalk.com/7-ways-to-control-your-cravings/)
 - [7 Steps to Fight Your Cravings ...](https://allwomenstalk.com/7-steps-to-fight-your-cravings/)
 

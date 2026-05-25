@@ -35,15 +35,15 @@ Self-care does not have to be super complicated or complex. There are ways that 
 ## Related Posts
 
 - [Three Things Every Woman Should Give a Try ...](https://allwomenstalk.com/three-things-every-woman-should-give-a-try/)
-- [car buying tips for women](https://allwomenstalk.com/car-buying-tips-women/)
 - [Ultimate Guide to Detox for Women ...](https://allwomenstalk.com/detox-for-women/)
-- [Even if Youre Not That Kind of Girl ...](https://allwomenstalk.com/even-if-youre-not-that-kind-of-girl/)
+- [car buying tips for women](https://allwomenstalk.com/car-buying-tips-women/)
 - [ballet tips](https://allwomenstalk.com/abbi-johnson-professinal-tips-ballerina-wellbeing/)
 - [RELAXATION and WELLNESS of a WOMANS SOUL  ...](https://allwomenstalk.com/relaxation-and-wellness-of-a-womans-soul/)
 - [How to Compliment - or Insult - a Woman ...](https://allwomenstalk.com/how-to-compliment-or-insult-a-woman/)
 - [Sense and Superficiality: One Girls Quest for True...](https://allwomenstalk.com/sense-and-superficiality-one-girls-quest-for-true-love-on-the-internet/)
 - [10 Relationships Every Woman Needs to Have ...](https://allwomenstalk.com/10-relationships-every-woman-needs-to-have/)
 - [galsforfree](https://allwomenstalk.com/free-online-games-for-gals-at-cafecom/)
+- [Even if Youre Not That Kind of Girl ...](https://allwomenstalk.com/even-if-youre-not-that-kind-of-girl/)
 - [5 Ways to Stay Beautiful ...](https://allwomenstalk.com/5-ways-to-stay-beautiful/)
 - [9 Ways Moms Can Pamper Themselves ...](https://parenting.allwomenstalk.com/ways-moms-can-pamper-themselves/)
 

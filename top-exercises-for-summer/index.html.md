@@ -48,16 +48,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/28712626)
 
 ## Related Posts
 
-- [8 Fresh and Delicious Summer Appetizers ...](https://eatial.com/fresh-and-delicious-summer-appetizers/)
-- [8 Great Ways to Beat the Humidity ...](https://health.allwomenstalk.com/great-ways-to-beat-the-humidity/)
-- [fun cheap summer vacation ideas](https://travel.allwomenstalk.com/affordable-summer-vacation-ideas/)
-- [cheap summer holidays](https://travel.allwomenstalk.com/super-cheap-summer-vacations-for-students/)
-- [summer food tips](https://food.allwomenstalk.com/incredible-tips-for-healthy-summer-eating/)
 - [7 Ways to a Better Summer by Quitting Smoking This...](https://health.allwomenstalk.com/ways-to-a-better-summer-by-quitting-smoking-this-spring/)
+- [fun cheap summer vacation ideas](https://travel.allwomenstalk.com/affordable-summer-vacation-ideas/)
 - [9 Free Things to do This Summer ...](https://money.allwomenstalk.com/free-things-to-do-this-summer/)
+- [cheap summer holidays](https://travel.allwomenstalk.com/super-cheap-summer-vacations-for-students/)
+- [loreal petite blinged](https://lifestyle.allwomenstalk.com/must-haves-for-summer/)
+- [summer food tips](https://food.allwomenstalk.com/incredible-tips-for-healthy-summer-eating/)
+- [8 Great Ways to Beat the Humidity ...](https://health.allwomenstalk.com/great-ways-to-beat-the-humidity/)
+- [8 Fresh and Delicious Summer Appetizers ...](https://eatial.com/fresh-and-delicious-summer-appetizers/)
 - [10 Summer Concerts You Wont Want to Miss ...](https://movies.allwomenstalk.com/summer-concerts-you-wont-want-to-miss/)
 - [8 Awesome Places to Visit This Summer ...](https://travel.allwomenstalk.com/awesome-places-to-visit-this-summer/)
-- [loreal petite blinged](https://lifestyle.allwomenstalk.com/must-haves-for-summer/)
 - [7 Ways to Get in Shape for Summer ...](https://weightloss.allwomenstalk.com/ways-to-get-in-shape-for-summer/)
 - [8 Fun Ways to Exercise This Summer ...](https://weightloss.allwomenstalk.com/fun-ways-to-exercise-this-summer/)
 

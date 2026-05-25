@@ -42,16 +42,16 @@ These are 7 reasons why obesity is more of an issue now than 50 years ago. Does 
 
 ## Related Posts
 
-- [The Truth on Sports Drinks and Why You Should Ditc...](https://health.allwomenstalk.com/heres-why-you-should-ditch-sports-drinks/)
 - [This is How Soda Makes You Gain Weight for Girl Wh...](https://diet.allwomenstalk.com/how-does-soda-make-you-gain-weight/)
-- [hand diet](https://weightloss.allwomenstalk.com/what-should-you-know-about-the-hand-diet/)
-- [7 Ways to Combat Your Workout Ruining Your Diet .....](https://weightloss.allwomenstalk.com/ways-to-combat-your-workout-ruining-your-diet/)
-- [7 Hidden Reasons Keeping You from Losing Weight fo...](https://weightloss.allwomenstalk.com/sneaky-reasons-you-arent-losing-weight/)
-- [How to Tell if Your Diet is Too Harsh for Your Bod...](https://diet.allwomenstalk.com/is-your-diet-too-harsh-heres-how-to-tell/)
-- [Foods That Might Be Hindering Your Weight Loss Eff...](https://weightloss.allwomenstalk.com/you-wont-lose-weight-if-you-keep-eating-these-foods/)
-- [eating small meals throughout the day](https://diet.allwomenstalk.com/why-you-should-eat-several-small-meals-throughout-the-day/)
-- [7 Difficult Diet Decisions for Those Who Want to L...](https://weightloss.allwomenstalk.com/difficult-diet-decisions-for-those-who-want-to-lose-weight/)
 - [what food cravings mean emotionally](https://food.allwomenstalk.com/what-your-food-cravings-say-about-you/)
+- [How to Tell if Your Diet is Too Harsh for Your Bod...](https://diet.allwomenstalk.com/is-your-diet-too-harsh-heres-how-to-tell/)
+- [The Truth on Sports Drinks and Why You Should Ditc...](https://health.allwomenstalk.com/heres-why-you-should-ditch-sports-drinks/)
+- [Foods That Might Be Hindering Your Weight Loss Eff...](https://weightloss.allwomenstalk.com/you-wont-lose-weight-if-you-keep-eating-these-foods/)
+- [7 Hidden Reasons Keeping You from Losing Weight fo...](https://weightloss.allwomenstalk.com/sneaky-reasons-you-arent-losing-weight/)
+- [eating small meals throughout the day](https://diet.allwomenstalk.com/why-you-should-eat-several-small-meals-throughout-the-day/)
+- [7 Ways to Combat Your Workout Ruining Your Diet .....](https://weightloss.allwomenstalk.com/ways-to-combat-your-workout-ruining-your-diet/)
+- [7 Difficult Diet Decisions for Those Who Want to L...](https://weightloss.allwomenstalk.com/difficult-diet-decisions-for-those-who-want-to-lose-weight/)
+- [hand diet](https://weightloss.allwomenstalk.com/what-should-you-know-about-the-hand-diet/)
 - [7 Unfortunate Reasons Why Women Gain Weight Fast ....](https://weightloss.allwomenstalk.com/7-reasons-women-gain-weight-fast/)
 - [Why Am I so Fat - Modern Theories ...](https://allwomenstalk.com/why-am-i-so-fat-modern-theories/)
 

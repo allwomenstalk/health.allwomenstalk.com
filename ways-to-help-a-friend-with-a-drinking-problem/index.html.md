@@ -42,16 +42,16 @@ You will note I haven’t mentioned anything about what to do if your friend sim
 
 ## Related Posts
 
-- [7 Tips on How to Handle Awkward Situations ...](https://inspiration.allwomenstalk.com/tips-on-how-to-handle-awkward-situations/)
-- [7 Tips on How to Build Your Friends Self-Esteem .....](https://teen.allwomenstalk.com/tips-on-how-to-build-your-friends-self-esteem/)
-- [7 Easy Ways to Be a Better Friend ...](https://teen.allwomenstalk.com/easy-ways-to-be-a-better-friend/)
-- [7 Ways to Be a Positive Friend Even in the Darkest...](https://inspiration.allwomenstalk.com/ways-to-be-a-positive-friend-even-in-the-darkest-of-times/)
-- [7 Tips for Talking to Staff about a Problem when A...](https://lifestyle.allwomenstalk.com/tips-for-talking-to-staff-about-a-problem-when-all-you-want-to-do-is-yell/)
-- [7 Ways to Deal with a Huge Fight ...](https://love.allwomenstalk.com/ways-to-deal-with-a-huge-fight/)
-- [7 Ways to End an Argument ...](https://love.allwomenstalk.com/ways-to-end-an-argument/)
-- [7 Effective Ways to Deal with a Difficult Family M...](https://inspiration.allwomenstalk.com/effective-ways-to-deal-with-a-difficult-family-member/)
 - [7 Tips for Dealing with Unsolicited Parenting Advi...](https://parenting.allwomenstalk.com/tips-for-dealing-with-unsolicited-parenting-advice/)
+- [7 Tips on How to Handle Awkward Situations ...](https://inspiration.allwomenstalk.com/tips-on-how-to-handle-awkward-situations/)
+- [7 Ways to Be a Positive Friend Even in the Darkest...](https://inspiration.allwomenstalk.com/ways-to-be-a-positive-friend-even-in-the-darkest-of-times/)
 - [7 Ways to Speak Your Mind ...](https://inspiration.allwomenstalk.com/ways-to-speak-your-mind/)
+- [7 Tips on How to Build Your Friends Self-Esteem .....](https://teen.allwomenstalk.com/tips-on-how-to-build-your-friends-self-esteem/)
+- [7 Tips for Talking to Staff about a Problem when A...](https://lifestyle.allwomenstalk.com/tips-for-talking-to-staff-about-a-problem-when-all-you-want-to-do-is-yell/)
+- [7 Effective Ways to Deal with a Difficult Family M...](https://inspiration.allwomenstalk.com/effective-ways-to-deal-with-a-difficult-family-member/)
+- [7 Ways to End an Argument ...](https://love.allwomenstalk.com/ways-to-end-an-argument/)
+- [7 Ways to Deal with a Huge Fight ...](https://love.allwomenstalk.com/ways-to-deal-with-a-huge-fight/)
+- [7 Easy Ways to Be a Better Friend ...](https://teen.allwomenstalk.com/easy-ways-to-be-a-better-friend/)
 - [7 Sure Ways to Have Fun without Drinking ...](https://allwomenstalk.com/8-sure-ways-to-have-fun-without-drinking/)
 - [7 Ways to Help Someone with an Addiction ...](https://allwomenstalk.com/7-ways-to-help-someone-with-an-addiction/)
 

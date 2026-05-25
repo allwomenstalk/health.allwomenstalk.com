@@ -44,16 +44,16 @@ With the benefits of fish oil so well documented it makes sense that it’s some
 
 ## Related Posts
 
-- [9 Benefits of Using Hemp Protein in Your Smoothies...](https://health.allwomenstalk.com/benefits-of-using-hemp-protein-in-your-smoothies/)
-- [7 Health Benefits of Oil Pulling ...](https://health.allwomenstalk.com/health-benefits-of-oil-pulling/)
-- [pumpkin seeds alkaline](https://health.allwomenstalk.com/benefits-of-pumpkin-seeds-for-your-health/)
-- [7 Health Benefits of an Indian Diet ...](https://health.allwomenstalk.com/health-benefits-of-trying-an-indian-diet/)
-- [7 Benefits of Reducing Dietary Fat for Certain Hea...](https://health.allwomenstalk.com/benefits-of-reducing-dietary-fat-for-certain-health-concerns/)
-- [goal of a juice cleanse perhaps](https://health.allwomenstalk.com/great-reasons-to-do-a-cleanse/)
 - [9 Benefits of Eating Fish Regularly ...](https://health.allwomenstalk.com/benefits-of-eating-fish-regularly/)
 - [9 Benefits of Moderate Carb Consumption ...](https://health.allwomenstalk.com/benefits-of-moderate-carb-consumption/)
-- [7 Reasons to Adopt a Plant-Based Diet ...](https://food.allwomenstalk.com/reasons-to-adopt-a-plant-based-diet/)
 - [7 Effective Supplements for Poor Digestion ...](https://health.allwomenstalk.com/effective-supplements-for-poor-digestion/)
+- [7 Health Benefits of Oil Pulling ...](https://health.allwomenstalk.com/health-benefits-of-oil-pulling/)
+- [9 Benefits of Using Hemp Protein in Your Smoothies...](https://health.allwomenstalk.com/benefits-of-using-hemp-protein-in-your-smoothies/)
+- [pumpkin seeds alkaline](https://health.allwomenstalk.com/benefits-of-pumpkin-seeds-for-your-health/)
+- [goal of a juice cleanse perhaps](https://health.allwomenstalk.com/great-reasons-to-do-a-cleanse/)
+- [7 Reasons to Adopt a Plant-Based Diet ...](https://food.allwomenstalk.com/reasons-to-adopt-a-plant-based-diet/)
+- [7 Health Benefits of an Indian Diet ...](https://health.allwomenstalk.com/health-benefits-of-trying-an-indian-diet/)
+- [7 Benefits of Reducing Dietary Fat for Certain Hea...](https://health.allwomenstalk.com/benefits-of-reducing-dietary-fat-for-certain-health-concerns/)
 - [Health Benefits of Fish Oil ...](https://allwomenstalk.com/health-benefits-of-fish-oil/)
 - [8 Healthy Ways to Get Omega 3 ...](https://diet.allwomenstalk.com/healthy-ways-to-get-omega-3/)
 

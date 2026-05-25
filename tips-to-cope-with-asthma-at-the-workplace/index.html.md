@@ -44,16 +44,16 @@ Top image source: [i.ehow.com](https://goo.gl/9TUqaT)
 
 ## Related Posts
 
-- [9 Healthy  Fun Ways to Relax ...](https://health.allwomenstalk.com/healthy-fun-ways-to-relax/)
 - [How to Reduce Stress ...](https://allwomenstalk.com/how-to-reduce-stress/)
+- [9 Healthy  Fun Ways to Relax ...](https://health.allwomenstalk.com/healthy-fun-ways-to-relax/)
 - [7 Tips to Get over a Caffeine Addiction ...](https://health.allwomenstalk.com/tips-to-get-over-a-caffeine-addiction/)
+- [8 Ways of Dealing with Stress at School ...](https://lifestyle.allwomenstalk.com/ways-of-dealing-with-stress-at-school/)
 - [9 Ways to Release Pent up Emotions ...](https://health.allwomenstalk.com/9-ways-to-release-pent-up-emotions/)
+- [New Years Resolution - Less Stress](https://allwomenstalk.com/new-years-resolution-less-stress/)
 - [7 Ways to Handle Holiday Stress ...](https://health.allwomenstalk.com/ways-to-handle-holiday-stress/)
+- [Ease the Stress of Flying with a Soothing Eye Pill...](https://allwomenstalk.com/ease-the-stress-of-flying-with-a-soothing-eye-pillow/)
 - [8 Quick Stress Busters ...](https://health.allwomenstalk.com/8-quick-stress-busters/)
 - [how to get over an obsession](https://lifestyle.allwomenstalk.com/ways-to-stop-being-obsessive/)
-- [New Years Resolution - Less Stress](https://allwomenstalk.com/new-years-resolution-less-stress/)
-- [8 Ways of Dealing with Stress at School ...](https://lifestyle.allwomenstalk.com/ways-of-dealing-with-stress-at-school/)
-- [Ease the Stress of Flying with a Soothing Eye Pill...](https://allwomenstalk.com/ease-the-stress-of-flying-with-a-soothing-eye-pillow/)
 - [7 Tips for Coping with Long-Term Health Conditions...](https://health.allwomenstalk.com/7-tips-for-coping-with-long-term-health-conditions/)
 - [13 Self Help Tips for Hay Fever Sufferers ...](https://health.allwomenstalk.com/13-self-help-tips-for-hay-fever-sufferers/)
 

@@ -24,16 +24,16 @@ If you're not practicing meditation yet, you definitely should! Reach out to me 
 
 ## Related Posts
 
-- [The Difference between Stress and Anxiety ...](https://health.allwomenstalk.com/the-difference-between-stress-and-anxiety/)
-- [4 Great Ways to Handle a Panic Attack ...](https://health.allwomenstalk.com/ways-to-handle-a-panic-attack/)
-- [coffee and stress](https://health.allwomenstalk.com/the-relationship-between-coffee-and-stress/)
-- [Inspirational Ways to Prioritize  Your Life for Le...](https://inspiration.allwomenstalk.com/ways-to-prioritize-your-life/)
 - [5 Easy Tips to Start a Self-Care Routine ...](https://inspiration.allwomenstalk.com/easy-tips-to-start-a-self-care-routine/)
-- [Perfect Ways to Reduce Occasional  Anxiety ...](https://inspiration.allwomenstalk.com/ways-to-reduce-occasional-anxiety/)
-- [Top 5  Self Care Plans to Cope with Mental Illness...](https://health.allwomenstalk.com/self-care-plan-to-cope-with-mental-illness/)
-- [Perfect Ways to Be Stress Free ...](https://mindfulness.allwomenstalk.com/how-to-be-stress-free/)
+- [coffee and stress](https://health.allwomenstalk.com/the-relationship-between-coffee-and-stress/)
+- [The Difference between Stress and Anxiety ...](https://health.allwomenstalk.com/the-difference-between-stress-and-anxiety/)
+- [Inspirational Ways to Prioritize  Your Life for Le...](https://inspiration.allwomenstalk.com/ways-to-prioritize-your-life/)
 - [When Being Emotionally Exhausted is a Good Feeling...](https://lifestyle.allwomenstalk.com/when-being-emotionally-exhausted-is-a-good-feeling/)
+- [Perfect Ways to Reduce Occasional  Anxiety ...](https://inspiration.allwomenstalk.com/ways-to-reduce-occasional-anxiety/)
 - [10 Easy Ways to Instantly  Boost Your Mood ...](https://inspiration.allwomenstalk.com/easy-ways-to-get-an-instant-mood-boost/)
+- [Top 5  Self Care Plans to Cope with Mental Illness...](https://health.allwomenstalk.com/self-care-plan-to-cope-with-mental-illness/)
+- [4 Great Ways to Handle a Panic Attack ...](https://health.allwomenstalk.com/ways-to-handle-a-panic-attack/)
+- [Perfect Ways to Be Stress Free ...](https://mindfulness.allwomenstalk.com/how-to-be-stress-free/)
 - [Finding Peace of Mind ...](https://allwomenstalk.com/finding-peace-of-mind-in-2021/)
 - [8 Tips for Practising Meditation ...](https://allwomenstalk.com/8-tips-for-practising-meditation/)
 

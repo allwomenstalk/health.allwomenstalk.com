@@ -46,16 +46,16 @@ What do you think about these tips on Paleo diet? Have you tried this diet yet? 
 
 ## Related Posts
 
-- [fast food cravings](https://food.allwomenstalk.com/ways-to-fight-fast-food-cravings/)
-- [are goldfish bad for weight loss](https://food.allwomenstalk.com/ways-to-avoid-late-night-snacking/)
-- [energy kick](https://health.allwomenstalk.com/healthy-ways-to-get-an-energy-kick/)
-- [how to have healthy relationship with food](https://food.allwomenstalk.com/healthy-rules-to-make-you-love-food/)
-- [how to stick to healthy eating](https://weightloss.allwomenstalk.com/ways-to-stick-to-a-healthy-eating-plan/)
-- [how to start eating clean](https://health.allwomenstalk.com/ways-to-start-eating-clean/)
 - [avocado ways to eat](https://food.allwomenstalk.com/mouth-watering-ways-to-eat-avocado/)
+- [energy kick](https://health.allwomenstalk.com/healthy-ways-to-get-an-energy-kick/)
+- [are goldfish bad for weight loss](https://food.allwomenstalk.com/ways-to-avoid-late-night-snacking/)
+- [nutrition savvy](https://health.allwomenstalk.com/ways-to-become-nutrition-savvy/)
+- [how to have healthy relationship with food](https://food.allwomenstalk.com/healthy-rules-to-make-you-love-food/)
+- [how to start eating clean](https://health.allwomenstalk.com/ways-to-start-eating-clean/)
+- [how to stick to healthy eating](https://weightloss.allwomenstalk.com/ways-to-stick-to-a-healthy-eating-plan/)
 - [healthy food app](https://diet.allwomenstalk.com/apps-for-healthy-eating/)
 - [how to sneak veggies into meals for picky eaters](https://food.allwomenstalk.com/ways-to-sneak-veggies-into-your-picky-eaters-meals/)
-- [nutrition savvy](https://health.allwomenstalk.com/ways-to-become-nutrition-savvy/)
+- [fast food cravings](https://food.allwomenstalk.com/ways-to-fight-fast-food-cravings/)
 - [8 Healthy Cooking Habits to Follow ...](https://cooking.allwomenstalk.com/8-healthy-cooking-habits-to-follow/)
 - [8 Ways to Ensure Diet Success ...](https://diet.allwomenstalk.com/ways-to-ensure-diet-success/)
 

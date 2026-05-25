@@ -42,14 +42,14 @@ These are just a few tips to help boost your energy levels. If you’re constant
 
 ## Related Posts
 
-- [7 Tips on How to Rejuvenate Your Spirit ...](https://health.allwomenstalk.com/tips-on-how-to-rejuvenate-your-spirit/)
-- [8 Ways to Be Positive about Living with Diabetes ....](https://health.allwomenstalk.com/ways-to-be-positive-about-living-with-diabetes/)
-- [9 Healthy Habits to Adopt This Year ...](https://health.allwomenstalk.com/healthy-habits-to-adopt-this-year/)
 - [my little luxury](https://lifestyle.allwomenstalk.com/ways-to-add-a-little-luxury-to-your-day/)
+- [10 Things to Try before Youre 40 ...](https://lifestyle.allwomenstalk.com/things-to-try-before-youre-40/)
+- [9 Healthy Habits to Adopt This Year ...](https://health.allwomenstalk.com/healthy-habits-to-adopt-this-year/)
+- [8 Ways to Be Positive about Living with Diabetes ....](https://health.allwomenstalk.com/ways-to-be-positive-about-living-with-diabetes/)
 - [reach your goal](https://lifestyle.allwomenstalk.com/tips-to-help-you-reach-your-goals/)
 - [how to think outside the box](https://lifestyle.allwomenstalk.com/ways-to-think-outside-the-box/)
-- [10 Things to Try before Youre 40 ...](https://lifestyle.allwomenstalk.com/things-to-try-before-youre-40/)
 - [8 Steps to Create Your Own Personal Retreat ...](https://health.allwomenstalk.com/steps-to-create-your-own-personal-retreat/)
+- [7 Tips on How to Rejuvenate Your Spirit ...](https://health.allwomenstalk.com/tips-on-how-to-rejuvenate-your-spirit/)
 - [9 Changes to Make You Happier.. ...](https://health.allwomenstalk.com/changes-to-make-you-happier/)
 - [techniques to achieve goals](https://lifestyle.allwomenstalk.com/techniques-to-achieve-your-goals/)
 - [7 Foods That Give You Energy ...](https://food.allwomenstalk.com/foods-that-give-you-energy/)

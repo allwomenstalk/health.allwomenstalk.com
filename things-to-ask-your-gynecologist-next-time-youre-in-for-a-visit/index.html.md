@@ -44,16 +44,16 @@ Believe it or not, your doctor wants you to ask them these questions. Talking to
 
 ## Related Posts
 
-- [7 Current and Common Health Problems That Could Be...](https://health.allwomenstalk.com/current-and-common-health-problems-that-could-be-bogging-you-down/)
-- [7 Points to Consider regarding Women and Substance...](https://health.allwomenstalk.com/points-to-consider-regarding-woman-and-substance-abuse/)
-- [7 Marvelous Things to Know about Functional Medici...](https://health.allwomenstalk.com/marvelous-things-to-know-about-functional-medicine/)
-- [7 Important  Things You Should Know about the Pill...](https://health.allwomenstalk.com/important-things-you-should-know-about-the-pill/)
-- [7 Strange Health Facts That Could Predict Your Fut...](https://health.allwomenstalk.com/strange-health-facts-that-could-predict-your-future/)
-- [7 Shocking Human Diseases You Should Know about .....](https://health.allwomenstalk.com/shocking-human-diseases-you-should-know-about/)
-- [7 Doctors Appointments You Need to Make Now ...](https://health.allwomenstalk.com/doctors-appointments-you-need-to-make-now/)
-- [7 Important Facts about Sweat and Your Body ...](https://health.allwomenstalk.com/important-facts-about-sweat-and-your-body/)
-- [7 Things You Need to Know about Earbud Headphones ...](https://lifestyle.allwomenstalk.com/things-you-need-to-know-about-earbud-headphones/)
 - [7 Dangers of Caffeine You Might Not Be Aware of .....](https://health.allwomenstalk.com/dangers-of-caffeine-you-might-not-be-aware-of/)
+- [7 Things You Need to Know about Earbud Headphones ...](https://lifestyle.allwomenstalk.com/things-you-need-to-know-about-earbud-headphones/)
+- [7 Important Facts about Sweat and Your Body ...](https://health.allwomenstalk.com/important-facts-about-sweat-and-your-body/)
+- [7 Points to Consider regarding Women and Substance...](https://health.allwomenstalk.com/points-to-consider-regarding-woman-and-substance-abuse/)
+- [7 Strange Health Facts That Could Predict Your Fut...](https://health.allwomenstalk.com/strange-health-facts-that-could-predict-your-future/)
+- [7 Important  Things You Should Know about the Pill...](https://health.allwomenstalk.com/important-things-you-should-know-about-the-pill/)
+- [7 Shocking Human Diseases You Should Know about .....](https://health.allwomenstalk.com/shocking-human-diseases-you-should-know-about/)
+- [7 Marvelous Things to Know about Functional Medici...](https://health.allwomenstalk.com/marvelous-things-to-know-about-functional-medicine/)
+- [7 Current and Common Health Problems That Could Be...](https://health.allwomenstalk.com/current-and-common-health-problems-that-could-be-bogging-you-down/)
+- [7 Doctors Appointments You Need to Make Now ...](https://health.allwomenstalk.com/doctors-appointments-you-need-to-make-now/)
 - [9 Things to Ask Your Doctor ...](https://health.allwomenstalk.com/9-things-to-ask-your-doctor/)
 - [10 Things about Your Period You Should Know ...](https://allwomenstalk.com/10-things-about-your-period-you-should-know/)
 

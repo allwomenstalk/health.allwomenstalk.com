@@ -70,16 +70,16 @@ Do you think you could cope with a digital detox?
 
 ## Related Posts
 
-- [how to cheer someone up after a bad day](https://inspiration.allwomenstalk.com/ways-to-cheer-up-on-a-bad-day/)
-- [energy zapping](https://health.allwomenstalk.com/things-that-zap-your-energy-on-a-daily-basis/)
-- [things to do to unwind](https://health.allwomenstalk.com/ways-to-unwind-and-relax/)
-- [ways to set the mood](https://love.allwomenstalk.com/paris-in-a-handbasket-quick-tricks-to-help-you-set-the-mood/)
-- [how to get your sanity back](https://health.allwomenstalk.com/steps-to-get-your-sanity-back/)
 - [busters stress](https://health.allwomenstalk.com/effective-stress-busters-everyone-should-know/)
-- [how to be chill af](https://inspiration.allwomenstalk.com/simple-steps-to-be-chill-af/)
-- [how to stay positive during exams](https://teen.allwomenstalk.com/how-to-stay-positive-during-exam-season/)
-- [after christmas blues](https://inspiration.allwomenstalk.com/tips-for-getting-over-the-post-christmas-blues/)
+- [how to cheer someone up after a bad day](https://inspiration.allwomenstalk.com/ways-to-cheer-up-on-a-bad-day/)
+- [things to do to unwind](https://health.allwomenstalk.com/ways-to-unwind-and-relax/)
 - [drained empath quotes](https://inspiration.allwomenstalk.com/an-empaths-guide-to-self-care/)
+- [energy zapping](https://health.allwomenstalk.com/things-that-zap-your-energy-on-a-daily-basis/)
+- [after christmas blues](https://inspiration.allwomenstalk.com/tips-for-getting-over-the-post-christmas-blues/)
+- [how to get your sanity back](https://health.allwomenstalk.com/steps-to-get-your-sanity-back/)
+- [how to be chill af](https://inspiration.allwomenstalk.com/simple-steps-to-be-chill-af/)
+- [ways to set the mood](https://love.allwomenstalk.com/paris-in-a-handbasket-quick-tricks-to-help-you-set-the-mood/)
+- [how to stay positive during exams](https://teen.allwomenstalk.com/how-to-stay-positive-during-exam-season/)
 - [7 Tips on Self-Discipline ...](https://lifestyle.allwomenstalk.com/7-tips-on-self-discipline/)
 - [6 Tips for a Successful Facebook Hiatus ...](https://allwomenstalk.com/6-tips-for-a-successful-facebook-hiatus/)
 

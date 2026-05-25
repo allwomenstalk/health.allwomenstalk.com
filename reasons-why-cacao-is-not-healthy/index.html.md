@@ -44,15 +44,15 @@ Although raw cacao is now promoted as a health food, there are factors that make
 
 ## Related Posts
 
-- [can you put manuka honey in hot water](https://food.allwomenstalk.com/reasons-to-add-honey-to-your-tea/)
-- [friendship benefits](https://health.allwomenstalk.com/health-benefits-of-friendship-you-might-not-know/)
-- [do hemp hearts go bad](https://health.allwomenstalk.com/benefits-of-hemp-seeds-for-detox-and-good-health/)
-- [benefits of homemade smoothies](https://food.allwomenstalk.com/benefits-of-drinking-green-smoothies-for-breakfast/)
-- [benefits of cooking for your dog](https://lifestyle.allwomenstalk.com/ways-cooking-for-your-dogs-can-benefit-their-health/)
-- [what is the importance of salad dressing](https://food.allwomenstalk.com/reasons-to-make-your-own-salad-dressing/)
 - [walking outside benefits](https://fitness.allwomenstalk.com/benefits-of-walking-outside-each-day/)
+- [friendship benefits](https://health.allwomenstalk.com/health-benefits-of-friendship-you-might-not-know/)
+- [can you put manuka honey in hot water](https://food.allwomenstalk.com/reasons-to-add-honey-to-your-tea/)
+- [do hemp hearts go bad](https://health.allwomenstalk.com/benefits-of-hemp-seeds-for-detox-and-good-health/)
 - [benefits of cocoa butter for hair](https://beauty.allwomenstalk.com/cocoa-butter-benefits-you-might-not-know/)
+- [benefits of cooking for your dog](https://lifestyle.allwomenstalk.com/ways-cooking-for-your-dogs-can-benefit-their-health/)
+- [benefits of homemade smoothies](https://food.allwomenstalk.com/benefits-of-drinking-green-smoothies-for-breakfast/)
 - [healthy advantage cat food](https://food.allwomenstalk.com/benefits-to-making-baked-goods-from-scratch/)
+- [what is the importance of salad dressing](https://food.allwomenstalk.com/reasons-to-make-your-own-salad-dressing/)
 - [craving pineapple](https://food.allwomenstalk.com/reasons-you-should-eat-pineapple-all-the-time/)
 - [4 Things That Will Make You Feel Good about Eating...](https://allwomenstalk.com/make-you-feel-good-about-eating-chocolate/)
 - [4 Secret Health Benefits of Four Forbidden Foods ....](https://allwomenstalk.com/the-secret-health-benefits-of-forbidden-foods/)

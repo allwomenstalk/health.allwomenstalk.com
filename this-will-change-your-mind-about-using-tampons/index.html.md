@@ -42,16 +42,16 @@ I made the decision about two years ago to stop using tampons, for all the reaso
 
 ## Related Posts
 
-- [The 7 Biggest Health Questions from around the Wor...](https://health.allwomenstalk.com/the-biggest-health-questions-from-around-the-world/)
-- [unhealthy activities](https://health.allwomenstalk.com/unhealthy-activities-as-dangerous-as-smoking/)
-- [The inside Scoop on the Essential Elements Your Bo...](https://health.allwomenstalk.com/the-low-down-on-the-elements-your-body-needs/)
 - [Skip the Doctor : This Chart Will Tell You Why You...](https://health.allwomenstalk.com/skip-the-doctor-this-chart-will-tell-you-why-youre-sick/)
-- [Inventive New Ways Your Phone is Probably Wrecking...](https://health.allwomenstalk.com/inventive-new-ways-your-phone-is-probably-wrecking-your-health/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/fixes-for-common-period-problems/)
-- [Myths about Birth Control Pills That Sexually Acti...](https://health.allwomenstalk.com/myths-about-birth-control-pills-that-sexually-active-women-should-know/)
-- [brushing teeth wrong](https://health.allwomenstalk.com/ways-youve-been-brushing-your-teeth-wrong/)
-- [Things You Should Know about Female Viagra ...](https://health.allwomenstalk.com/things-you-should-know-about-female-viagra/)
 - [These Things Are Actually Making Your Period Worse...](https://health.allwomenstalk.com/these-things-are-actually-making-your-period-worse/)
+- [Myths about Birth Control Pills That Sexually Acti...](https://health.allwomenstalk.com/myths-about-birth-control-pills-that-sexually-active-women-should-know/)
+- [Things You Should Know about Female Viagra ...](https://health.allwomenstalk.com/things-you-should-know-about-female-viagra/)
+- [Inventive New Ways Your Phone is Probably Wrecking...](https://health.allwomenstalk.com/inventive-new-ways-your-phone-is-probably-wrecking-your-health/)
+- [The inside Scoop on the Essential Elements Your Bo...](https://health.allwomenstalk.com/the-low-down-on-the-elements-your-body-needs/)
+- [The 7 Biggest Health Questions from around the Wor...](https://health.allwomenstalk.com/the-biggest-health-questions-from-around-the-world/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/fixes-for-common-period-problems/)
+- [brushing teeth wrong](https://health.allwomenstalk.com/ways-youve-been-brushing-your-teeth-wrong/)
+- [unhealthy activities](https://health.allwomenstalk.com/unhealthy-activities-as-dangerous-as-smoking/)
 - [Sly Tricks for Keeping Your Period a Secret ...](https://health.allwomenstalk.com/ways-to-keep-your-period-a-secret/)
 - [What These Women Can do with a Soccer Ball Will Bl...](https://inspiration.allwomenstalk.com/what-these-women-can-do-with-a-soccer-ball-will-blow-your-mind/)
 

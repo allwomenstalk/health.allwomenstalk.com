@@ -38,16 +38,16 @@ This is a podcast in which the two hosts interview a mystery guest each week, de
 
 ## Related Posts
 
-- [Dont Make These Decisions Now Cos Youll Only Regre...](https://inspiration.allwomenstalk.com/dont-make-these-decisions-now-cos-youll-only-regret-them-in-ten-years/)
-- [Unique Genetic Traits That We Inherit ...](https://health.allwomenstalk.com/unique-genetic-traits-that-we-inherit/)
-- [5 Lessons to Learn about Life when Youre in Your 2...](https://inspiration.allwomenstalk.com/lessons-to-learn-about-life-when-youre-in-your-20s/)
-- [5 Adulthood Lessons Youll Only Learn  after Gradua...](https://inspiration.allwomenstalk.com/adulthood-lessons-youll-only-learn-after-graduation/)
-- [Life is a Gift ...](https://inspiration.allwomenstalk.com/life-is-a-gift/)
-- [5 Things Getting in the Way of Your Happiness ...](https://inspiration.allwomenstalk.com/things-that-get-in-the-way-of-happiness/)
-- [5 Magical Lessons to Learn  from Dad  ...](https://inspiration.allwomenstalk.com/magical-lessons-to-learn-from-dad/)
 - [Inspirational Things You Learn  as You Grow up ...](https://inspiration.allwomenstalk.com/things-you-learn-as-you-grow/)
-- [Words Everyone Needs to Hear ...](https://inspiration.allwomenstalk.com/words-everyone-needs-to-hear-2/)
+- [5 Magical Lessons to Learn  from Dad  ...](https://inspiration.allwomenstalk.com/magical-lessons-to-learn-from-dad/)
+- [Unique Genetic Traits That We Inherit ...](https://health.allwomenstalk.com/unique-genetic-traits-that-we-inherit/)
+- [5 Things Getting in the Way of Your Happiness ...](https://inspiration.allwomenstalk.com/things-that-get-in-the-way-of-happiness/)
+- [Life is a Gift ...](https://inspiration.allwomenstalk.com/life-is-a-gift/)
+- [5 Lessons to Learn about Life when Youre in Your 2...](https://inspiration.allwomenstalk.com/lessons-to-learn-about-life-when-youre-in-your-20s/)
+- [Dont Make These Decisions Now Cos Youll Only Regre...](https://inspiration.allwomenstalk.com/dont-make-these-decisions-now-cos-youll-only-regret-them-in-ten-years/)
 - [adulthood things](https://inspiration.allwomenstalk.com/things-you-should-know-about-adulthood/)
+- [Words Everyone Needs to Hear ...](https://inspiration.allwomenstalk.com/words-everyone-needs-to-hear-2/)
+- [5 Adulthood Lessons Youll Only Learn  after Gradua...](https://inspiration.allwomenstalk.com/adulthood-lessons-youll-only-learn-after-graduation/)
 - [7 Ways You Can Help Bust the Stigma Surrounding Me...](https://health.allwomenstalk.com/ways-you-can-help-bust-the-stigma-surrounding-mental-disorders/)
 - [9 Popular Myths about Mental Illness That Arent Tr...](https://health.allwomenstalk.com/popular-myths-about-mental-illness-that-arent-true/)
 

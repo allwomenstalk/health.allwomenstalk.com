@@ -36,16 +36,16 @@ If you don’t have time for dinner and are heading straight to the pub, make su
 
 ## Related Posts
 
-- [how to burn calories in your sleep](https://weightloss.allwomenstalk.com/how-to-lose-weight-in-your-sleep/)
-- [how to have more free time](https://allwomenstalk.com/12-ways-to-make-more-free-time-during-the-day/)
 - [Top Five Alarm Clocks to Ensure You Dont Sleep in](https://allwomenstalk.com/top-five-alarm-clocks-to-ensure-you-dont-sleep-in/)
-- [why you should make your bed every morning](https://lifestyle.allwomenstalk.com/why-you-should-make-your-bed-every-morning/)
-- [tricks to get out of bed](https://lifestyle.allwomenstalk.com/tips-for-getting-out-of-bed-in-60-seconds/)
 - [calming bedroom](https://allwomenstalk.com/ways-create-calming-bedroom/)
+- [how to burn calories in your sleep](https://weightloss.allwomenstalk.com/how-to-lose-weight-in-your-sleep/)
 - [ovaltine and sleep](https://food.allwomenstalk.com/best-drinks-for-when-you-cant-sleep/)
+- [google home sleep sounds](https://parenting.allwomenstalk.com/taotronics-white-noise-machine/)
 - [habits of organized person](https://lifestyle.allwomenstalk.com/nightly-habits-of-organized-people/)
 - [The Importance of an Afternoon Nap ...](https://allwomenstalk.com/the-importance-of-an-afternoon-nap/)
-- [google home sleep sounds](https://parenting.allwomenstalk.com/taotronics-white-noise-machine/)
+- [tricks to get out of bed](https://lifestyle.allwomenstalk.com/tips-for-getting-out-of-bed-in-60-seconds/)
+- [how to have more free time](https://allwomenstalk.com/12-ways-to-make-more-free-time-during-the-day/)
+- [why you should make your bed every morning](https://lifestyle.allwomenstalk.com/why-you-should-make-your-bed-every-morning/)
 - [Cures for a Hangover ...](https://allwomenstalk.com/cures-for-a-hangover/)
 - [8 Remedies for Hangovers ...](https://health.allwomenstalk.com/remedies-for-hangovers/)
 

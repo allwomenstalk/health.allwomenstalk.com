@@ -44,16 +44,16 @@ Top Photo Credit: [Mercola Natural Health](https://www.flickr.com/photos/drmerco
 
 ## Related Posts
 
-- [made redundant](https://lifestyle.allwomenstalk.com/signs-you-will-be-made-redundant/)
-- [7 Signs Contacts Might Not Be for You ...](https://health.allwomenstalk.com/7-signs-contacts-might-not-be-for-you/)
-- [7 Easy to Remember Signs You Might Be Ovulating .....](https://health.allwomenstalk.com/easy-to-remember-signs-you-might-be-ovulating/)
 - [7 Signs Your Memorys Not What It Once Was ...](https://health.allwomenstalk.com/7-signs-your-memorys-not-what-it-once-was/)
-- [being cheap](https://lifestyle.allwomenstalk.com/7-signs-that-you-are-a-cheapskate/)
 - [8 Signs of Breast Cancer ...](https://health.allwomenstalk.com/8-signs-of-breast-cancer/)
-- [7 Signs That You Need to Find a New Salon ...](https://hair.allwomenstalk.com/signs-that-you-need-to-find-a-new-salon/)
-- [7 Signs Youre in Good Health ...](https://health.allwomenstalk.com/7-signs-youre-in-good-health/)
-- [signs shes a ho](https://love.allwomenstalk.com/signs-you-might-be-a-slut/)
+- [7 Signs Contacts Might Not Be for You ...](https://health.allwomenstalk.com/7-signs-contacts-might-not-be-for-you/)
 - [7 signs of adhd](https://health.allwomenstalk.com/7-signs-of-adhd/)
+- [being cheap](https://lifestyle.allwomenstalk.com/7-signs-that-you-are-a-cheapskate/)
+- [7 Signs Youre in Good Health ...](https://health.allwomenstalk.com/7-signs-youre-in-good-health/)
+- [7 Easy to Remember Signs You Might Be Ovulating .....](https://health.allwomenstalk.com/easy-to-remember-signs-you-might-be-ovulating/)
+- [made redundant](https://lifestyle.allwomenstalk.com/signs-you-will-be-made-redundant/)
+- [7 Signs That You Need to Find a New Salon ...](https://hair.allwomenstalk.com/signs-that-you-need-to-find-a-new-salon/)
+- [signs shes a ho](https://love.allwomenstalk.com/signs-you-might-be-a-slut/)
 - [8 Signs You Have an Overeating Problem ...](https://allwomenstalk.com/8-signs-you-have-an-overeating-problem/)
 - [7 Signs You Have an Addiction Problem ...](https://allwomenstalk.com/7-signs-you-have-an-addiction-problem/)
 

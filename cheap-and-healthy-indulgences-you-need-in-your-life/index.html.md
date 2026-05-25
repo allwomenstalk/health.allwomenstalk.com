@@ -50,16 +50,16 @@ There are many healthy indulgences that we can treat ourselves to without having
 
 ## Related Posts
 
-- [8 Foods to Help You Build Lean Muscle ...](https://vityle.com/foods-to-help-you-build-lean-muscle/)
-- [8 Superfoods to Lower Your Stress Levels ...](https://mindfulness.allwomenstalk.com/superfoods-to-lower-your-stress-levels/)
-- [9 Hidden Sources of Gluten in Processed Foods ...](https://vityle.com/hidden-sources-of-gluten-in-processed-foods/)
-- [7 Weird Healthy Foods You Should Be Eating ...](https://diet.allwomenstalk.com/weird-healthy-foods-you-should-be-eating/)
+- [7 Foods That Help Fight Stress ...](https://health.allwomenstalk.com/foods-that-help-fight-stress/)
 - [10 Foods That Fight Allergies ...](https://health.allwomenstalk.com/foods-that-fight-allergies/)
+- [7 Weird Healthy Foods You Should Be Eating ...](https://diet.allwomenstalk.com/weird-healthy-foods-you-should-be-eating/)
+- [7 Foods That Decrease Bloating ...](https://weightloss.allwomenstalk.com/foods-that-decrease-bloating/)
 - [7 Wonder Berries That Are Great for Your Health .....](https://diet.allwomenstalk.com/wonder-berries-that-are-great-for-your-health/)
 - [ditch processed food](https://health.allwomenstalk.com/reasons-to-ditch-processed-food-for-good/)
-- [7 Foods That Help Fight Stress ...](https://health.allwomenstalk.com/foods-that-help-fight-stress/)
+- [9 Hidden Sources of Gluten in Processed Foods ...](https://vityle.com/hidden-sources-of-gluten-in-processed-foods/)
+- [8 Superfoods to Lower Your Stress Levels ...](https://mindfulness.allwomenstalk.com/superfoods-to-lower-your-stress-levels/)
+- [8 Foods to Help You Build Lean Muscle ...](https://vityle.com/foods-to-help-you-build-lean-muscle/)
 - [8 Wonderful Snacks for a Work out ...](https://health.allwomenstalk.com/wonderful-snacks-for-a-work-out/)
-- [7 Foods That Decrease Bloating ...](https://weightloss.allwomenstalk.com/foods-that-decrease-bloating/)
 - [9 Healthy  Fun Ways to Relax ...](https://health.allwomenstalk.com/healthy-fun-ways-to-relax/)
 - [10 Things That Will Make You Happy ...](https://allwomenstalk.com/10-things-that-will-make-you-happy/)
 

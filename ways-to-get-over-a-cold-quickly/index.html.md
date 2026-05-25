@@ -92,15 +92,15 @@ Always wash your hands.
 
 ## Related Posts
 
-- [is castor oil good for sunburn](https://skincare.allwomenstalk.com/unusual-but-natural-ways-to-soothe-your-sunburn/)
-- [Ways to Avoid a Yeast Infection ...](https://health.allwomenstalk.com/ways-to-avoid-a-yeast-infection/)
 - [6 Natural Ways to Balance Your Hormones ...](https://health.allwomenstalk.com/natural-ways-to-balance-hormones/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/aromatherapy-for-common-ailments/)
-- [detox foot soak diy](https://health.allwomenstalk.com/diy-detoxing-foot-soak/)
-- [Heres How to Make Your Period Suck Less ...](https://health.allwomenstalk.com/heres-how-to-make-your-period-suck-less/)
-- [5 Easy Ways to Get Rid of Annoying Stomach Bloatin...](https://health.allwomenstalk.com/ways-to-get-rid-of-stomach-bloat/)
-- [what is good for bad breath](https://diy.allwomenstalk.com/video-guide-on-how-to-cure-bad-breath/)
 - [4 Easy Ways to Mask Bug Bites ...](https://skincare.allwomenstalk.com/easy-ways-to-mask-bug-bites/)
+- [detox foot soak diy](https://health.allwomenstalk.com/diy-detoxing-foot-soak/)
+- [5 Easy Ways to Get Rid of Annoying Stomach Bloatin...](https://health.allwomenstalk.com/ways-to-get-rid-of-stomach-bloat/)
+- [Ways to Avoid a Yeast Infection ...](https://health.allwomenstalk.com/ways-to-avoid-a-yeast-infection/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/aromatherapy-for-common-ailments/)
+- [Heres How to Make Your Period Suck Less ...](https://health.allwomenstalk.com/heres-how-to-make-your-period-suck-less/)
+- [what is good for bad breath](https://diy.allwomenstalk.com/video-guide-on-how-to-cure-bad-breath/)
+- [is castor oil good for sunburn](https://skincare.allwomenstalk.com/unusual-but-natural-ways-to-soothe-your-sunburn/)
 - [Natural Ways to Get Rid of Cellulite ...](https://skincare.allwomenstalk.com/natural-ways-to-get-rid-of-cellulite/)
 - [7 Tips for Kicking Fall Colds ...](https://health.allwomenstalk.com/tips-for-kicking-fall-colds/)
 - [7 Unbelievably Simple but Highly Effective Ways to...](https://health.allwomenstalk.com/unbelievably-simple-but-highly-effective-ways-to-treat-a-cold/)

@@ -44,14 +44,14 @@ With these 6 tips you'll maintain your health and live a very long and productiv
 
 - [A Girls Guide for How to Be Lucky ...](https://inspiration.allwomenstalk.com/how-to-be-lucky/)
 - [motivation for girls](https://inspiration.allwomenstalk.com/things-that-kill-your-motivation/)
-- [Greatest Ways to Boost Your Self Esteem for Girls ...](https://inspiration.allwomenstalk.com/do-you-know-your-self-worth/)
 - [Inspiration to Follow Your Passion for Girls Who A...](https://inspiration.allwomenstalk.com/inspiration-to-follow-your-passion/)
 - [things about karma](https://lifestyle.allwomenstalk.com/things-about-karma-you-didnt-know/)
-- [3 Easy Ways to Let Go of Regret for Girls Who Hang...](https://inspiration.allwomenstalk.com/ways-to-let-go-of-regret/)
-- [benefits of restorative yoga](https://health.allwomenstalk.com/benefits-of-restorative-yoga/)
-- [lost passion in life](https://inspiration.allwomenstalk.com/how-to-find-your-passion-in-life-2/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/one-minute-habits/)
+- [3 Easy Ways to Let Go of Regret for Girls Who Hang...](https://inspiration.allwomenstalk.com/ways-to-let-go-of-regret/)
+- [lost passion in life](https://inspiration.allwomenstalk.com/how-to-find-your-passion-in-life-2/)
+- [Greatest Ways to Boost Your Self Esteem for Girls ...](https://inspiration.allwomenstalk.com/do-you-know-your-self-worth/)
 - [morning habits to change your life](https://lifestyle.allwomenstalk.com/morning-habits-to-change-your-life/)
+- [benefits of restorative yoga](https://health.allwomenstalk.com/benefits-of-restorative-yoga/)
 - [10 Tips to Stay Healthy in Your Twenties ...](https://health.allwomenstalk.com/10-tips-to-stay-healthy-in-your-twenties/)
 - [7 Tips to Maintain Good Health ...](https://health.allwomenstalk.com/tips-to-maintain-good-health/)
 

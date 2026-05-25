@@ -116,16 +116,16 @@ Which of these foods do you love eating? Which ones do you plan to try?
 
 ## Related Posts
 
-- [Foods to Eat if You Want to Stay Productive at Wor...](https://diet.allwomenstalk.com/watch-what-you-eat-during-the-day-to-boost-your-productivity-at-work/)
-- [Reenergize Yourself with These Simple Lunches ...](https://food.allwomenstalk.com/reenergize-yourself-with-these-simple-lunches/)
-- [Heres Where to Buy Gluten-Free Foods ...](https://food.allwomenstalk.com/heres-where-to-buy-gluten-free-foods/)
-- [These Hearty Salads Will Fill You up at Dinnertime...](https://food.allwomenstalk.com/these-hearty-salads-will-fill-you-up-at-dinnertime/)
 - [Watch out These 7 Snacks Have More Calories than Y...](https://food.allwomenstalk.com/watch-out-these-snacks-have-more-calories-than-your-lunch/)
-- [10 Things  a Fitness Trainer Wouldnt Ever Think ab...](https://fitene.com/a-hot-fitness-trainer-would-never-eat-these-foods/)
 - [You Wont Believe What Big Name Food Companies Are ...](https://food.allwomenstalk.com/you-wont-believe-what-big-name-food-companies-are-doing-now/)
 - [How Long do Certain Foods Last before They Go Bad](https://food.allwomenstalk.com/how-long-do-certain-foods-last-before-they-go-bad/)
+- [Reenergize Yourself with These Simple Lunches ...](https://food.allwomenstalk.com/reenergize-yourself-with-these-simple-lunches/)
 - [Swaps to Try if You Instantly  Want Healthier Meal...](https://diet.allwomenstalk.com/these-swaps-will-make-your-meals-instantly-healthier/)
 - [7 Portable Snacks to Keep in Your Pocketbook ...](https://food.allwomenstalk.com/portable-snacks-to-keep-in-your-pocketbook/)
+- [These Hearty Salads Will Fill You up at Dinnertime...](https://food.allwomenstalk.com/these-hearty-salads-will-fill-you-up-at-dinnertime/)
+- [10 Things  a Fitness Trainer Wouldnt Ever Think ab...](https://fitene.com/a-hot-fitness-trainer-would-never-eat-these-foods/)
+- [Foods to Eat if You Want to Stay Productive at Wor...](https://diet.allwomenstalk.com/watch-what-you-eat-during-the-day-to-boost-your-productivity-at-work/)
+- [Heres Where to Buy Gluten-Free Foods ...](https://food.allwomenstalk.com/heres-where-to-buy-gluten-free-foods/)
 - [7 Best Foods for Stress Relief ...](https://allwomenstalk.com/7-best-foods-for-stress-relief/)
 - [8 Foods That Will Lower Your Blood Pressure ...](https://allwomenstalk.com/8-foods-that-will-lower-your-blood-pressure/)
 

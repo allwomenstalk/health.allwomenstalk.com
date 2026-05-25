@@ -42,16 +42,16 @@ What’s your favorite tisane?
 
 ## Related Posts
 
-- [Girls Who Love Coconut Water Will Adore These Reci...](https://food.allwomenstalk.com/girls-who-love-coconut-water-will-adore-these-recipes/)
-- [Summer Was Made for These 7 Boozy Drinks ...](https://food.allwomenstalk.com/summer-was-made-for-these-boozy-drinks/)
-- [Holiday Mocktails for Girls Who Dont Drink Alcohol...](https://food.allwomenstalk.com/holiday-mocktails-for-girls-who-dont-drink-alcohol/)
-- [Drink Your Way to Health with These Delicious Infu...](https://health.allwomenstalk.com/drink-your-way-to-health-with-these-delicious-infused-waters/)
-- [Yummy Drinks That Will Also Boost Your Metabolism ...](https://food.allwomenstalk.com/yummy-drinks-that-will-also-boost-your-metabolism-for-a-healthier-you/)
-- [The Starbucks Holiday Cups Are Officially Here and...](https://food.allwomenstalk.com/the-starbucks-holiday-cups-are-officially-here-and-there-are-of-them/)
-- [Motivational Water Bottles for Girls Who Hate to D...](https://health.allwomenstalk.com/motivational-water-bottles-for-girls-who-hate-to-drink/)
-- [Low Cal Cocktails for Ladies Losing Weight without...](https://weightloss.allwomenstalk.com/low-cal-cocktails-for-girls-who-never-miss-happy-hour/)
-- [coffee hacks](https://food.allwomenstalk.com/coffee-hacks-every-morning-junkie-needs/)
 - [Tea Recipes for Girls Who Want to Detox ...](https://health.allwomenstalk.com/tea-recipes-for-girls-who-want-to-detox/)
+- [coffee hacks](https://food.allwomenstalk.com/coffee-hacks-every-morning-junkie-needs/)
+- [Low Cal Cocktails for Ladies Losing Weight without...](https://weightloss.allwomenstalk.com/low-cal-cocktails-for-girls-who-never-miss-happy-hour/)
+- [Drink Your Way to Health with These Delicious Infu...](https://health.allwomenstalk.com/drink-your-way-to-health-with-these-delicious-infused-waters/)
+- [Summer Was Made for These 7 Boozy Drinks ...](https://food.allwomenstalk.com/summer-was-made-for-these-boozy-drinks/)
+- [The Starbucks Holiday Cups Are Officially Here and...](https://food.allwomenstalk.com/the-starbucks-holiday-cups-are-officially-here-and-there-are-of-them/)
+- [Holiday Mocktails for Girls Who Dont Drink Alcohol...](https://food.allwomenstalk.com/holiday-mocktails-for-girls-who-dont-drink-alcohol/)
+- [Motivational Water Bottles for Girls Who Hate to D...](https://health.allwomenstalk.com/motivational-water-bottles-for-girls-who-hate-to-drink/)
+- [Yummy Drinks That Will Also Boost Your Metabolism ...](https://food.allwomenstalk.com/yummy-drinks-that-will-also-boost-your-metabolism-for-a-healthier-you/)
+- [Girls Who Love Coconut Water Will Adore These Reci...](https://food.allwomenstalk.com/girls-who-love-coconut-water-will-adore-these-recipes/)
 - [5 Great Herbs for Teas ...](https://gardening.allwomenstalk.com/great-herbs-for-teas/)
 - [8 Tea Infusions You Have to Try ...](https://allwomenstalk.com/8-tea-infusions-you-have-to-try/)
 

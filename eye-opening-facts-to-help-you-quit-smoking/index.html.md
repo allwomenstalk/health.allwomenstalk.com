@@ -46,16 +46,16 @@ Since Allen Carr released his ‘magic book’ in 1983 he has helped free thousa
 
 ## Related Posts
 
-- [9 Interesting Things to Know about Your Hands ...](https://health.allwomenstalk.com/interesting-things-to-know-about-your-hands/)
-- [7 Myths and Facts about HIV and AIDS ...](https://health.allwomenstalk.com/myths-and-facts-about-hiv-and-aids/)
-- [7 Amazing Things You Didnt Know about Orchids ...](https://gardening.allwomenstalk.com/amazing-things-you-didnt-know-about-orchids/)
-- [aluminum foil in toilet tank myth](https://travel.allwomenstalk.com/urban-myths-about-flying-debunked-the-truth/)
-- [8 Fun Facts about Chocolate ...](https://eatial.com/fun-facts-about-chocolate/)
 - [facts on pediatric cancer](https://parenting.allwomenstalk.com/facts-about-pediatric-cancer/)
-- [7 Things You Never Knew about Where Your Groceries...](https://food.allwomenstalk.com/things-you-never-knew-about-where-your-groceries-come-from/)
+- [9 Interesting Things to Know about Your Hands ...](https://health.allwomenstalk.com/interesting-things-to-know-about-your-hands/)
 - [7 Important Facts about Alcohol ...](https://health.allwomenstalk.com/important-facts-about-alcohol/)
-- [20 Bizarre and Interesting Facts ...](https://lifestyle.allwomenstalk.com/bizarre-and-interesting-facts/)
+- [7 Amazing Things You Didnt Know about Orchids ...](https://gardening.allwomenstalk.com/amazing-things-you-didnt-know-about-orchids/)
 - [which of the following is not one of the four pill...](https://travel.allwomenstalk.com/facts-about-the-moon/)
+- [8 Fun Facts about Chocolate ...](https://eatial.com/fun-facts-about-chocolate/)
+- [7 Myths and Facts about HIV and AIDS ...](https://health.allwomenstalk.com/myths-and-facts-about-hiv-and-aids/)
+- [20 Bizarre and Interesting Facts ...](https://lifestyle.allwomenstalk.com/bizarre-and-interesting-facts/)
+- [7 Things You Never Knew about Where Your Groceries...](https://food.allwomenstalk.com/things-you-never-knew-about-where-your-groceries-come-from/)
+- [aluminum foil in toilet tank myth](https://travel.allwomenstalk.com/urban-myths-about-flying-debunked-the-truth/)
 - [7 Tips to Help You Stop Snoring ...](https://allwomenstalk.com/7-tips-to-help-you-stop-snoring/)
 - [7 Ways to Stop Alcohol Abuse ...](https://allwomenstalk.com/7-ways-to-stop-alcohol-abuse/)
 

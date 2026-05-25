@@ -46,16 +46,16 @@ Meditation is an excellent way of calming your mind - something we all need to d
 
 ## Related Posts
 
-- [7 Ways to Wind down after Finals ...](https://lifestyle.allwomenstalk.com/ways-to-wind-down-after-finals/)
-- [at ease uncomfortable](https://lifestyle.allwomenstalk.com/things-you-can-do-to-ease-uncomfortable-situations/)
-- [unexpected change examples](https://lifestyle.allwomenstalk.com/ways-to-cope-with-unexpected-changes/)
 - [ways to fight depression](https://health.allwomenstalk.com/ways-to-fight-depression-naturally/)
+- [7 Ways to Wind down after Finals ...](https://lifestyle.allwomenstalk.com/ways-to-wind-down-after-finals/)
+- [unexpected change examples](https://lifestyle.allwomenstalk.com/ways-to-cope-with-unexpected-changes/)
 - [how to beat monday morning blues](https://lifestyle.allwomenstalk.com/ways-to-beat-the-monday-blues/)
-- [difficult day](https://lifestyle.allwomenstalk.com/techniques-to-help-you-get-through-a-difficult-day/)
-- [de stressing after work](https://lifestyle.allwomenstalk.com/ways-to-de-stress-after-work/)
 - [color and mood](https://lifestyle.allwomenstalk.com/colors-and-how-they-affect-your-mood/)
+- [de stressing after work](https://lifestyle.allwomenstalk.com/ways-to-de-stress-after-work/)
 - [activities for toddler with broken leg](https://health.allwomenstalk.com/ways-to-keep-your-sanity-while-recovering-from-a-broken-leg/)
+- [at ease uncomfortable](https://lifestyle.allwomenstalk.com/things-you-can-do-to-ease-uncomfortable-situations/)
 - [unwind from the day](https://lifestyle.allwomenstalk.com/ways-to-unwind-at-the-end-of-the-day/)
+- [difficult day](https://lifestyle.allwomenstalk.com/techniques-to-help-you-get-through-a-difficult-day/)
 - [5 Tips on Relaxing before Meditation ...](https://twilight.allwomenstalk.com/5-tips-on-relaxing-before-meditation/)
 - [10 Ways to Relax ...](https://allwomenstalk.com/10-ways-to-relax/)
 

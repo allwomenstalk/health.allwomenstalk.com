@@ -44,16 +44,16 @@ There are so many important facts to know about lupus. These facts cover some of
 
 ## Related Posts
 
-- [brotp mean](https://movies.allwomenstalk.com/fan-terms-that-you-may-not-know/)
-- [simba getting thrown off cliff gif](https://movies.allwomenstalk.com/fun-facts-about-disneys-the-lion-king-you-didnt-know/)
-- [antioxidant facts](https://health.allwomenstalk.com/surprising-but-interesting-facts-about-antioxidants/)
 - [fleagram season 4](https://movies.allwomenstalk.com/surprising-facts-about-netflix-that-you-didnt-know/)
-- [why do irish dancers dance with their arms straigh...](https://fitness.allwomenstalk.com/fun-facts-about-irish-dancing/)
-- [things that leave you speechless](https://lifestyle.allwomenstalk.com/amazing-random-facts-that-will-leave-you-speechless/)
-- [introverts facts](https://lifestyle.allwomenstalk.com/extremely-important-facts-about-introverts/)
 - [grapefruit facts](https://food.allwomenstalk.com/facts-about-grapefruits-that-you-should-know/)
+- [introverts facts](https://lifestyle.allwomenstalk.com/extremely-important-facts-about-introverts/)
+- [things that leave you speechless](https://lifestyle.allwomenstalk.com/amazing-random-facts-that-will-leave-you-speechless/)
+- [antioxidant facts](https://health.allwomenstalk.com/surprising-but-interesting-facts-about-antioxidants/)
+- [why do irish dancers dance with their arms straigh...](https://fitness.allwomenstalk.com/fun-facts-about-irish-dancing/)
+- [brotp mean](https://movies.allwomenstalk.com/fan-terms-that-you-may-not-know/)
 - [11 fun facts about tulips](https://travel.allwomenstalk.com/facts-about-disney-parks-that-you-probably-didnt-know/)
 - [emma watson fun facts](https://movies.allwomenstalk.com/fun-facts-about-the-harry-potter-cast/)
+- [simba getting thrown off cliff gif](https://movies.allwomenstalk.com/fun-facts-about-disneys-the-lion-king-you-didnt-know/)
 - [5 Facts on Salvia You Did Not Know ...](https://gardening.allwomenstalk.com/5-facts-on-salvia/)
 - [8 Rare Diseases Youve Probably Not Heard of ...](https://health.allwomenstalk.com/8-rare-diseases-youve-probably-not-heard-of/)
 

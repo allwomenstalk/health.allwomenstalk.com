@@ -47,16 +47,16 @@ _ift.org_
 
 ## Related Posts
 
-- [Period Facts That You Might Not Know Yet ...](https://health.allwomenstalk.com/period-facts-that-you-might-not-know-yet/)
-- [7 Common Reasons You May Be Suffering from Vaginal...](https://health.allwomenstalk.com/common-causes-of-vaginal-itchiness/)
-- [7 Mistakes to Avoid Making at the Gyno ...](https://health.allwomenstalk.com/mistakes-to-avoid-making-at-the-gyno/)
-- [Irregular Periods and Their Causes ...](https://health.allwomenstalk.com/irregular-periods-and-their-causes/)
+- [Hold the Phone How Your Android or IPhone Could Be...](https://gadgets.allwomenstalk.com/hold-the-phone-how-your-android-or-iphone-could-be-hurting-your-health/)
 - [The Lowdown on Toxic Shock Syndrome ...](https://health.allwomenstalk.com/the-lowdown-on-toxic-shock-syndrome/)
-- [7 Things Every Woman Should Know about Her Period ...](https://health.allwomenstalk.com/things-every-woman-should-know-about-her-period/)
 - [Sore Boobs These 7 Things Could Be the Cause ...](https://health.allwomenstalk.com/sore-boobs-these-things-could-be-the-cause/)
 - [8 Unusual Psychological Disorders No One Really Kn...](https://mindfulness.allwomenstalk.com/unusual-psychological-disorders-no-one-really-knows-about/)
-- [Hold the Phone How Your Android or IPhone Could Be...](https://gadgets.allwomenstalk.com/hold-the-phone-how-your-android-or-iphone-could-be-hurting-your-health/)
+- [Irregular Periods and Their Causes ...](https://health.allwomenstalk.com/irregular-periods-and-their-causes/)
+- [7 Common Reasons You May Be Suffering from Vaginal...](https://health.allwomenstalk.com/common-causes-of-vaginal-itchiness/)
+- [7 Things Every Woman Should Know about Her Period ...](https://health.allwomenstalk.com/things-every-woman-should-know-about-her-period/)
 - [What Causes Your Period to Slow or Stop Completely](https://health.allwomenstalk.com/what-causes-your-period-to-slow-or-stop-completely/)
+- [7 Mistakes to Avoid Making at the Gyno ...](https://health.allwomenstalk.com/mistakes-to-avoid-making-at-the-gyno/)
+- [Period Facts That You Might Not Know Yet ...](https://health.allwomenstalk.com/period-facts-that-you-might-not-know-yet/)
 - [Important Facts about Cat Food You Need to Know .....](https://allwomenstalk.com/important-facts-about-cat-food-you-need-to-know/)
 - [10 Facts about Fiber You Should Know ...](https://allwomenstalk.com/10-facts-about-fiber-you-should-know/)
 

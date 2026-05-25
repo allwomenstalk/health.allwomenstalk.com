@@ -42,16 +42,16 @@ See? Not having perfect vision doesn’t have to be ALL bad! But surely, you alr
 
 ## Related Posts
 
-- [reasons to stay fit](https://weightloss.allwomenstalk.com/reasons-to-stay-in-shape/)
-- [7 Reasons to Visit Slovenia ...](https://travel.allwomenstalk.com/reasons-to-visit-slovenia/)
-- [7 Reasons to Move to Brooklyn ...](https://travel.allwomenstalk.com/reasons-to-move-to-brooklyn/)
-- [how to raise a kid with 3 languages](https://parenting.allwomenstalk.com/reasons-to-raise-bilingual-children/)
 - [7 Reasons Why Its Okay to Be Addicted to Social Me...](https://lifestyle.allwomenstalk.com/reasons-why-its-okay-to-be-addicted-to-social-media/)
-- [8 Reasons to Love Who You Are ...](https://love.allwomenstalk.com/reasons-to-love-who-you-are/)
+- [7 Important Reasons to Be Fit and Healthy ...](https://health.allwomenstalk.com/reasons-to-be-fit/)
 - [7 Inspiring Reasons to Shop at a Farmers Market .....](https://food.allwomenstalk.com/inspiring-reasons-to-shop-at-a-farmers-market/)
 - [becoming a stay-at-home dad](https://parenting.allwomenstalk.com/reasons-to-be-a-stay-at-home-dad/)
-- [7 Important Reasons to Be Fit and Healthy ...](https://health.allwomenstalk.com/reasons-to-be-fit/)
+- [reasons to stay fit](https://weightloss.allwomenstalk.com/reasons-to-stay-in-shape/)
+- [how to raise a kid with 3 languages](https://parenting.allwomenstalk.com/reasons-to-raise-bilingual-children/)
+- [8 Reasons to Love Who You Are ...](https://love.allwomenstalk.com/reasons-to-love-who-you-are/)
+- [7 Reasons to Move to Brooklyn ...](https://travel.allwomenstalk.com/reasons-to-move-to-brooklyn/)
 - [7 Amazing Reasons to Have a Massage Today ...](https://health.allwomenstalk.com/amazing-reasons-to-have-a-massage-today/)
+- [7 Reasons to Visit Slovenia ...](https://travel.allwomenstalk.com/reasons-to-visit-slovenia/)
 - [7 Reasons to Get an Eye Examination ...](https://health.allwomenstalk.com/reasons-to-get-an-eye-examination/)
 - [7 Benefits of Being Disorganised ...](https://lifestyle.allwomenstalk.com/benefits-of-being-disorganised/)
 

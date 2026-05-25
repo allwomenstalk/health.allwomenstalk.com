@@ -45,16 +45,16 @@ Most likely, you won’t be able to easily pinpoint when you’ve hit perimenopa
 
 ## Related Posts
 
+- [7 Things You Should Know about Being an Organ Dono...](https://health.allwomenstalk.com/things-you-should-know-about-being-an-organ-donor/)
+- [13 Things You Need to Know about the FODMAP Diet f...](https://health.allwomenstalk.com/things-you-need-to-know-about-the-fodmap-diet-for-ibs/)
 - [7 Common Myths about Older Adults You Should Know ...](https://lifestyle.allwomenstalk.com/common-myths-about-older-adults-you-should-know/)
 - [9 Complementary Therapies Introduced and Explained...](https://health.allwomenstalk.com/complementary-therapies-introduced-and-explained/)
-- [9 Incredible Facts about the Health Hazards of Smo...](https://health.allwomenstalk.com/incredible-facts-about-the-health-hazards-of-smoking-cigarettes/)
 - [7 Crucial Things Every Woman Should Know about Men...](https://health.allwomenstalk.com/crucial-things-every-woman-should-know-about-menopause/)
-- [13 Things You Need to Know about the FODMAP Diet f...](https://health.allwomenstalk.com/things-you-need-to-know-about-the-fodmap-diet-for-ibs/)
-- [7 Things You Should Know about Being an Organ Dono...](https://health.allwomenstalk.com/things-you-should-know-about-being-an-organ-donor/)
-- [7 Vital Things Every Woman Should Know about Breas...](https://health.allwomenstalk.com/vital-things-every-woman-should-know-about-breast-cancer/)
 - [coffee estrogen levels](https://health.allwomenstalk.com/tips-on-how-to-tell-if-your-estrogen-levels-are-imbalanced/)
-- [7 Crucial Things to Know about Adrenal Fatigue ...](https://health.allwomenstalk.com/crucial-things-to-know-about-adrenal-fatigue/)
 - [cold pack in first aid kit](https://lifestyle.allwomenstalk.com/important-things-you-should-have-in-your-home-first-aid-kit/)
+- [7 Vital Things Every Woman Should Know about Breas...](https://health.allwomenstalk.com/vital-things-every-woman-should-know-about-breast-cancer/)
+- [9 Incredible Facts about the Health Hazards of Smo...](https://health.allwomenstalk.com/incredible-facts-about-the-health-hazards-of-smoking-cigarettes/)
+- [7 Crucial Things to Know about Adrenal Fatigue ...](https://health.allwomenstalk.com/crucial-things-to-know-about-adrenal-fatigue/)
 - [10 Things Pregnant Women Should Know ...](https://parenting.allwomenstalk.com/10-things-pregnant-women-should-know/)
 - [8 Things You Should Know before You Get Pregnant ....](https://parenting.allwomenstalk.com/things-you-should-know-before-you-get-pregnant/)
 

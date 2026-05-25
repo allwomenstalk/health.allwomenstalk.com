@@ -42,15 +42,15 @@ Many popular teas out there known for their high antioxidant content can be pric
 
 ## Related Posts
 
-- [minerals for healthy bones](https://health.allwomenstalk.com/essential-vitamins-and-minerals-for-healthy-bones/)
-- [benefits to eating cherries](https://health.allwomenstalk.com/long-term-health-benefits-of-eating-cherries/)
-- [sushi after colonoscopy](https://food.allwomenstalk.com/amazing-health-benefits-of-sushi-that-you-simply-cant-ignore/)
 - [camu camu extract benefits](https://food.allwomenstalk.com/amazing-benefits-of-camu-camu-that-you-should-know/)
-- [elaichi benefits for female](https://food.allwomenstalk.com/sweet-benefits-of-using-cardamom-in-your-foods/)
 - [seeds for healthy skin](https://beauty.allwomenstalk.com/skin-benefits-of-chia-seeds-to-help-you-look-your-best/)
-- [herb tea for medicinal purposes](https://health.allwomenstalk.com/assortment-of-teas-to-try-for-medicinal-purposes/)
+- [benefits to eating cherries](https://health.allwomenstalk.com/long-term-health-benefits-of-eating-cherries/)
 - [yard work as exercise](https://health.allwomenstalk.com/health-benefits-of-doing-yard-work/)
 - [muller kefir smoothie](https://food.allwomenstalk.com/benefits-of-using-kefir-in-your-smoothies/)
+- [minerals for healthy bones](https://health.allwomenstalk.com/essential-vitamins-and-minerals-for-healthy-bones/)
+- [elaichi benefits for female](https://food.allwomenstalk.com/sweet-benefits-of-using-cardamom-in-your-foods/)
+- [herb tea for medicinal purposes](https://health.allwomenstalk.com/assortment-of-teas-to-try-for-medicinal-purposes/)
+- [sushi after colonoscopy](https://food.allwomenstalk.com/amazing-health-benefits-of-sushi-that-you-simply-cant-ignore/)
 - [cacao nibs caffeine](https://food.allwomenstalk.com/reasons-to-use-cacao-nibs-in-your-next-recipe/)
 - [8 Green Tea Benefits Everyone Should Know ...](https://allwomenstalk.com/green-tea-benefits-everyone-should-know/)
 - [7 Reasons to Drink Green Tea Now ...](https://health.allwomenstalk.com/reasons-to-drink-green-tea-now/)

@@ -42,16 +42,16 @@ I know many of you might struggle with a sick family member, and if you have any
 
 ## Related Posts
 
-- [how to help the elderly in my community](https://lifestyle.allwomenstalk.com/ways-to-help-the-elderly-and-vulnerable-in-your-community/)
-- [disengage mean](https://inspiration.allwomenstalk.com/ways-to-disengage-from-a-negative-person/)
-- [how to stop being type a](https://lifestyle.allwomenstalk.com/ways-to-break-the-type-a-personality-obsession/)
 - [lie detector](https://lifestyle.allwomenstalk.com/tips-on-how-to-make-someone-admit-they-are-lying/)
+- [its very difficult to talk](https://inspiration.allwomenstalk.com/tips-for-dealing-with-someone-who-is-difficult-to-talk-to/)
+- [how to stop being type a](https://lifestyle.allwomenstalk.com/ways-to-break-the-type-a-personality-obsession/)
 - [how to deal with irrational people](https://inspiration.allwomenstalk.com/useful-tips-on-how-to-communicate-with-an-irrational-person/)
 - [mend our friendship](https://lifestyle.allwomenstalk.com/ways-to-mend-a-broken-friendship/)
+- [how to help the elderly in my community](https://lifestyle.allwomenstalk.com/ways-to-help-the-elderly-and-vulnerable-in-your-community/)
 - [side by side or miles apart best friends](https://inspiration.allwomenstalk.com/ways-to-stay-best-friends-when-you-are-miles-apart/)
+- [disengage mean](https://inspiration.allwomenstalk.com/ways-to-disengage-from-a-negative-person/)
 - [my mom stopped talking to me](https://teen.allwomenstalk.com/ways-to-deal-with-your-parents-fighting-constantly/)
 - [mean girl tactics](https://teen.allwomenstalk.com/ways-to-cope-with-a-mean-girl/)
-- [its very difficult to talk](https://inspiration.allwomenstalk.com/tips-for-dealing-with-someone-who-is-difficult-to-talk-to/)
 - [7 Ways to Reduce the Worry of Elderly Parents ...](https://parenting.allwomenstalk.com/7-ways-to-reduce-the-worry-of-elderly-parents/)
 - [7 Tips for Parents of Kids with Special Needs ...](https://parenting.allwomenstalk.com/7-tips-for-parents-of-kids-with-special-needs/)
 

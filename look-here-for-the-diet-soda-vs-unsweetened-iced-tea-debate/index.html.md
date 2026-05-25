@@ -20,16 +20,16 @@ I hope you liked the video. Cheers!
 
 ## Related Posts
 
+- [flavor coffee without sugar](https://food.allwomenstalk.com/yummy-ways-to-flavor-coffee-without-sugar/)
+- [iced tea hack to lose weight](https://weightloss.allwomenstalk.com/the-best-weight-loss-iced-tea-recipe-ever-is-right-here/)
+- [posttfu. com](https://food.allwomenstalk.com/starbucks-iced-cinnamon-coffee-recipe-for-girls-trying-to-save-money/)
+- [non alcoholic arnold palmer](https://food.allwomenstalk.com/arnold-palmer-mocktail-recipe/)
+- [hilarious coffee](https://food.allwomenstalk.com/a-hilarious-iced-coffee-video-with-a-delicious-recipe/)
+- [mason jar sun tea](https://food.allwomenstalk.com/think-spring-how-to-make-a-delicious-sun-tea/)
 - [how to make tea with tea bags microwave](https://food.allwomenstalk.com/microwave-sweet-tea-for-a-tasty-and-simple-drink-treat/)
 - [best water bottle infuser](https://food.allwomenstalk.com/how-to-make-fruit-infused-water-without-an-infuser-bottle/)
-- [posttfu. com](https://food.allwomenstalk.com/starbucks-iced-cinnamon-coffee-recipe-for-girls-trying-to-save-money/)
-- [hilarious coffee](https://food.allwomenstalk.com/a-hilarious-iced-coffee-video-with-a-delicious-recipe/)
-- [iced tea hack to lose weight](https://weightloss.allwomenstalk.com/the-best-weight-loss-iced-tea-recipe-ever-is-right-here/)
-- [mason jar sun tea](https://food.allwomenstalk.com/think-spring-how-to-make-a-delicious-sun-tea/)
-- [non alcoholic arnold palmer](https://food.allwomenstalk.com/arnold-palmer-mocktail-recipe/)
-- [flavor coffee without sugar](https://food.allwomenstalk.com/yummy-ways-to-flavor-coffee-without-sugar/)
-- [sassafras drink](https://food.allwomenstalk.com/pappys-sassafras-tea/)
 - [burgerking shake](https://food.allwomenstalk.com/copycat-burger-king-fruit-loops-milkshake-recipe-to-make-at-home-and-save-money/)
+- [sassafras drink](https://food.allwomenstalk.com/pappys-sassafras-tea/)
 - [7 Reasons to Avoid Soda ...](https://allwomenstalk.com/7-reasons-to-avoid-soda/)
 - [7 Excellent Reasons to Stop Drinking Soda for Good...](https://diet.allwomenstalk.com/excellent-reasons-to-stop-drinking-soda-for-good/)
 

@@ -44,16 +44,16 @@ Top Photo Credit: [Joe Gall Photography](https://www.flickr.com/photos/joegall/5
 
 ## Related Posts
 
+- [Roadmap to Beautiful Legs](https://allwomenstalk.com/roadmap-to-beautiful-legs/)
 - [what is your favorite tip to stay fabulous](https://lifestyle.allwomenstalk.com/tips-on-how-to-be-more-fabulous-everyday/)
-- [how to radiate confidence](https://lifestyle.allwomenstalk.com/ways-to-radiate-killer-confidence/)
+- [9 Ways to Feel Hot in 2012 ...](https://love.allwomenstalk.com/ways-to-feel-hot-in/)
+- [glamour type](https://fashion.allwomenstalk.com/types-of-glamour/)
+- [style  curves](https://fashion.allwomenstalk.com/7-steps-to-creating-the-illusion-of-curves/)
 - [swimsuit skinnier](https://fashion.allwomenstalk.com/tips-to-looking-skinnier-in-a-bathing-suit/)
 - [9 Ways You Can Be Kind to Your Eyes ...](https://health.allwomenstalk.com/ways-you-can-be-kind-to-your-eyes/)
-- [glamour type](https://fashion.allwomenstalk.com/types-of-glamour/)
-- [9 Ways to Feel Hot in 2012 ...](https://love.allwomenstalk.com/ways-to-feel-hot-in/)
-- [how to flirt with a photographer](https://lifestyle.allwomenstalk.com/tips-on-how-to-be-the-perfect-model-for-your-photographer/)
-- [style  curves](https://fashion.allwomenstalk.com/7-steps-to-creating-the-illusion-of-curves/)
+- [how to radiate confidence](https://lifestyle.allwomenstalk.com/ways-to-radiate-killer-confidence/)
 - [7 Ways to Learn Your Insecurities ...](https://love.allwomenstalk.com/ways-to-learn-your-insecurities/)
-- [Roadmap to Beautiful Legs](https://allwomenstalk.com/roadmap-to-beautiful-legs/)
+- [how to flirt with a photographer](https://lifestyle.allwomenstalk.com/tips-on-how-to-be-the-perfect-model-for-your-photographer/)
 - [7 Tips on Getting Rid of Love Handles ...](https://weightloss.allwomenstalk.com/7-tips-on-getting-rid-of-love-handles/)
 - [7 Reasons to Love Your Body Just the Way It is ...](https://allwomenstalk.com/7-reasons-to-love-your-body-just-the-way-it-is/)
 

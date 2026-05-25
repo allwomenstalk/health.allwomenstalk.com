@@ -56,16 +56,16 @@ What other tips do you have for women that'll keep their breasts happy and healt
 
 ## Related Posts
 
-- [Inventive New Ways Your Phone is Probably Wrecking...](https://health.allwomenstalk.com/inventive-new-ways-your-phone-is-probably-wrecking-your-health/)
-- [Skip the Doctor : This Chart Will Tell You Why You...](https://health.allwomenstalk.com/skip-the-doctor-this-chart-will-tell-you-why-youre-sick/)
+- [Things You Should Know about Female Viagra ...](https://health.allwomenstalk.com/things-you-should-know-about-female-viagra/)
+- [brushing teeth wrong](https://health.allwomenstalk.com/ways-youve-been-brushing-your-teeth-wrong/)
+- [The inside Scoop on the Essential Elements Your Bo...](https://health.allwomenstalk.com/the-low-down-on-the-elements-your-body-needs/)
 - [This Will Change Your Mind about Using Tampons ...](https://health.allwomenstalk.com/this-will-change-your-mind-about-using-tampons/)
 - [The 7 Biggest Health Questions from around the Wor...](https://health.allwomenstalk.com/the-biggest-health-questions-from-around-the-world/)
-- [The inside Scoop on the Essential Elements Your Bo...](https://health.allwomenstalk.com/the-low-down-on-the-elements-your-body-needs/)
-- [Things You Should Know about Female Viagra ...](https://health.allwomenstalk.com/things-you-should-know-about-female-viagra/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/fixes-for-common-period-problems/)
-- [brushing teeth wrong](https://health.allwomenstalk.com/ways-youve-been-brushing-your-teeth-wrong/)
-- [Myths about Birth Control Pills That Sexually Acti...](https://health.allwomenstalk.com/myths-about-birth-control-pills-that-sexually-active-women-should-know/)
+- [Inventive New Ways Your Phone is Probably Wrecking...](https://health.allwomenstalk.com/inventive-new-ways-your-phone-is-probably-wrecking-your-health/)
 - [unhealthy activities](https://health.allwomenstalk.com/unhealthy-activities-as-dangerous-as-smoking/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/fixes-for-common-period-problems/)
+- [Myths about Birth Control Pills That Sexually Acti...](https://health.allwomenstalk.com/myths-about-birth-control-pills-that-sexually-active-women-should-know/)
+- [Skip the Doctor : This Chart Will Tell You Why You...](https://health.allwomenstalk.com/skip-the-doctor-this-chart-will-tell-you-why-youre-sick/)
 - [8 Foods to Avoid While Breastfeeding ...](https://parenting.allwomenstalk.com/8-foods-to-avoid-while-breastfeeding/)
 - [7 Facts on Breasts ...](https://health.allwomenstalk.com/7-facts-on-breasts/)
 

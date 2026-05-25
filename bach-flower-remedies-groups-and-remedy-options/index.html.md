@@ -42,16 +42,16 @@ You should see after reading about the 7 groups that they are all inter-related 
 
 ## Related Posts
 
-- [ocean potion with lidocaine](https://skincare.allwomenstalk.com/sure-fire-ways-to-deal-with-sunburn/)
-- [tea tree oil uses for nails](https://skincare.allwomenstalk.com/amazing-uses-for-tea-tree-oil-youve-got-to-try/)
-- [anti yeast foods](https://food.allwomenstalk.com/unique-foods-to-fight-off-candida-yeast-in-the-body-fast/)
-- [uncommon herbs](https://health.allwomenstalk.com/uncommon-herbs-that-are-used-by-herbalists/)
-- [pain relieving pressure points](https://health.allwomenstalk.com/pain-relieving-pressure-points-in-your-body/)
-- [messenger bag hurts shoulder](https://bags.allwomenstalk.com/ways-to-reduce-neck-and-shoulder-pain-caused-by-a-heavy-handbag/)
-- [juicing gerson therapy](https://health.allwomenstalk.com/principles-of-the-gerson-therapy-that-are-thought-to-heal-the-body-from-cancer/)
 - [grandmas home remedies](https://lifestyle.allwomenstalk.com/natural-old-fashioned-remedies-that-your-grandma-swears-by/)
-- [windburned skin](https://skincare.allwomenstalk.com/top-tips-to-treat-and-prevent-windburn/)
+- [messenger bag hurts shoulder](https://bags.allwomenstalk.com/ways-to-reduce-neck-and-shoulder-pain-caused-by-a-heavy-handbag/)
+- [anti yeast foods](https://food.allwomenstalk.com/unique-foods-to-fight-off-candida-yeast-in-the-body-fast/)
 - [things to do while sick at home](https://health.allwomenstalk.com/things-to-do-when-you-are-sick/)
+- [ocean potion with lidocaine](https://skincare.allwomenstalk.com/sure-fire-ways-to-deal-with-sunburn/)
+- [uncommon herbs](https://health.allwomenstalk.com/uncommon-herbs-that-are-used-by-herbalists/)
+- [juicing gerson therapy](https://health.allwomenstalk.com/principles-of-the-gerson-therapy-that-are-thought-to-heal-the-body-from-cancer/)
+- [pain relieving pressure points](https://health.allwomenstalk.com/pain-relieving-pressure-points-in-your-body/)
+- [tea tree oil uses for nails](https://skincare.allwomenstalk.com/amazing-uses-for-tea-tree-oil-youve-got-to-try/)
+- [windburned skin](https://skincare.allwomenstalk.com/top-tips-to-treat-and-prevent-windburn/)
 - [5 Healing Herbs ...](https://gardening.allwomenstalk.com/5-healing-herbs/)
 - [7 Remedies for an Aching Stomach ...](https://health.allwomenstalk.com/7-remedies-for-an-aching-stomach/)
 

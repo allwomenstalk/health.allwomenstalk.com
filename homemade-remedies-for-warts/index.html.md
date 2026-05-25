@@ -42,16 +42,16 @@ Homemade remedies for warts will take a little longer than chemical wart remover
 
 ## Related Posts
 
-- [exercises to help with period cramps](https://fitness.allwomenstalk.com/the-cure-to-menstrual-cramps-exercises-to-do-during-your-period/)
-- [how to properly use vicks](https://diy.allwomenstalk.com/ways-to-use-vicks-vapor-rub/)
-- [combating water retention](https://health.allwomenstalk.com/ways-to-fight-water-retention/)
-- [What Are the Tricks to Avoid Urinary Tract Infecti...](https://health.allwomenstalk.com/what-are-the-tricks-to-avoid-urinary-tract-infections/)
 - [how to hide a hangover](https://beauty.allwomenstalk.com/got-a-hangover-surefire-ways-to-hide-it/)
-- [uses for tea](https://diy.allwomenstalk.com/interesting-ways-you-can-use-tea/)
-- [natural remedy for period cramps](https://health.allwomenstalk.com/natural-remedies-for-period-pain-and-cramps/)
-- [bearable app](https://health.allwomenstalk.com/that-time-of-the-month-heres-how-to-make-your-period-more-bearable/)
-- [how to get rid of red eyes from allergies](https://beauty.allwomenstalk.com/how-to-cure-your-red-eyes-from-allergies/)
 - [overcome jet lag](https://travel.allwomenstalk.com/the-most-natural-ways-to-overcome-jet-lag/)
+- [natural remedy for period cramps](https://health.allwomenstalk.com/natural-remedies-for-period-pain-and-cramps/)
+- [uses for tea](https://diy.allwomenstalk.com/interesting-ways-you-can-use-tea/)
+- [combating water retention](https://health.allwomenstalk.com/ways-to-fight-water-retention/)
+- [bearable app](https://health.allwomenstalk.com/that-time-of-the-month-heres-how-to-make-your-period-more-bearable/)
+- [how to properly use vicks](https://diy.allwomenstalk.com/ways-to-use-vicks-vapor-rub/)
+- [What Are the Tricks to Avoid Urinary Tract Infecti...](https://health.allwomenstalk.com/what-are-the-tricks-to-avoid-urinary-tract-infections/)
+- [exercises to help with period cramps](https://fitness.allwomenstalk.com/the-cure-to-menstrual-cramps-exercises-to-do-during-your-period/)
+- [how to get rid of red eyes from allergies](https://beauty.allwomenstalk.com/how-to-cure-your-red-eyes-from-allergies/)
 - [7 Homemade Natural Cleaners ...](https://allwomenstalk.com/7-homemade-natural-cleaners/)
 - [7 Cool Home Remedies You Should Know ...](https://allwomenstalk.com/7-cool-home-remedies-you-should-know/)
 

@@ -44,14 +44,14 @@ The less time you take off from work, the more cash in your pocket. Plus, if you
 
 - [7 Ways to Improve Job Security in a Tough Market ....](https://money.allwomenstalk.com/ways-to-improve-job-security-in-a-tough-market/)
 - [7 Ways to Address Your WorkLife Balance ...](https://inspiration.allwomenstalk.com/ways-to-address-your-worklife-balance/)
-- [9 Ways Your Job May Damage Your Health ...](https://health.allwomenstalk.com/ways-your-job-may-damage-your-health/)
-- [how to cope when you hate your job](https://lifestyle.allwomenstalk.com/ways-to-cope-when-you-hate-your-job/)
+- [9 Important Things to Consider before Taking a Job...](https://lifestyle.allwomenstalk.com/things-to-consider-before-taking-a-job/)
 - [7 Ways to Make the Most of Your Summer Internship ...](https://money.allwomenstalk.com/ways-to-make-the-most-of-your-summer-internship/)
+- [9 Ways Your Job May Damage Your Health ...](https://health.allwomenstalk.com/ways-your-job-may-damage-your-health/)
 - [7 Ways to Build Your Personal Brand ...](https://lifestyle.allwomenstalk.com/ways-to-build-your-personal-brand/)
 - [7 Vital Considerations of Working Holidays Abroad ...](https://travel.allwomenstalk.com/vital-considerations-of-working-holidays-abroad/)
-- [7 Great Ways to Be More Productive at Work ...](https://money.allwomenstalk.com/ways-to-be-more-productive-at-work-2/)
 - [7 Excellent Hints on Keeping Your Eyes Healthy at ...](https://health.allwomenstalk.com/excellent-hints-on-keeping-your-eyes-healthy-at-work/)
-- [9 Important Things to Consider before Taking a Job...](https://lifestyle.allwomenstalk.com/things-to-consider-before-taking-a-job/)
+- [how to cope when you hate your job](https://lifestyle.allwomenstalk.com/ways-to-cope-when-you-hate-your-job/)
+- [7 Great Ways to Be More Productive at Work ...](https://money.allwomenstalk.com/ways-to-be-more-productive-at-work-2/)
 - [7 Shortcuts to Better Health ...](https://health.allwomenstalk.com/7-shortcuts-to-better-health/)
 - [7 Tips to Maintain Good Health ...](https://health.allwomenstalk.com/tips-to-maintain-good-health/)
 

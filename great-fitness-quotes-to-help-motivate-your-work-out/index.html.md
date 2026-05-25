@@ -97,15 +97,15 @@ Motivate Your Work Out...
 
 ## Related Posts
 
-- [Top I-dont-wanna-workout Excuses](https://allwomenstalk.com/top-i-dont-wanna-workout-excuses/)
-- [Can Video Games Actually Help You Get Fit](https://allwomenstalk.com/can-video-games-actually-help-you-get-fit/)
 - [Exercises to Fit Every Shape and Size ...](https://allwomenstalk.com/exercises-to-fit-every-shape-and-size/)
-- [10 Step Full Body Exercise Program ...](https://fitene.com/full-body-exercise-program/)
-- [5 Things to Inspire You to Get Fit NOW...](https://allwomenstalk.com/5-things-to-inspire-you-to-get-fit-now/)
-- [Wii Exercise Games: Effective or Just Plain Gimmic...](https://allwomenstalk.com/wii-exercise-games/)
-- [Yoga for the Time-Challenged Busy Woman ...](https://allwomenstalk.com/yoga-for-the-time-challenged-busy-woman/)
-- [Exercise to Feel Great when Naked ...](https://allwomenstalk.com/exercise-to-feel-great-when-naked/)
 - [Yoga Abs Workout Anyone](https://allwomenstalk.com/yoga-abs-workout-anyone/)
+- [5 Things to Inspire You to Get Fit NOW...](https://allwomenstalk.com/5-things-to-inspire-you-to-get-fit-now/)
+- [Yoga for the Time-Challenged Busy Woman ...](https://allwomenstalk.com/yoga-for-the-time-challenged-busy-woman/)
+- [Can Video Games Actually Help You Get Fit](https://allwomenstalk.com/can-video-games-actually-help-you-get-fit/)
+- [10 Step Full Body Exercise Program ...](https://fitene.com/full-body-exercise-program/)
+- [Wii Exercise Games: Effective or Just Plain Gimmic...](https://allwomenstalk.com/wii-exercise-games/)
+- [Top I-dont-wanna-workout Excuses](https://allwomenstalk.com/top-i-dont-wanna-workout-excuses/)
+- [Exercise to Feel Great when Naked ...](https://allwomenstalk.com/exercise-to-feel-great-when-naked/)
 - [The Truth about Stretching ...](https://allwomenstalk.com/the-truth-about-stretching/)
 - [8 Amazingly Effective Tricks to Motivate Yourself ...](https://weightloss.allwomenstalk.com/amazingly-effective-tricks-to-motivate-yourself-to-work-out/)
 - [30 Motivational Health and Exercise Quotes ...](https://health.allwomenstalk.com/motivational-health-and-exercise-quotes/)

@@ -49,16 +49,16 @@ These are just a few examples of the wonderful health uses of basil. However, th
 
 ## Related Posts
 
-- [Awesome Reasons Why You Should Drink Kombucha  ...](https://health.allwomenstalk.com/why-you-should-be-drinking-kombucha/)
-- [benefits of poke bowl](https://food.allwomenstalk.com/delicious-ways-to-eat-seaweed-for-the-benefits/)
-- [The 10 Best Supplements for Women Who Want Optimal...](https://health.allwomenstalk.com/the-best-supplements-for-women-who-want-optimal-health/)
-- [Use Ginseng for Its Wondrous  Health Benefits ...](https://health.allwomenstalk.com/benefits-of-ginseng/)
-- [3 Important Reasons Why Every Woman Needs to Drink...](https://health.allwomenstalk.com/why-women-should-drink-a-gallon-of-water-every-day/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/the-health-benefits-of-crispr/)
-- [11 Surprising Health Benefits of a Pedicure ...](https://beauty.allwomenstalk.com/health-benefits-of-a-pedicure/)
-- [7 Reasons to Start  Every Day with Lemon Water ...](https://health.allwomenstalk.com/reasons-to-start-every-day-with-lemon-water/)
 - [Its Time to Ditch Your Plastic Straws for the Sake...](https://lifestyle.allwomenstalk.com/its-time-to-ditch-your-plastic-straws-for-the-sake-of-your-health-and-the-environment/)
+- [benefits of poke bowl](https://food.allwomenstalk.com/delicious-ways-to-eat-seaweed-for-the-benefits/)
+- [11 Surprising Health Benefits of a Pedicure ...](https://beauty.allwomenstalk.com/health-benefits-of-a-pedicure/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/the-health-benefits-of-crispr/)
+- [The 10 Best Supplements for Women Who Want Optimal...](https://health.allwomenstalk.com/the-best-supplements-for-women-who-want-optimal-health/)
+- [Awesome Reasons Why You Should Drink Kombucha  ...](https://health.allwomenstalk.com/why-you-should-be-drinking-kombucha/)
+- [Use Ginseng for Its Wondrous  Health Benefits ...](https://health.allwomenstalk.com/benefits-of-ginseng/)
+- [7 Reasons to Start  Every Day with Lemon Water ...](https://health.allwomenstalk.com/reasons-to-start-every-day-with-lemon-water/)
 - [13 Benefits of Drinking Hot Water ...](https://health.allwomenstalk.com/benefits-of-drinking-hot-water/)
+- [3 Important Reasons Why Every Woman Needs to Drink...](https://health.allwomenstalk.com/why-women-should-drink-a-gallon-of-water-every-day/)
 - [5 Great Uses for Basil ...](https://gardening.allwomenstalk.com/great-uses-for-basil/)
 - [9 Natural Herbs You Shouldnt Be without ...](https://lifestyle.allwomenstalk.com/natural-herbs-you-shouldnt-be-without/)
 

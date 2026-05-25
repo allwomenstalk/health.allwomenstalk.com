@@ -45,15 +45,15 @@ Transitioning to a plant-based diet is one of the best things you can do for you
 
 ## Related Posts
 
+- [food with most b vitamins](https://food.allwomenstalk.com/foods-rich-in-b-vitamins-to-boost-your-mood-and-energy/)
 - [high zinc food vegetarian](https://food.allwomenstalk.com/vegan-sources-of-iron/)
+- [health stores near me](https://food.allwomenstalk.com/things-you-can-buy-at-the-health-food-store-without-breaking-the-bank/)
+- [fun healthy food facts](https://food.allwomenstalk.com/unique-food-facts-you-never-knew/)
 - [what plant sources are complete proteins](https://food.allwomenstalk.com/unique-sources-of-complete-protein-you-should-be-eating/)
 - [healthy red foods](https://food.allwomenstalk.com/red-foods-with-loads-of-health-benefits/)
-- [butternut squash meaning](https://food.allwomenstalk.com/reasons-butternut-squash-is-your-food-hero/)
-- [fun healthy food facts](https://food.allwomenstalk.com/unique-food-facts-you-never-knew/)
-- [health stores near me](https://food.allwomenstalk.com/things-you-can-buy-at-the-health-food-store-without-breaking-the-bank/)
-- [vegan soda leaks](https://food.allwomenstalk.com/technically-vegan-foods-to-avoid/)
-- [food with most b vitamins](https://food.allwomenstalk.com/foods-rich-in-b-vitamins-to-boost-your-mood-and-energy/)
 - [brands of almond butter](https://food.allwomenstalk.com/best-brands-of-almond-butter-to-give-a-try/)
+- [vegan soda leaks](https://food.allwomenstalk.com/technically-vegan-foods-to-avoid/)
+- [butternut squash meaning](https://food.allwomenstalk.com/reasons-butternut-squash-is-your-food-hero/)
 - [salad dressing ingredients](https://food.allwomenstalk.com/ingredients-that-make-a-healthy-salad-dressing-recipe/)
 - [10 Facts about Organic Food ...](https://allwomenstalk.com/10-facts-about-organic-food/)
 - [8 Reasons to Eat More Vegetables ...](https://allwomenstalk.com/8-reasons-to-eat-more-vegetables/)

@@ -36,16 +36,16 @@ If you feel like you need help to cope with what happened to you, then don’t t
 
 ## Related Posts
 
-- [cartia mallan boyfriend](https://love.allwomenstalk.com/when-you-have-to-break-up-with-a-nice-person/)
-- [8 Perfect Ways to Deal with Rejection ...](https://inspiration.allwomenstalk.com/ways-to-deal-with-rejection-2/)
-- [7 Best Ways to Gracefully Handle Your First Argume...](https://love.allwomenstalk.com/best-ways-to-gracefully-handle-your-first-argument/)
+- [how much is my friend worth](https://inspiration.allwomenstalk.com/inspiring-ways-to-be-a-friend-worth-having/)
+- [girl being left out](https://inspiration.allwomenstalk.com/video-guide-on-how-to-respond-to-being-left-out/)
 - [how to say no without hurting someone feelings](https://inspiration.allwomenstalk.com/ways-to-say-no-without-hurting-anyones-feelings/)
 - [How to Recognize the Negative People in Your Life ...](https://inspiration.allwomenstalk.com/how-to-recognize-the-negative-people-in-your-life/)
 - [Exceptional Steps to Take to Earn Respect ...](https://inspiration.allwomenstalk.com/steps-to-earn-respect/)
 - [Respectful Ways to Get out of a Date Gracefully .....](https://love.allwomenstalk.com/ways-to-get-out-of-a-date-gracefully/)
-- [how much is my friend worth](https://inspiration.allwomenstalk.com/inspiring-ways-to-be-a-friend-worth-having/)
+- [cartia mallan boyfriend](https://love.allwomenstalk.com/when-you-have-to-break-up-with-a-nice-person/)
 - [Top 5  Ways to Help Someone Who Has Suffered a Los...](https://lifestyle.allwomenstalk.com/ways-to-help-someone-who-has-suffered-a-loss/)
-- [girl being left out](https://inspiration.allwomenstalk.com/video-guide-on-how-to-respond-to-being-left-out/)
+- [7 Best Ways to Gracefully Handle Your First Argume...](https://love.allwomenstalk.com/best-ways-to-gracefully-handle-your-first-argument/)
+- [8 Perfect Ways to Deal with Rejection ...](https://inspiration.allwomenstalk.com/ways-to-deal-with-rejection-2/)
 - [7 Ways to Deal with a Man-Snatcher ...](https://love.allwomenstalk.com/ways-to-deal-with-a-man-snatcher/)
 - [Tips on Preventing a Sexually Transmitted Disease ...](https://allwomenstalk.com/tips-on-preventing-a-sexually-transmitted-disease/)
 

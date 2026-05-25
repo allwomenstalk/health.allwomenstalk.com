@@ -54,16 +54,16 @@ Let me know how these natural ways to calm your nerves have worked for you. Also
 
 ## Related Posts
 
-- [how to control your temper](https://lifestyle.allwomenstalk.com/tips-on-how-to-control-your-temper/)
-- [post honeymoon blues](https://wedding.allwomenstalk.com/easy-ways-to-beat-the-post-honeymoon-blues/)
-- [stress free living](https://lifestyle.allwomenstalk.com/incredible-ways-to-live-stress-free-in-the-city/)
-- [work stress tips](https://money.allwomenstalk.com/useful-tips-on-how-manage-work-stress/)
-- [oktoberfest drunk fails](https://travel.allwomenstalk.com/ways-to-survive-oktoberfest-to-avoid-burnout/)
-- [zazen meditation benefits](https://health.allwomenstalk.com/essential-benefits-of-adopting-the-practice-of-zen-meditation/)
 - [happy rainy monday morning](https://lifestyle.allwomenstalk.com/sure-fire-ways-to-brighten-your-rainy-monday-morning/)
-- [peaceful concerted activities](https://lifestyle.allwomenstalk.com/relaxing-outdoor-activities-that-offer-peace-of-mind/)
+- [stress free living](https://lifestyle.allwomenstalk.com/incredible-ways-to-live-stress-free-in-the-city/)
+- [zazen meditation benefits](https://health.allwomenstalk.com/essential-benefits-of-adopting-the-practice-of-zen-meditation/)
+- [how to control your temper](https://lifestyle.allwomenstalk.com/tips-on-how-to-control-your-temper/)
 - [jitters caffeine](https://health.allwomenstalk.com/incredibly-effective-pointers-on-getting-rid-of-caffeine-jitters/)
+- [work stress tips](https://money.allwomenstalk.com/useful-tips-on-how-manage-work-stress/)
 - [how to focus without adderall](https://lifestyle.allwomenstalk.com/ways-to-get-through-a-study-session-that-dont-involve-adderall/)
+- [oktoberfest drunk fails](https://travel.allwomenstalk.com/ways-to-survive-oktoberfest-to-avoid-burnout/)
+- [peaceful concerted activities](https://lifestyle.allwomenstalk.com/relaxing-outdoor-activities-that-offer-peace-of-mind/)
+- [post honeymoon blues](https://wedding.allwomenstalk.com/easy-ways-to-beat-the-post-honeymoon-blues/)
 - [10 Easy Ways to Relieve Anxiety ...](https://allwomenstalk.com/10-easy-ways-to-relieve-anxiety/)
 - [7 Ways to Calm down Quickly ...](https://health.allwomenstalk.com/ways-to-calm-down-quickly/)
 

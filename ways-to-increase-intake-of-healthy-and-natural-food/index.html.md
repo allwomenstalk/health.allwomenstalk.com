@@ -48,16 +48,16 @@ Top Photo Credit: [sjpadron](https://www.flickr.com/photos/sjpadron/4487963686/)
 
 ## Related Posts
 
-- [7 Tips for Avoiding Diabetes ...](https://health.allwomenstalk.com/7-tips-for-avoiding-diabetes/)
-- [7 Highly Useful Tips on How to Stop Drinking Soda ...](https://health.allwomenstalk.com/tips-on-how-to-stop-drinking-soda/)
+- [9 Sagely Effective Ways to Banish Emotional Eating...](https://health.allwomenstalk.com/sagely-effective-ways-to-banish-emotional-eating/)
+- [ways to stop snacking](https://health.allwomenstalk.com/7-ways-to-stop-snacking/)
 - [10 Tips to Stay Healthy in Your Twenties ...](https://health.allwomenstalk.com/10-tips-to-stay-healthy-in-your-twenties/)
 - [7 Tips to Maintain Good Health ...](https://health.allwomenstalk.com/tips-to-maintain-good-health/)
+- [7 Tips for Avoiding Diabetes ...](https://health.allwomenstalk.com/7-tips-for-avoiding-diabetes/)
+- [7 Highly Useful Tips on How to Stop Drinking Soda ...](https://health.allwomenstalk.com/tips-on-how-to-stop-drinking-soda/)
 - [site:health.allwomenstalk.com](https://health.allwomenstalk.com/ways-to-be-healthier/)
 - [Eating Well in the New Year.](https://allwomenstalk.com/eating-well-in-the-new-year/)
 - [Beauty Tips Articles: Healthy Snacking Habits ...](https://allwomenstalk.com/beauty-tips-articles-healthy-snacking-habits/)
-- [ways to stop snacking](https://health.allwomenstalk.com/7-ways-to-stop-snacking/)
 - [Healthy Eating and Diet Tips: Part 2](https://allwomenstalk.com/healthy-eating-and-diet-tips-part-2/)
-- [9 Sagely Effective Ways to Banish Emotional Eating...](https://health.allwomenstalk.com/sagely-effective-ways-to-banish-emotional-eating/)
 - [8 Ways to Start a Healthy Lifestyle ...](https://diet.allwomenstalk.com/ways-to-start-a-healthy-lifestyle/)
 - [10 Amazingly Healthy Foods to Eat ...](https://health.allwomenstalk.com/amazingly-healthy-foods-to-eat/)
 

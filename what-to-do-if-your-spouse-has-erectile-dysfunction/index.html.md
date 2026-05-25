@@ -79,16 +79,16 @@ And, wait for it - exercise helps too!
 
 ## Related Posts
 
-- [how to spice up the bedroom for valentines day](https://love.allwomenstalk.com/ways-to-spice-up-the-bedroom-romance-on-valentines-day/)
-- [12 Sex Tips for Older Women ...](https://vityle.com/sex-tips-for-older-women/)
-- [Totally Realistic Ways to Build Sexual Confidence ...](https://love.allwomenstalk.com/ways-to-build-sexual-confidence/)
-- [Things You Should Know before You Have Anal Sex .....](https://love.allwomenstalk.com/things-you-should-know-before-you-have-anal-sex/)
 - [10 Genius Ways to Touch Your Man  That Will Drive ...](https://love.allwomenstalk.com/ways-to-touch-your-man-to-drive-him-wild/)
-- [How to Tell Your Partner You Have an STD  ...](https://love.allwomenstalk.com/how-to-tell-your-partner-you-have-an-std/)
 - [Questions to Ask Yourself before Losing Your Virgi...](https://love.allwomenstalk.com/questions-to-ask-yourself-before-losing-your-virginity/)
-- [sortoutfor](https://love.allwomenstalk.com/relationship-problems-ruining-your-sex-life/)
-- [The Best Exercises for Better Sex ...](https://fitness.allwomenstalk.com/the-best-exercises-for-better-sex/)
 - [Exercises That Will Improve Your Sex Life ...](https://fitness.allwomenstalk.com/exercises-that-will-improve-your-sex-life/)
+- [Totally Realistic Ways to Build Sexual Confidence ...](https://love.allwomenstalk.com/ways-to-build-sexual-confidence/)
+- [12 Sex Tips for Older Women ...](https://vityle.com/sex-tips-for-older-women/)
+- [The Best Exercises for Better Sex ...](https://fitness.allwomenstalk.com/the-best-exercises-for-better-sex/)
+- [How to Tell Your Partner You Have an STD  ...](https://love.allwomenstalk.com/how-to-tell-your-partner-you-have-an-std/)
+- [how to spice up the bedroom for valentines day](https://love.allwomenstalk.com/ways-to-spice-up-the-bedroom-romance-on-valentines-day/)
+- [sortoutfor](https://love.allwomenstalk.com/relationship-problems-ruining-your-sex-life/)
+- [Things You Should Know before You Have Anal Sex .....](https://love.allwomenstalk.com/things-you-should-know-before-you-have-anal-sex/)
 - [7 Passionately Romantic Ways to Improve Your Sex L...](https://love.allwomenstalk.com/passionately-romantic-ways-to-improve-your-sex-life/)
 - [How to Spice up Your Sex Life ...](https://allwomenstalk.com/how-to-spice-up-your-sex-life/)
 

@@ -56,16 +56,16 @@ It’s no good doing these haphazardly. For your brain and you to benefit you ne
 
 ## Related Posts
 
-- [happier and healthier](https://inspiration.allwomenstalk.com/ways-to-be-happier-healthier-and-more-successful/)
-- [how to be a good adult](https://inspiration.allwomenstalk.com/how-to-become-better-at-being-an-adult/)
-- [napoleon hill goal setting](https://inspiration.allwomenstalk.com/whats-standing-in-the-way-of-your-success-according-to-napoleon-hill/)
-- [improve yourself](https://inspiration.allwomenstalk.com/practical-ways-to-improve-yourself-starting-today/)
-- [how to be happy poor](https://money.allwomenstalk.com/ways-to-be-happy-even-when-youre-broke/)
 - [life hacks funny](https://funny.allwomenstalk.com/common-sense-life-hacks-thatll-make-you-laugh/)
-- [fortune cookie quotes motivational](https://inspiration.allwomenstalk.com/motivational-fortune-cookies-thatll-help-you-succeed/)
+- [napoleon hill goal setting](https://inspiration.allwomenstalk.com/whats-standing-in-the-way-of-your-success-according-to-napoleon-hill/)
 - [challenges of writing](https://lifestyle.allwomenstalk.com/see-if-you-can-complete-these-writing-challenges/)
-- [infographic examples about yourself](https://inspiration.allwomenstalk.com/infographics-thatll-help-you-learn-to-love-yourself/)
+- [happier and healthier](https://inspiration.allwomenstalk.com/ways-to-be-happier-healthier-and-more-successful/)
 - [bucket list of life goals](https://inspiration.allwomenstalk.com/bye-bye-bucket-list-how-to-make-a-goals-list-instead/)
+- [infographic examples about yourself](https://inspiration.allwomenstalk.com/infographics-thatll-help-you-learn-to-love-yourself/)
+- [how to be happy poor](https://money.allwomenstalk.com/ways-to-be-happy-even-when-youre-broke/)
+- [improve yourself](https://inspiration.allwomenstalk.com/practical-ways-to-improve-yourself-starting-today/)
+- [fortune cookie quotes motivational](https://inspiration.allwomenstalk.com/motivational-fortune-cookies-thatll-help-you-succeed/)
+- [how to be a good adult](https://inspiration.allwomenstalk.com/how-to-become-better-at-being-an-adult/)
 - [9 Essential Habits for Success That You Should Dev...](https://inspiration.allwomenstalk.com/essential-habits-for-success-that-you-should-develop-too/)
 - [7 Useful Tips on How to Make Positivity a Habit .....](https://inspiration.allwomenstalk.com/useful-tips-on-how-to-make-positivity-a-habit/)
 

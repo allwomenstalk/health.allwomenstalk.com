@@ -84,16 +84,16 @@ Women are emotional creatures and we sometimes need to be reminded that someone 
 
 ## Related Posts
 
-- [coping with blushing](https://inspiration.allwomenstalk.com/ways-to-cope-with-blushing/)
-- [Why You Need to Learn to Trust Yourself for Girls ...](https://inspiration.allwomenstalk.com/why-you-need-to-learn-to-trust-yourself/)
-- [tracy hensel gossip](https://lifestyle.allwomenstalk.com/etiquette-tips-for-women-who-want-to-be-more-classy/)
-- [feeding your soul quotes](https://inspiration.allwomenstalk.com/ways-to-feed-your-soul/)
-- [how to get emotional stability](https://inspiration.allwomenstalk.com/how-to-gain-emotional-stability/)
-- [survive the holidays](https://lifestyle.allwomenstalk.com/ways-to-survive-the-holidays-when-youre-single/)
-- [weird things girls](https://love.allwomenstalk.com/weird-things-girls-do-when-they-have-a-crush/)
 - [how to make decision when you are confused](https://inspiration.allwomenstalk.com/how-to-make-decisions-when-youre-confused/)
-- [chic comfort zone](https://inspiration.allwomenstalk.com/ways-to-break-out-of-your-comfort-zone/)
+- [weird things girls](https://love.allwomenstalk.com/weird-things-girls-do-when-they-have-a-crush/)
+- [Why You Need to Learn to Trust Yourself for Girls ...](https://inspiration.allwomenstalk.com/why-you-need-to-learn-to-trust-yourself/)
+- [feeding your soul quotes](https://inspiration.allwomenstalk.com/ways-to-feed-your-soul/)
+- [tracy hensel gossip](https://lifestyle.allwomenstalk.com/etiquette-tips-for-women-who-want-to-be-more-classy/)
 - [learn how to stand up for yourself](https://inspiration.allwomenstalk.com/why-you-need-to-stand-up-for-yourself/)
+- [coping with blushing](https://inspiration.allwomenstalk.com/ways-to-cope-with-blushing/)
+- [how to get emotional stability](https://inspiration.allwomenstalk.com/how-to-gain-emotional-stability/)
+- [chic comfort zone](https://inspiration.allwomenstalk.com/ways-to-break-out-of-your-comfort-zone/)
+- [survive the holidays](https://lifestyle.allwomenstalk.com/ways-to-survive-the-holidays-when-youre-single/)
 - [Empowering Steps for Girls Who Want to Be More Min...](https://inspiration.allwomenstalk.com/steps-to-mindfulness-that-will-make-you-feel-amazing/)
 - [Life Changing Tips to Finding Inner Peace for Girl...](https://inspiration.allwomenstalk.com/steps-to-healing-your-hidden-hurts/)
 

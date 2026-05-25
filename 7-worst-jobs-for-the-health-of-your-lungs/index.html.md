@@ -44,16 +44,16 @@ Top image source: [majorhealthblog.com](https://goo.gl/YKB87I)
 
 ## Related Posts
 
-- [7 Things to Stop Doing Right Now ...](https://health.allwomenstalk.com/things-to-stop-doing-right-now/)
-- [8 Habits That Are Bad for Your Heart ...](https://health.allwomenstalk.com/8-habits-that-are-bad-for-your-heart/)
-- [le stylo timeless spark](https://lifestyle.allwomenstalk.com/table-manners-you-dont-want-to-forget/)
 - [7 Things to Avoid when You Quit Smoking ...](https://health.allwomenstalk.com/7-things-to-avoid-when-you-quit-smoking/)
-- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/worst-interview-mistakes/)
-- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
+- [8 Habits That Are Bad for Your Heart ...](https://health.allwomenstalk.com/8-habits-that-are-bad-for-your-heart/)
+- [10 Things That Are Ruining Your Smile ...](https://health.allwomenstalk.com/10-things-that-are-ruining-your-smile/)
+- [7 Things to Stop Doing Right Now ...](https://health.allwomenstalk.com/things-to-stop-doing-right-now/)
+- [le stylo timeless spark](https://lifestyle.allwomenstalk.com/table-manners-you-dont-want-to-forget/)
 - [stylo primped previous](https://hair.allwomenstalk.com/things-that-wont-help-grow-your-hair-faster/)
 - [lgbt sterotypes](https://lifestyle.allwomenstalk.com/common-gay-stereotypes-you-should-avoid/)
-- [10 Things That Are Ruining Your Smile ...](https://health.allwomenstalk.com/10-things-that-are-ruining-your-smile/)
 - [7 things you should always keep secret](https://lifestyle.allwomenstalk.com/things-you-should-keep-secret/)
+- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
+- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/worst-interview-mistakes/)
 - [7 Best Careers to Choose  ...](https://allwomenstalk.com/7-best-careers-to-choose/)
 - [7 Ways to Boost Your Career ...](https://allwomenstalk.com/7-ways-to-boost-your-career/)
 

@@ -40,16 +40,16 @@ Making yourself vomit isn't a pleasant experience, but sometimes it's necessary.
 
 ## Related Posts
 
-- [healing bruises quickly](https://skincare.allwomenstalk.com/ways-to-heal-bruises-quickly/)
-- [7 Ways to Prevent UTIs ...](https://allwomenstalk.com/ways-to-prevent-utis/)
-- [7 Ways to Treat a Sunburn ...](https://skincare.allwomenstalk.com/ways-to-treat-a-sunburn/)
-- [vampire dont come to my house](https://twilight.allwomenstalk.com/5-ways-to-keep-a-vampire-out-of-your-house/)
-- [uses for avocado oil](https://cooking.allwomenstalk.com/ways-to-use-infused-avocado-oils/)
-- [how to deal with dry lips](https://skincare.allwomenstalk.com/ways-to-deal-with-dry-lips/)
 - [5 Healing Herbs ...](https://gardening.allwomenstalk.com/5-healing-herbs/)
-- [does vaseline work for under eye bags](https://beauty.allwomenstalk.com/great-remedies-for-puffy-eyes/)
+- [how to deal with dry lips](https://skincare.allwomenstalk.com/ways-to-deal-with-dry-lips/)
+- [vampire dont come to my house](https://twilight.allwomenstalk.com/5-ways-to-keep-a-vampire-out-of-your-house/)
+- [healing bruises quickly](https://skincare.allwomenstalk.com/ways-to-heal-bruises-quickly/)
 - [why werewolf and vampires are enemies](https://twilight.allwomenstalk.com/5-ways-to-permanently-kill-a-werewolf/)
+- [7 Ways to Prevent UTIs ...](https://allwomenstalk.com/ways-to-prevent-utis/)
 - [10 Simple but Very Practical Ways to Get Rid of Ce...](https://skincare.allwomenstalk.com/simple-but-very-practical-ways-to-get-rid-of-cellulite/)
+- [uses for avocado oil](https://cooking.allwomenstalk.com/ways-to-use-infused-avocado-oils/)
+- [does vaseline work for under eye bags](https://beauty.allwomenstalk.com/great-remedies-for-puffy-eyes/)
+- [7 Ways to Treat a Sunburn ...](https://skincare.allwomenstalk.com/ways-to-treat-a-sunburn/)
 - [9 Simple Tips for Creating Your Own Diet ...](https://diet.allwomenstalk.com/simple-tips-for-creating-your-own-diet/)
 - [8 Tips on How to Lose 10 Pounds Fast ...](https://diet.allwomenstalk.com/tips-on-how-to-lose-10-pounds-fast/)
 

@@ -59,16 +59,16 @@ Luckily, even though there are many foods to avoid if you suffer from hypothyroi
 
 ## Related Posts
 
+- [alimentos superfood](https://food.allwomenstalk.com/exotic-superfoods-that-keep-you-healthy/)
+- [foods with bromine in them](https://food.allwomenstalk.com/toxic-ingredients-to-watch-out-for-in-food/)
+- [environmentally friendly food brands](https://food.allwomenstalk.com/food-companies-that-support-the-environment/)
+- [can sugar cause anxiety and panic attacks](https://food.allwomenstalk.com/critical-foods-to-avoid-if-you-suffer-from-anxiety/)
+- [what do celebrities eat for breakfast](https://celebs.allwomenstalk.com/things-celebrities-love-to-eat-for-breakfast/)
+- [foods to eat for recovery](https://food.allwomenstalk.com/foods-that-are-great-for-eating-disorder-recovery/)
+- [sweet potatoes estrogen dominance](https://food.allwomenstalk.com/hormone-balancing-foods-to-cool-you-off/)
+- [using xanthan gum in smoothies](https://food.allwomenstalk.com/astounding-substitutes-for-bananas-in-smoothies-that-are-just-as-delicious/)
 - [are lentils good after a workout](https://fitness.allwomenstalk.com/plant-based-proteins-to-help-you-recover-after-your-next-workout/)
 - [easy breakfast smoothie](https://food.allwomenstalk.com/healthy-smoothie-powders-to-try/)
-- [foods with bromine in them](https://food.allwomenstalk.com/toxic-ingredients-to-watch-out-for-in-food/)
-- [can sugar cause anxiety and panic attacks](https://food.allwomenstalk.com/critical-foods-to-avoid-if-you-suffer-from-anxiety/)
-- [environmentally friendly food brands](https://food.allwomenstalk.com/food-companies-that-support-the-environment/)
-- [sweet potatoes estrogen dominance](https://food.allwomenstalk.com/hormone-balancing-foods-to-cool-you-off/)
-- [what do celebrities eat for breakfast](https://celebs.allwomenstalk.com/things-celebrities-love-to-eat-for-breakfast/)
-- [using xanthan gum in smoothies](https://food.allwomenstalk.com/astounding-substitutes-for-bananas-in-smoothies-that-are-just-as-delicious/)
-- [alimentos superfood](https://food.allwomenstalk.com/exotic-superfoods-that-keep-you-healthy/)
-- [foods to eat for recovery](https://food.allwomenstalk.com/foods-that-are-great-for-eating-disorder-recovery/)
 - [7 Foods to Avoid While Pregnant ...](https://parenting.allwomenstalk.com/7-foods-to-avoid-while-pregnant/)
 - [7 Foods Athletes Should Avoid ...](https://health.allwomenstalk.com/foods-athletes-should-avoid/)
 

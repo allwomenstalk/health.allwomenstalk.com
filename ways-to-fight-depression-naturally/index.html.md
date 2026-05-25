@@ -47,15 +47,15 @@ Remember, if your depression is deep, it may take a lot of perseverance to root 
 ## Related Posts
 
 - [cure boredom](https://lifestyle.allwomenstalk.com/simple-ways-to-cure-your-boredom-and-make-your-day-exciting-again/)
-- [a case of the mondays](https://inspiration.allwomenstalk.com/tips-on-how-to-cure-a-case-of-the-mondays/)
-- [zazen meditation benefits](https://health.allwomenstalk.com/essential-benefits-of-adopting-the-practice-of-zen-meditation/)
-- [peaceful concerted activities](https://lifestyle.allwomenstalk.com/relaxing-outdoor-activities-that-offer-peace-of-mind/)
-- [mantras to stop binge eating](https://inspiration.allwomenstalk.com/positive-mantras-to-overcome-stress-that-work-like-a-charm/)
-- [how to beat monday morning blues](https://lifestyle.allwomenstalk.com/ways-to-beat-the-monday-blues/)
-- [dale carnegie anxiety](https://inspiration.allwomenstalk.com/ways-to-stop-worrying-based-on-dale-carnegies-top-tips/)
-- [how to focus without adderall](https://lifestyle.allwomenstalk.com/ways-to-get-through-a-study-session-that-dont-involve-adderall/)
-- [natural way to calm nerves](https://health.allwomenstalk.com/natural-and-easy-ways-to-calm-your-nerves/)
 - [work stress tips](https://money.allwomenstalk.com/useful-tips-on-how-manage-work-stress/)
+- [how to focus without adderall](https://lifestyle.allwomenstalk.com/ways-to-get-through-a-study-session-that-dont-involve-adderall/)
+- [peaceful concerted activities](https://lifestyle.allwomenstalk.com/relaxing-outdoor-activities-that-offer-peace-of-mind/)
+- [dale carnegie anxiety](https://inspiration.allwomenstalk.com/ways-to-stop-worrying-based-on-dale-carnegies-top-tips/)
+- [mantras to stop binge eating](https://inspiration.allwomenstalk.com/positive-mantras-to-overcome-stress-that-work-like-a-charm/)
+- [zazen meditation benefits](https://health.allwomenstalk.com/essential-benefits-of-adopting-the-practice-of-zen-meditation/)
+- [a case of the mondays](https://inspiration.allwomenstalk.com/tips-on-how-to-cure-a-case-of-the-mondays/)
+- [how to beat monday morning blues](https://lifestyle.allwomenstalk.com/ways-to-beat-the-monday-blues/)
+- [natural way to calm nerves](https://health.allwomenstalk.com/natural-and-easy-ways-to-calm-your-nerves/)
 - [8 Foods That Fight Pain ...](https://cooking.allwomenstalk.com/foods-that-fight-pain/)
 - [9 Ways to Beat the Winter Blues ...](https://lifestyle.allwomenstalk.com/ways-to-beat-the-winter-blues/)
 

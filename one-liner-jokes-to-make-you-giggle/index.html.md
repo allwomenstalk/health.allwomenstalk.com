@@ -98,16 +98,16 @@ And there you have it, 21 one liners that hopefully made you giggle… if only j
 
 ## Related Posts
 
-- [9 Funny Chat up Lines for Women ...](https://love.allwomenstalk.com/funny-chat-up-lines-for-women/)
 - [mental sharpness games](https://health.allwomenstalk.com/brain-teaser-games-that-keep-your-mind-sharp-and-make-your-smarter/)
-- [9 Hilarious Memes Taking over the Net ...](https://7fun.net/hilarious-memes-taking-over-the-net/)
-- [haert tattoo](https://bodyart.allwomenstalk.com/frustrating-comments-people-with-tattoos-have-heard-at-some-point/)
-- [what to say in awkward silence](https://inspiration.allwomenstalk.com/things-to-say-in-awkward-silences/)
-- [chinese dialect list](https://travel.allwomenstalk.com/different-chinese-dialects-and-where-they-come-from/)
-- [what words were recently added to the dictionary](https://lifestyle.allwomenstalk.com/words-recently-added-to-the-english-dictionary/)
-- [7 of the Funniest and Strangest Things Teachers Ar...](https://funny.allwomenstalk.com/of-the-funniest-and-strangest-things-teachers-are-asked-by-highschool-kids/)
-- [7 Things Vegetarians Hear All the Time ...](https://funny.allwomenstalk.com/things-vegetarians-hear-all-the-time/)
 - [17 Baby Names That I Wouldnt Be Surprised to Hear ...](https://funny.allwomenstalk.com/baby-names-that-i-wouldnt-be-surprised-to-hear-in-the-future/)
+- [chinese dialect list](https://travel.allwomenstalk.com/different-chinese-dialects-and-where-they-come-from/)
+- [what to say in awkward silence](https://inspiration.allwomenstalk.com/things-to-say-in-awkward-silences/)
+- [7 of the Funniest and Strangest Things Teachers Ar...](https://funny.allwomenstalk.com/of-the-funniest-and-strangest-things-teachers-are-asked-by-highschool-kids/)
+- [9 Funny Chat up Lines for Women ...](https://love.allwomenstalk.com/funny-chat-up-lines-for-women/)
+- [7 Things Vegetarians Hear All the Time ...](https://funny.allwomenstalk.com/things-vegetarians-hear-all-the-time/)
+- [what words were recently added to the dictionary](https://lifestyle.allwomenstalk.com/words-recently-added-to-the-english-dictionary/)
+- [haert tattoo](https://bodyart.allwomenstalk.com/frustrating-comments-people-with-tattoos-have-heard-at-some-point/)
+- [9 Hilarious Memes Taking over the Net ...](https://7fun.net/hilarious-memes-taking-over-the-net/)
 - [10 Famous Movie One Liners ...](https://movies.allwomenstalk.com/10-famous-movie-one-liners/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)
 

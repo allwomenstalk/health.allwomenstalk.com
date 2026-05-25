@@ -44,15 +44,15 @@ Are you in touch with your chakras?
 
 ## Related Posts
 
-- [bad life hacks](https://lifestyle.allwomenstalk.com/genius-life-hacks-every-human-should-know/)
-- [boring life](https://lifestyle.allwomenstalk.com/tips-to-stop-living-a-boring-life/)
-- [separate yourself from negativity](https://inspiration.allwomenstalk.com/how-to-separate-yourself-from-negativity/)
+- [how to change your lifestyle](https://inspiration.allwomenstalk.com/ways-you-can-change-your-life-in-a-week/)
+- [embracing my own self worth](https://inspiration.allwomenstalk.com/how-to-realize-and-embrace-your-self-worth/)
+- [yoga sangha](https://fitness.allwomenstalk.com/how-to-find-your-yoga-sangha/)
 - [brain rewiring for health and happiness](https://inspiration.allwomenstalk.com/how-to-rewire-your-brain-to-be-happier/)
 - [weirdo love](https://inspiration.allwomenstalk.com/how-to-embrace-and-love-your-inner-weirdo/)
+- [boring life](https://lifestyle.allwomenstalk.com/tips-to-stop-living-a-boring-life/)
+- [bad life hacks](https://lifestyle.allwomenstalk.com/genius-life-hacks-every-human-should-know/)
 - [waste money gif](https://inspiration.allwomenstalk.com/life-choices-you-can-make-every-morning/)
-- [embracing my own self worth](https://inspiration.allwomenstalk.com/how-to-realize-and-embrace-your-self-worth/)
-- [how to change your lifestyle](https://inspiration.allwomenstalk.com/ways-you-can-change-your-life-in-a-week/)
-- [yoga sangha](https://fitness.allwomenstalk.com/how-to-find-your-yoga-sangha/)
+- [separate yourself from negativity](https://inspiration.allwomenstalk.com/how-to-separate-yourself-from-negativity/)
 - [opening a new chapter](https://inspiration.allwomenstalk.com/how-to-start-a-new-chapter-in-your-life/)
 - [7 Top Yoga Blogs ...](https://allwomenstalk.com/top-yoga-blogs/)
 - [8 Baby Steps to Spiritual Health ...](https://health.allwomenstalk.com/baby-steps-to-spiritual-health/)

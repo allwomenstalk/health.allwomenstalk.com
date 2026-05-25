@@ -43,15 +43,15 @@ As you can see, there’s so much more to your eyes than meets the… eye. Do yo
 ## Related Posts
 
 - [sloth cool facts](https://lifestyle.allwomenstalk.com/informative-and-entertaining-fun-facts-about-sloths/)
-- [funny facts about wyoming](https://travel.allwomenstalk.com/unique-facts-about-living-in-wyoming/)
-- [where did the princess and the frog take place](https://movies.allwomenstalk.com/fun-facts-about-disneys-the-princess-and-the-frog/)
-- [true but unbelievable facts](https://lifestyle.allwomenstalk.com/crazy-facts-you-wont-believe-are-true/)
 - [how old is anna shaman king](https://movies.allwomenstalk.com/things-to-know-about-anna-and-the-king/)
-- [interesting facts about washington](https://travel.allwomenstalk.com/fun-facts-about-washington-d-c/)
-- [is quark lactose free](https://food.allwomenstalk.com/facts-about-quark-you-should-know/)
-- [do it on a dime](https://beauty.allwomenstalk.com/interesting-characteristics-of-a-dime/)
 - [fun facts about womens suffrage](https://lifestyle.allwomenstalk.com/interesting-facts-about-womens-suffrage-in-the-us/)
+- [interesting facts about washington](https://travel.allwomenstalk.com/fun-facts-about-washington-d-c/)
 - [medium physics facts](https://lifestyle.allwomenstalk.com/mind-bending-physics-facts/)
+- [do it on a dime](https://beauty.allwomenstalk.com/interesting-characteristics-of-a-dime/)
+- [true but unbelievable facts](https://lifestyle.allwomenstalk.com/crazy-facts-you-wont-believe-are-true/)
+- [where did the princess and the frog take place](https://movies.allwomenstalk.com/fun-facts-about-disneys-the-princess-and-the-frog/)
+- [is quark lactose free](https://food.allwomenstalk.com/facts-about-quark-you-should-know/)
+- [funny facts about wyoming](https://travel.allwomenstalk.com/unique-facts-about-living-in-wyoming/)
 - [7 Pregnancy Facts You Should Know ...](https://parenting.allwomenstalk.com/pregnancy-facts-you-should-know/)
 - [7 Tips for Saving Your Eyesight ...](https://health.allwomenstalk.com/7-tips-for-saving-your-eyesight/)
 

@@ -48,16 +48,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/10024813)
 
 ## Related Posts
 
-- [what to do in a sauna to pass time](https://health.allwomenstalk.com/great-things-to-do-in-a-sauna/)
-- [things to do on break at work](https://lifestyle.allwomenstalk.com/fun-things-to-do-on-your-lunch-break/)
-- [party guests](https://lifestyle.allwomenstalk.com/sure-ways-to-keep-your-party-guests-happy/)
 - [oh what a lovely tea party](https://lifestyle.allwomenstalk.com/tea-party-ideas/)
-- [picnic friendly food](https://lifestyle.allwomenstalk.com/great-picnic-basket-ideas-for-a-great-day-out/)
-- [sportsyou](https://lifestyle.allwomenstalk.com/water-sports-you-should-try/)
+- [9 Ways to Throw an Awesome Holiday Party ...](https://lifestyle.allwomenstalk.com/ways-to-throw-an-awesome-holiday-party/)
+- [what to do in a sauna to pass time](https://health.allwomenstalk.com/great-things-to-do-in-a-sauna/)
 - [10 fun things to do at home](https://lifestyle.allwomenstalk.com/fun-things-to-do-at-home/)
 - [sweet 16 cards](https://lifestyle.allwomenstalk.com/ideas-for-a-sweet-16-birthday-party/)
 - [7 Things to do While You Are Sick ...](https://health.allwomenstalk.com/7-things-to-do-while-you-are-sick/)
-- [9 Ways to Throw an Awesome Holiday Party ...](https://lifestyle.allwomenstalk.com/ways-to-throw-an-awesome-holiday-party/)
+- [things to do on break at work](https://lifestyle.allwomenstalk.com/fun-things-to-do-on-your-lunch-break/)
+- [picnic friendly food](https://lifestyle.allwomenstalk.com/great-picnic-basket-ideas-for-a-great-day-out/)
+- [sportsyou](https://lifestyle.allwomenstalk.com/water-sports-you-should-try/)
+- [party guests](https://lifestyle.allwomenstalk.com/sure-ways-to-keep-your-party-guests-happy/)
 - [8 Summer Beauty Tips ...](https://skincare.allwomenstalk.com/summer-beauty-tips/)
 - [8 Spots to Massage Your Stress Away ...](https://health.allwomenstalk.com/spots-to-massage-your-stress-away/)
 

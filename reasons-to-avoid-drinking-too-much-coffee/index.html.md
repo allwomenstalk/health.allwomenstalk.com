@@ -46,16 +46,16 @@ Now you know, you can ask yourself, “am I drinking too much coffee?”
 
 ## Related Posts
 
-- [7 Reasons Why You Are Attracting Mr. Wrong ...](https://love.allwomenstalk.com/reasons-why-you-are-attracting-mr-wrong/)
-- [7 Reasons Not to Drink as a Teen ...](https://health.allwomenstalk.com/reasons-not-to-drink-as-a-teen/)
+- [8 Reasons Not to Stay Friends with an Ex ...](https://love.allwomenstalk.com/reasons-not-to-stay-friends-with-an-ex/)
 - [7 Reasons Why Settling down Can Wait ...](https://love.allwomenstalk.com/reasons-why-settling-down-can-wait/)
 - [7 Reasons Its Okay if He Isnt the One ...](https://love.allwomenstalk.com/reasons-its-okay-if-he-isnt-the-one/)
-- [7 Reasons to Avoid the Tanning Bed ...](https://health.allwomenstalk.com/reasons-to-avoid-the-tanning-bed/)
 - [reasons why couples stay together](https://love.allwomenstalk.com/unhealthy-reasons-why-couples-stay-together/)
-- [7 Reasons Not to Take the Hipster Label Seriously ...](https://lifestyle.allwomenstalk.com/reasons-not-to-take-the-hipster-label-seriously/)
-- [8 Reasons Not to Stay Friends with an Ex ...](https://love.allwomenstalk.com/reasons-not-to-stay-friends-with-an-ex/)
+- [7 Reasons Why You Are Attracting Mr. Wrong ...](https://love.allwomenstalk.com/reasons-why-you-are-attracting-mr-wrong/)
+- [7 Reasons Not to Drink as a Teen ...](https://health.allwomenstalk.com/reasons-not-to-drink-as-a-teen/)
 - [7 Reasons Why Its Important to Go through Failure ...](https://inspiration.allwomenstalk.com/reasons-why-its-important-to-go-through-failure/)
+- [7 Reasons to Avoid the Tanning Bed ...](https://health.allwomenstalk.com/reasons-to-avoid-the-tanning-bed/)
 - [7 Sound Reasons Not to Have Cosmetic Surgery on Yo...](https://beauty.allwomenstalk.com/sound-reasons-not-to-have-cosmetic-surgery-on-your-face/)
+- [7 Reasons Not to Take the Hipster Label Seriously ...](https://lifestyle.allwomenstalk.com/reasons-not-to-take-the-hipster-label-seriously/)
 - [7 Things to Avoid when You Quit Smoking ...](https://health.allwomenstalk.com/7-things-to-avoid-when-you-quit-smoking/)
 - [10 Reasons to Avoid Going to Bars ...](https://allwomenstalk.com/10-reasons-to-avoid-going-to-bars/)
 

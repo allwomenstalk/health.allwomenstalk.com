@@ -44,16 +44,16 @@ Using essential oils for oral health is so easy. With any of these oils you can 
 
 ## Related Posts
 
-- [how to properly use vicks](https://diy.allwomenstalk.com/ways-to-use-vicks-vapor-rub/)
-- [uses for tea](https://diy.allwomenstalk.com/interesting-ways-you-can-use-tea/)
+- [bearable app](https://health.allwomenstalk.com/that-time-of-the-month-heres-how-to-make-your-period-more-bearable/)
+- [ear pain in-flight remedies](https://travel.allwomenstalk.com/ways-to-cope-with-airplane-ear-pain/)
+- [best herbs to boost immune system](https://food.allwomenstalk.com/best-herbs-to-boost-immunity/)
+- [combating water retention](https://health.allwomenstalk.com/ways-to-fight-water-retention/)
 - [how to get rid of red eyes from allergies](https://beauty.allwomenstalk.com/how-to-cure-your-red-eyes-from-allergies/)
 - [honey for warts](https://health.allwomenstalk.com/homemade-remedies-for-warts/)
+- [how to properly use vicks](https://diy.allwomenstalk.com/ways-to-use-vicks-vapor-rub/)
+- [uses for tea](https://diy.allwomenstalk.com/interesting-ways-you-can-use-tea/)
 - [how to hide a hangover](https://beauty.allwomenstalk.com/got-a-hangover-surefire-ways-to-hide-it/)
-- [combating water retention](https://health.allwomenstalk.com/ways-to-fight-water-retention/)
-- [ear pain in-flight remedies](https://travel.allwomenstalk.com/ways-to-cope-with-airplane-ear-pain/)
 - [exercises to help with period cramps](https://fitness.allwomenstalk.com/the-cure-to-menstrual-cramps-exercises-to-do-during-your-period/)
-- [best herbs to boost immune system](https://food.allwomenstalk.com/best-herbs-to-boost-immunity/)
-- [bearable app](https://health.allwomenstalk.com/that-time-of-the-month-heres-how-to-make-your-period-more-bearable/)
 - [7 Top Tips for Cleaning Your Teeth ...](https://health.allwomenstalk.com/top-tips-for-cleaning-your-teeth/)
 - [7 Great Toothpastes for a Whiter Smile ...](https://allwomenstalk.com/7-great-toothpastes-for-a-whiter-smile/)
 

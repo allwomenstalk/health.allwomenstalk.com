@@ -56,16 +56,16 @@ The more we strive to look like everyone else, the more common the look will bec
 
 ## Related Posts
 
-- [life lessons to teach your daughter](https://parenting.allwomenstalk.com/best-lessons-to-teach-your-daughter/)
-- [without manners](https://lifestyle.allwomenstalk.com/must-have-manners-many-women-dont-use-but-should/)
-- [how to act like a lady](https://lifestyle.allwomenstalk.com/rules-of-being-a-lady-that-just-dont-make-sense/)
-- [list of movie cliches](https://movies.allwomenstalk.com/romantic-movie-cliches-girls-crave-in-real-life/)
-- [good manners girl](https://inspiration.allwomenstalk.com/manners-every-girl-should-have/)
-- [7 types of friends](https://lifestyle.allwomenstalk.com/types-of-friends-every-girl-needs-in-her-life/)
-- [life with a college girl](https://lifestyle.allwomenstalk.com/mistakes-every-girl-makes-her-freshman-year-in-college/)
 - [women are doing it for themselves](https://lifestyle.allwomenstalk.com/things-independent-women-should-learn-to-do-themselves/)
+- [good manners girl](https://inspiration.allwomenstalk.com/manners-every-girl-should-have/)
+- [list of movie cliches](https://movies.allwomenstalk.com/romantic-movie-cliches-girls-crave-in-real-life/)
+- [how to act like a lady](https://lifestyle.allwomenstalk.com/rules-of-being-a-lady-that-just-dont-make-sense/)
+- [without manners](https://lifestyle.allwomenstalk.com/must-have-manners-many-women-dont-use-but-should/)
 - [what to teach your daughter](https://parenting.allwomenstalk.com/ways-to-teach-your-daughter-to-be-a-lady/)
 - [what are the advantages of being a girl](https://inspiration.allwomenstalk.com/reasons-its-great-to-be-a-girl/)
+- [life with a college girl](https://lifestyle.allwomenstalk.com/mistakes-every-girl-makes-her-freshman-year-in-college/)
+- [7 types of friends](https://lifestyle.allwomenstalk.com/types-of-friends-every-girl-needs-in-her-life/)
+- [life lessons to teach your daughter](https://parenting.allwomenstalk.com/best-lessons-to-teach-your-daughter/)
 - [7 Moods That Are Common to Most Women ...](https://health.allwomenstalk.com/7-moods-that-are-common-to-most-women/)
 - [7 Ways We Shame Other Women ...](https://inspiration.allwomenstalk.com/ways-we-shame-other-women/)
 

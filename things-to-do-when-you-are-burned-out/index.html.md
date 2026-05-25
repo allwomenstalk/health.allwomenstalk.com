@@ -42,16 +42,16 @@ Everyone gets burned out sooner or later. That feeling that everything around yo
 
 ## Related Posts
 
-- [7 Ways to Improve a Bad Day ...](https://inspiration.allwomenstalk.com/ways-to-improve-a-bad-day/)
-- [7 Simple Ways to Reduce Stress While Flying ...](https://travel.allwomenstalk.com/simple-ways-to-reduce-stress-while-flying/)
-- [7 Ways to Overcome Depression Naturally ...](https://mindfulness.allwomenstalk.com/ways-to-overcome-depression-naturally/)
-- [8 Ways to Stop Being a Perfectionist ...](https://inspiration.allwomenstalk.com/ways-to-stop-being-a-perfectionist/)
-- [productive things to do in doctors waiting room](https://health.allwomenstalk.com/ways-to-be-productive-in-waiting-rooms/)
 - [7 TIPS on SURVIVING STRESSFUL SITUATIONS like a SU...](https://health.allwomenstalk.com/tips-on-surviving-stressful-situations/)
+- [8 Ways to Stop Being a Perfectionist ...](https://inspiration.allwomenstalk.com/ways-to-stop-being-a-perfectionist/)
 - [7 Things to do when Youre Suffering from a Panic A...](https://health.allwomenstalk.com/things-to-do-when-youre-suffering-from-a-panic-attack/)
 - [honeymoon blues meaning](https://love.allwomenstalk.com/ways-to-beat-the-post-honeymoon-blues/)
-- [7 Reasons Running Relieves Stress ...](https://running.allwomenstalk.com/reasons-running-relieves-stress/)
 - [8 Relaxation Techniques ...](https://inspiration.allwomenstalk.com/relaxation-techniques/)
+- [7 Ways to Improve a Bad Day ...](https://inspiration.allwomenstalk.com/ways-to-improve-a-bad-day/)
+- [7 Simple Ways to Reduce Stress While Flying ...](https://travel.allwomenstalk.com/simple-ways-to-reduce-stress-while-flying/)
+- [7 Reasons Running Relieves Stress ...](https://running.allwomenstalk.com/reasons-running-relieves-stress/)
+- [7 Ways to Overcome Depression Naturally ...](https://mindfulness.allwomenstalk.com/ways-to-overcome-depression-naturally/)
+- [productive things to do in doctors waiting room](https://health.allwomenstalk.com/ways-to-be-productive-in-waiting-rooms/)
 - [7 Ways to Beat Post-Vacation Blues ...](https://travel.allwomenstalk.com/ways-to-beat-post-vacation-blues/)
 - [5 Things to do when Bored...](https://allwomenstalk.com/5-things-to-do-when-bored/)
 

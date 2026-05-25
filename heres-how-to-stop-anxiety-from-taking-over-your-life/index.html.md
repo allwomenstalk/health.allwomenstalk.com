@@ -46,14 +46,14 @@ Anxiety can be very debilitating, but it is possible to learn to manage and redu
 
 - [average girl](https://lifestyle.allwomenstalk.com/an-average-girls-guide-to-living-an-exciting-life/)
 - [Awesome Tips for Girls Who Want Their Vacay to Las...](https://lifestyle.allwomenstalk.com/heres-how-to-make-your-vacay-last-even-after-you-get-home/)
+- [Reasons All Girls Should save Their Change ...](https://money.allwomenstalk.com/reasons-why-every-girl-must-have-a-change-jar/)
+- [How to Learn to Love Vegetables for Girls Who Just...](https://diet.allwomenstalk.com/how-you-can-learn-to-love-vegetables/)
 - [supplement organization ideas](https://lifestyle.allwomenstalk.com/x-mind-blowing-home-organizing-hacks-every-girl-must-know/)
 - [30 Days No Spending Challenge for Girls Who Need a...](https://money.allwomenstalk.com/what-you-can-learn-from-going-days-without-spending/)
 - [Essential Dating Experiences All Women Should Have...](https://love.allwomenstalk.com/dating-experiences-every-woman-should-have/)
-- [How to Learn to Love Vegetables for Girls Who Just...](https://diet.allwomenstalk.com/how-you-can-learn-to-love-vegetables/)
-- [7 Insightful Tips for Girls Dealing with Boyfriend...](https://love.allwomenstalk.com/tips-for-dealing-with-your-bfs-bad-habits/)
-- [7 Times We All Feel Our Prettiest for Girls Needin...](https://beauty.allwomenstalk.com/times-when-you-look-your-prettiest/)
 - [How to Be More  Front with Your Feelings for Girls...](https://love.allwomenstalk.com/the-trick-to-being-more-forward-about-your-feelings/)
-- [Reasons All Girls Should save Their Change ...](https://money.allwomenstalk.com/reasons-why-every-girl-must-have-a-change-jar/)
+- [7 Times We All Feel Our Prettiest for Girls Needin...](https://beauty.allwomenstalk.com/times-when-you-look-your-prettiest/)
+- [7 Insightful Tips for Girls Dealing with Boyfriend...](https://love.allwomenstalk.com/tips-for-dealing-with-your-bfs-bad-habits/)
 - [Empowering Steps for Girls Who Want to Be More Min...](https://inspiration.allwomenstalk.com/steps-to-mindfulness-that-will-make-you-feel-amazing/)
 - [Life Changing Tips to Finding Inner Peace for Girl...](https://inspiration.allwomenstalk.com/steps-to-healing-your-hidden-hurts/)
 

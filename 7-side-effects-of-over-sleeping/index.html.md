@@ -44,16 +44,16 @@ Top Photo Credit: [lostinacrowd](https://goo.gl/Kr0ehT)
 
 ## Related Posts
 
-- [nose cones for snoring](https://love.allwomenstalk.com/ways-to-help-your-guy-stop-snoring/)
 - [ADHD and Sleep ...](https://allwomenstalk.com/3-14/)
+- [nose cones for snoring](https://love.allwomenstalk.com/ways-to-help-your-guy-stop-snoring/)
 - [gf bf sleeping pic](https://allwomenstalk.com/you-may-sleep-better/)
-- [How Sleep Apnea Can Hurt a Relationship.](https://allwomenstalk.com/how-sleep-apnea-can-hurt-a-relationship/)
+- [couple goals sleep](https://allwomenstalk.com/quick-tip-allot-ample-sleep-time/)
+- [nap time for adults](https://allwomenstalk.com/why-dont-adults-have-nap-time-2/)
+- [How to Prevent a Nightmare from Happening ...](https://allwomenstalk.com/how-to-prevent-a-nightmare-from-happening-2/)
+- [7 Tips on Dealing with Recurring Nightmares ...](https://health.allwomenstalk.com/tips-on-dealing-with-recurring-nightmares/)
 - [9 Tips to Avoid Fatigue in the Afternoon ...](https://health.allwomenstalk.com/tips-to-avoid-fatigue-in-the-afternoon/)
 - [Sleep Apnea ...](https://allwomenstalk.com/sleep-apnea/)
-- [How to Prevent a Nightmare from Happening ...](https://allwomenstalk.com/how-to-prevent-a-nightmare-from-happening-2/)
-- [nap time for adults](https://allwomenstalk.com/why-dont-adults-have-nap-time-2/)
-- [couple goals sleep](https://allwomenstalk.com/quick-tip-allot-ample-sleep-time/)
-- [7 Tips on Dealing with Recurring Nightmares ...](https://health.allwomenstalk.com/tips-on-dealing-with-recurring-nightmares/)
+- [How Sleep Apnea Can Hurt a Relationship.](https://allwomenstalk.com/how-sleep-apnea-can-hurt-a-relationship/)
 - [7 Foods to Avoid for a Good Nights Sleep ...](https://allwomenstalk.com/7-foods-to-avoid-for-a-good-nights-sleep/)
 - [7 Signs You Have Sleeping Problems ...](https://allwomenstalk.com/7-signs-you-have-sleeping-problems/)
 

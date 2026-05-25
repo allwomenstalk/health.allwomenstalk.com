@@ -56,16 +56,16 @@ Are you on any of these meds? You aren’t eating these foods with them are you?
 
 ## Related Posts
 
-- [what is the business of fred and sarahs conversati...](https://love.allwomenstalk.com/things-you-should-never-ever-do-when-flirting/)
-- [17 Silly Things Never to do Just Because of a Boy ...](https://love.allwomenstalk.com/silly-things-you-should-never-do-because-of-a-boy/)
-- [Be Safe in a World of Crazy : Never  Post These on...](https://apps.allwomenstalk.com/personal-info-to-never-post-on-social-media-for-girls-who-want-to-be-safe/)
 - [Ridiculous Relationship Advice That You Should Alw...](https://love.allwomenstalk.com/ridiculous-relationship-advice-that-you-should-always-ignore/)
-- [Awkward Questions to Avoid on a First Date if You ...](https://love.allwomenstalk.com/awkward-questions-to-avoid-on-a-first-date-if-you-want-a-second-date/)
-- [gym pics we cant unsee](https://inspiration.allwomenstalk.com/this-is-why-bodyshaming-is-never-cool-even-in-private/)
-- [9 People You Might Want to Block on Snapchat ...](https://gadgets.allwomenstalk.com/people-you-might-want-to-block-on-snapchat/)
 - [NEVER do These Things when Things Are Heating up i...](https://love.allwomenstalk.com/never-do-these-things-when-things-are-heating-up-in-the-bedroom/)
+- [9 People You Might Want to Block on Snapchat ...](https://gadgets.allwomenstalk.com/people-you-might-want-to-block-on-snapchat/)
+- [Be Safe in a World of Crazy : Never  Post These on...](https://apps.allwomenstalk.com/personal-info-to-never-post-on-social-media-for-girls-who-want-to-be-safe/)
+- [what is the business of fred and sarahs conversati...](https://love.allwomenstalk.com/things-you-should-never-ever-do-when-flirting/)
 - [People Suck - and These Are the Types You Need to ...](https://lifestyle.allwomenstalk.com/types-of-people-you-dont-need-to-be-nice-to-ever/)
+- [gym pics we cant unsee](https://inspiration.allwomenstalk.com/this-is-why-bodyshaming-is-never-cool-even-in-private/)
+- [Awkward Questions to Avoid on a First Date if You ...](https://love.allwomenstalk.com/awkward-questions-to-avoid-on-a-first-date-if-you-want-a-second-date/)
 - [Rules of Denim You Shouldnt Follow ...](https://fashion.allwomenstalk.com/rules-of-denim-you-shouldnt-follow/)
+- [17 Silly Things Never to do Just Because of a Boy ...](https://love.allwomenstalk.com/silly-things-you-should-never-do-because-of-a-boy/)
 - [7 Reasons to Put That Soda down and Choose a Healt...](https://health.allwomenstalk.com/reasons-to-put-that-soda-down-and-choose-a-healthy-drink-instead/)
 - [Beneficial Reasons to Avoid Fast Food like Its the...](https://food.allwomenstalk.com/reasons-to-avoid-fast-food-like-its-the-plague/)
 

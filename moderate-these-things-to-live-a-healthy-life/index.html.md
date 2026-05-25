@@ -50,16 +50,16 @@ What things do you think you should personally moderate to make your life better
 
 ## Related Posts
 
-- [riche le stylo eye primped and previous](https://lifestyle.allwomenstalk.com/do-these-things-tonight-for-a-better-tomorrow/)
-- [embracing my own self worth](https://inspiration.allwomenstalk.com/how-to-realize-and-embrace-your-self-worth/)
 - [yoga sangha](https://fitness.allwomenstalk.com/how-to-find-your-yoga-sangha/)
-- [boring life](https://lifestyle.allwomenstalk.com/tips-to-stop-living-a-boring-life/)
 - [beginner chakra](https://health.allwomenstalk.com/the-beginners-guide-to-the-chakras/)
-- [inspire the uninspired](https://inspiration.allwomenstalk.com/feeling-uninspired-find-inspiration-in-these-things/)
+- [riche le stylo eye primped and previous](https://lifestyle.allwomenstalk.com/do-these-things-tonight-for-a-better-tomorrow/)
 - [how to live a happy life alone](https://inspiration.allwomenstalk.com/how-to-be-happy-being-alone/)
-- [how to change your lifestyle](https://inspiration.allwomenstalk.com/ways-you-can-change-your-life-in-a-week/)
 - [waste money gif](https://inspiration.allwomenstalk.com/life-choices-you-can-make-every-morning/)
+- [embracing my own self worth](https://inspiration.allwomenstalk.com/how-to-realize-and-embrace-your-self-worth/)
+- [inspire the uninspired](https://inspiration.allwomenstalk.com/feeling-uninspired-find-inspiration-in-these-things/)
 - [brain rewiring for health and happiness](https://inspiration.allwomenstalk.com/how-to-rewire-your-brain-to-be-happier/)
+- [how to change your lifestyle](https://inspiration.allwomenstalk.com/ways-you-can-change-your-life-in-a-week/)
+- [boring life](https://lifestyle.allwomenstalk.com/tips-to-stop-living-a-boring-life/)
 - [7 Tips to Maintain Good Health ...](https://health.allwomenstalk.com/tips-to-maintain-good-health/)
 - [10 Things to Know to Stay Healthy ...](https://health.allwomenstalk.com/things-to-know-to-stay-healthy/)
 

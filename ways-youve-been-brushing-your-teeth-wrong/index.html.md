@@ -56,14 +56,14 @@ Have you been brushing your teeth wrong?
 
 ## Related Posts
 
+- [le stylo eye always pink](https://health.allwomenstalk.com/things-you-should-do-when-you-get-pink-eye/)
 - [Myths about Birth Control Pills That Sexually Acti...](https://health.allwomenstalk.com/myths-about-birth-control-pills-that-sexually-active-women-should-know/)
 - [Skip the Doctor : This Chart Will Tell You Why You...](https://health.allwomenstalk.com/skip-the-doctor-this-chart-will-tell-you-why-youre-sick/)
 - [These Things Are Actually Making Your Period Worse...](https://health.allwomenstalk.com/these-things-are-actually-making-your-period-worse/)
-- [Health Tests You Need to Schedule for Sometime  in...](https://health.allwomenstalk.com/schedule-these-health-tests-for-some-time-in/)
-- [What to Expect during Your Very First Gynecologica...](https://health.allwomenstalk.com/what-to-expect-during-your-very-first-gynecological-visit/)
-- [le stylo eye always pink](https://health.allwomenstalk.com/things-you-should-do-when-you-get-pink-eye/)
 - [Do These Things to Reduce Risk of Breast Cancer .....](https://health.allwomenstalk.com/do-these-things-to-reduce-risk-of-breast-cancer/)
 - [7 Life Events That Can Lead to a Heart Attack ...](https://health.allwomenstalk.com/life-events-that-can-lead-to-a-heart-attack/)
+- [Health Tests You Need to Schedule for Sometime  in...](https://health.allwomenstalk.com/schedule-these-health-tests-for-some-time-in/)
+- [What to Expect during Your Very First Gynecologica...](https://health.allwomenstalk.com/what-to-expect-during-your-very-first-gynecological-visit/)
 - [The Answers to All of Your Embarrassing Period Que...](https://health.allwomenstalk.com/the-answers-to-all-of-your-embarrassing-period-questions/)
 - [These Shocking Things Are Triggering Your Anxiety ...](https://health.allwomenstalk.com/these-shocking-things-are-triggering-your-anxiety-watch-out/)
 - [7 Top Tips for Cleaning Your Teeth ...](https://health.allwomenstalk.com/top-tips-for-cleaning-your-teeth/)

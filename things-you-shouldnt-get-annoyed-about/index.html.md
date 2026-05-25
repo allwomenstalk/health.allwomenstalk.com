@@ -42,16 +42,16 @@ We can't help getting annoyed sometimes; but we can choose how much we let ourse
 
 ## Related Posts
 
+- [7 Things You Dont Want to Hear on a First Date ...](https://funny.allwomenstalk.com/things-you-dont-want-to-hear-on-a-first-date/)
 - [7 Things Mr Wrong Will Say on a Speed Date ...](https://love.allwomenstalk.com/things-mr-wrong-will-say-on-a-speed-date/)
+- [7 Things You Never Want to Be in Life ...](https://inspiration.allwomenstalk.com/things-you-never-want-to-be-in-life/)
+- [7 First Date Deal Breakers ...](https://love.allwomenstalk.com/first-date-deal-breakers/)
+- [9 Negative Things to Consciously Detach Yourself f...](https://inspiration.allwomenstalk.com/negative-things-to-consciously-detach-yourself-from/)
+- [7 Questionable Things You Should Never Snapchat .....](https://apps.allwomenstalk.com/questionable-things-you-should-never-snapchat/)
+- [things to never do on an airplane](https://funny.allwomenstalk.com/things-you-should-never-say-on-a-plane/)
+- [7 Social Media Donts That Youre Better off Avoidin...](https://lifestyle.allwomenstalk.com/social-media-donts-that-youre-better-off-avoiding/)
 - [7 Things You Should Never Say to Your Guy ...](https://love.allwomenstalk.com/things-you-should-never-say-to-your-guy/)
 - [7 Things You Really Dont Need to Pack for a Holida...](https://travel.allwomenstalk.com/things-you-really-dont-need-to-pack-for-a-holiday/)
-- [things to never do on an airplane](https://funny.allwomenstalk.com/things-you-should-never-say-on-a-plane/)
-- [7 Questionable Things You Should Never Snapchat .....](https://apps.allwomenstalk.com/questionable-things-you-should-never-snapchat/)
-- [7 Things You Never Want to Be in Life ...](https://inspiration.allwomenstalk.com/things-you-never-want-to-be-in-life/)
-- [7 Things You Dont Want to Hear on a First Date ...](https://funny.allwomenstalk.com/things-you-dont-want-to-hear-on-a-first-date/)
-- [7 First Date Deal Breakers ...](https://love.allwomenstalk.com/first-date-deal-breakers/)
-- [7 Social Media Donts That Youre Better off Avoidin...](https://lifestyle.allwomenstalk.com/social-media-donts-that-youre-better-off-avoiding/)
-- [9 Negative Things to Consciously Detach Yourself f...](https://inspiration.allwomenstalk.com/negative-things-to-consciously-detach-yourself-from/)
 - [7 Things You Should Not Take for Granted ...](https://health.allwomenstalk.com/things-you-should-not-take-for-granted/)
 - [5 Things That Annoy Most People...](https://allwomenstalk.com/5-things-that-annoy-most-people/)
 

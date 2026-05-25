@@ -42,16 +42,16 @@ So it's well worth switching to green tea to give your health a boost. Although 
 
 ## Related Posts
 
-- [Here Are All of the Reasons You Should Start Juici...](https://health.allwomenstalk.com/here-are-all-of-the-reasons-you-should-start-juicing/)
-- [The Elixir of Life: Here is Why You Should Drink M...](https://health.allwomenstalk.com/the-elixir-of-life-here-is-why-you-should-drink-more-water/)
+- [amethyst eating burrito](https://food.allwomenstalk.com/wondering-why-you-should-be-eating-black-beans-here-are-mouthwatering-reasons/)
 - [7 Ways Citrus Fruits Make You Beautiful ...](https://beauty.allwomenstalk.com/ways-citrus-fruits-make-you-beautiful/)
+- [The Elixir of Life: Here is Why You Should Drink M...](https://health.allwomenstalk.com/the-elixir-of-life-here-is-why-you-should-drink-more-water/)
 - [is greek yogurt good for building muscle](https://food.allwomenstalk.com/get-em-to-the-greek-you-will-not-believe-what-greek-yogurt-does-to-your-body/)
 - [The 7 Ways Wheatgrass Can Improve Your Health ...](https://health.allwomenstalk.com/the-ways-wheatgrass-can-improve-your-health/)
-- [7 Kinds of Tea and What They Can do for You ...](https://food.allwomenstalk.com/kinds-of-tea-and-what-they-can-do-for-you/)
 - [Never Tried Fennel Here Are 29 Reasons Why You Sho...](https://food.allwomenstalk.com/never-tried-fennel-here-are-reasons-why-you-should/)
 - [You Will Be Amazed by What Black Pepper Can do for...](https://health.allwomenstalk.com/you-will-be-amazed-by-what-black-pepper-can-do-for-you/)
-- [amethyst eating burrito](https://food.allwomenstalk.com/wondering-why-you-should-be-eating-black-beans-here-are-mouthwatering-reasons/)
 - [7 Fabulous Reasons to Follow the Mediterranean Die...](https://diet.allwomenstalk.com/fabulous-reasons-to-follow-the-mediterranean-diet/)
+- [Here Are All of the Reasons You Should Start Juici...](https://health.allwomenstalk.com/here-are-all-of-the-reasons-you-should-start-juicing/)
+- [7 Kinds of Tea and What They Can do for You ...](https://food.allwomenstalk.com/kinds-of-tea-and-what-they-can-do-for-you/)
 - [7 Reasons Why a Glass of Wine is Good for You ...](https://health.allwomenstalk.com/7-reasons-why-a-glass-of-wine-is-good-for-you/)
 - [Green Tea Helps in the Fight against Heart Disease...](https://allwomenstalk.com/green-tea-helps-in-the-fight-against-heart-disease/)
 

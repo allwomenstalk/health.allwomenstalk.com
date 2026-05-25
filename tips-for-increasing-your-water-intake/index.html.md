@@ -42,16 +42,16 @@ These tips have been helpful for me as I try to fit in my “daily quota” of w
 
 ## Related Posts
 
-- [7 Ways to Beat Big Meal Bloat ...](https://food.allwomenstalk.com/ways-to-beat-big-meal-bloat/)
-- [7 Ways to Ensure a Diet Works before You Even Begi...](https://diet.allwomenstalk.com/ways-to-ensure-a-diet-works-before-you-even-begin/)
-- [7 Tasty Tips for Eating a Low Carb Breakfast ...](https://diet.allwomenstalk.com/tasty-tips-for-eating-a-low-carb-breakfast/)
-- [food cravings pms](https://health.allwomenstalk.com/ways-to-prevent-pms-food-cravings-from-wrecking-your-diet/)
 - [7 Diet Tips from Your Grandmother That Will Work W...](https://diet.allwomenstalk.com/diet-tips-from-your-grandmother-that-will-work-wonders/)
-- [7 Ways to Prevent Childhood Obesity ...](https://parenting.allwomenstalk.com/ways-to-prevent-childhood-obesity/)
 - [7 Reasons to Start Eating Better Today ...](https://health.allwomenstalk.com/reasons-to-start-eating-better-today/)
-- [7 Ways to Stick to Your Diet at a Party ...](https://diet.allwomenstalk.com/ways-to-stick-to-your-diet-at-a-party/)
+- [7 Tasty Tips for Eating a Low Carb Breakfast ...](https://diet.allwomenstalk.com/tasty-tips-for-eating-a-low-carb-breakfast/)
+- [7 Ways to Ensure a Diet Works before You Even Begi...](https://diet.allwomenstalk.com/ways-to-ensure-a-diet-works-before-you-even-begin/)
+- [7 Ways to Beat Big Meal Bloat ...](https://food.allwomenstalk.com/ways-to-beat-big-meal-bloat/)
 - [7 Ways to Cut Carbs after Lunch ...](https://weightloss.allwomenstalk.com/ways-to-cut-carbs-after-lunch-and-slim-down/)
 - [7 Habits of Highly Healthy People ...](https://health.allwomenstalk.com/habits-of-highly-healthy-people/)
+- [7 Ways to Prevent Childhood Obesity ...](https://parenting.allwomenstalk.com/ways-to-prevent-childhood-obesity/)
+- [food cravings pms](https://health.allwomenstalk.com/ways-to-prevent-pms-food-cravings-from-wrecking-your-diet/)
+- [7 Ways to Stick to Your Diet at a Party ...](https://diet.allwomenstalk.com/ways-to-stick-to-your-diet-at-a-party/)
 - [7 Ways to Make Drinking Water Easy ...](https://weightloss.allwomenstalk.com/ways-to-make-drinking-water-easy/)
 - [8 Health Benefits of Drinking Water ...](https://weightloss.allwomenstalk.com/health-benefits-of-drinking-water/)
 

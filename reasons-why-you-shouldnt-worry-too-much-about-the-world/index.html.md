@@ -42,16 +42,16 @@ Certainly, we should be aware of what is happening around the world. But we shou
 
 ## Related Posts
 
-- [7 Reasons Why We Should Change the Way We Think ab...](https://lifestyle.allwomenstalk.com/reasons-why-we-should-change-the-way-we-think-about-our-elders/)
-- [Which Types of Friends do You Have ...](https://teen.allwomenstalk.com/which-types-of-friends-do-you-have/)
-- [the best that money cant buy](https://inspiration.allwomenstalk.com/wonderful-things-that-money-cant-buy/)
-- [The Importance of Never Oversharing Again ...](https://lifestyle.allwomenstalk.com/reasons-why-oversharing-on-social-media-is-a-bad-idea/)
-- [different kinds of intelligence](https://inspiration.allwomenstalk.com/kinds-of-intelligence-which-do-you-have/)
 - [loreal paris riche stylo shadow amour](https://inspiration.allwomenstalk.com/lessons-to-learn-from-napoleon-hill/)
+- [The Importance of Never Oversharing Again ...](https://lifestyle.allwomenstalk.com/reasons-why-oversharing-on-social-media-is-a-bad-idea/)
 - [loreal color riche le stylo eye bottomless java](https://lifestyle.allwomenstalk.com/social-media-irrational-fears-everyone-has-about-it/)
-- [7 Pieces of Advice from Your Mom to Take to Heart ...](https://teen.allwomenstalk.com/pieces-of-advice-from-your-mom-to-take-to-heart/)
+- [the best that money cant buy](https://inspiration.allwomenstalk.com/wonderful-things-that-money-cant-buy/)
 - [7 Limiting Beliefs to Banish for Good ...](https://inspiration.allwomenstalk.com/limiting-beliefs-to-banish-for-good/)
+- [Which Types of Friends do You Have ...](https://teen.allwomenstalk.com/which-types-of-friends-do-you-have/)
 - [Stop Believing These Myths about Depression Now .....](https://health.allwomenstalk.com/myths-about-depression-that-need-to-be-busted-now/)
+- [7 Reasons Why We Should Change the Way We Think ab...](https://lifestyle.allwomenstalk.com/reasons-why-we-should-change-the-way-we-think-about-our-elders/)
+- [7 Pieces of Advice from Your Mom to Take to Heart ...](https://teen.allwomenstalk.com/pieces-of-advice-from-your-mom-to-take-to-heart/)
+- [different kinds of intelligence](https://inspiration.allwomenstalk.com/kinds-of-intelligence-which-do-you-have/)
 - [8 Reasons Not to Focus on Imperfections ...](https://allwomenstalk.com/8-reasons-not-to-focus-on-imperfections/)
 - [7 Reasons Why You Should Pray ...](https://allwomenstalk.com/7-reasons-why-you-should-pray/)
 

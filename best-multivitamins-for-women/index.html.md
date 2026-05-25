@@ -65,18 +65,18 @@ Top Photo Credit: [www.wernickescorrection.com](https://goo.gl/1Hx19P)
 
 ## Related Posts
 
-- [Women Who Inspire ...](https://allwomenstalk.com/women-who-inspire/)
-- [most notable women in history](https://lifestyle.allwomenstalk.com/influential-women-throughout-history/)
+- [debbi fields bikini](https://lifestyle.allwomenstalk.com/brilliant-female-entrepreneurs/)
+- [good shows for girls](https://lifestyle.allwomenstalk.com/great-tv-shows-for-women/)
 - [Voting on What to Call the Lady in My Moms Life W....](https://allwomenstalk.com/voting-on-what-to-call-the-lady-in-my-moms-life-w/)
-- [Voting on What to Call the Lady in My Moms Life W....](https://allwomenstalk.com/voting-on-what-to-call-the-lady-in-my-moms-life-w-snarkspot/)
 - [what did marion donovan invent](https://lifestyle.allwomenstalk.com/things-women-invented-first/)
+- [richest women entertainers](https://allwomenstalk.com/forbes-top-20-richest-women-in-entertainment/)
+- [most notable women in history](https://lifestyle.allwomenstalk.com/influential-women-throughout-history/)
+- [color riche stylo eye emerald conquest](https://allwomenstalk.com/cmon-ladiesbe-pigs/)
 - [Maria ShriverWhy I do What I do.  
 
 Every Now and ...](https://allwomenstalk.com/maria-shriverwhy-i-do-what-i-do-every-now-and/)
-- [good shows for girls](https://lifestyle.allwomenstalk.com/great-tv-shows-for-women/)
-- [color riche stylo eye emerald conquest](https://allwomenstalk.com/cmon-ladiesbe-pigs/)
-- [debbi fields bikini](https://lifestyle.allwomenstalk.com/brilliant-female-entrepreneurs/)
-- [richest women entertainers](https://allwomenstalk.com/forbes-top-20-richest-women-in-entertainment/)
+- [Voting on What to Call the Lady in My Moms Life W....](https://allwomenstalk.com/voting-on-what-to-call-the-lady-in-my-moms-life-w-snarkspot/)
+- [Women Who Inspire ...](https://allwomenstalk.com/women-who-inspire/)
 - [7 Highly Important Vitamins for Women ...](https://health.allwomenstalk.com/highly-important-vitamins-for-women/)
 - [10 Best Dieting Blogs for Women ...](https://allwomenstalk.com/10-best-dieting-blogs-for-women/)
 

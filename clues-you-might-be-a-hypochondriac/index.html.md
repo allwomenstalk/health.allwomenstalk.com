@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/8541644/via/dahlia
 
 ## Related Posts
 
-- [10 Critical Warning Signs of an Eating Disorder .....](https://health.allwomenstalk.com/critical-warning-signs-of-an-eating-disorder/)
-- [signs of clingy boyfriend](https://love.allwomenstalk.com/signs-you-might-be-too-clingy/)
-- [7 Telling Signs You Are Exercising Too Much ...](https://health.allwomenstalk.com/telling-signs-you-are-exercising-too-much/)
+- [7 Sure Signs Youre Addicted to Technology ...](https://lifestyle.allwomenstalk.com/sure-signs-youre-addicted-to-technology/)
 - [lip balm addiction](https://skincare.allwomenstalk.com/signs-youre-addicted-to-lip-balm/)
-- [signs your body is in starvation mode](https://diet.allwomenstalk.com/signs-that-your-diet-has-gone-too-far/)
 - [15 Signs You Might Have Diabetes ...](https://health.allwomenstalk.com/signs-you-might-have-diabetes/)
 - [7 Signs of Prescription Drug Abuse ...](https://health.allwomenstalk.com/signs-of-prescription-drug-abuse/)
-- [7 Sure Signs Youre Addicted to Technology ...](https://lifestyle.allwomenstalk.com/sure-signs-youre-addicted-to-technology/)
 - [site:health.allwomenstalk.com](https://health.allwomenstalk.com/telling-signs-of-anxiety/)
 - [7 Signs Youre Obsessed with Dieting ...](https://diet.allwomenstalk.com/signs-youre-obsessed-with-dieting/)
+- [10 Critical Warning Signs of an Eating Disorder .....](https://health.allwomenstalk.com/critical-warning-signs-of-an-eating-disorder/)
+- [7 Telling Signs You Are Exercising Too Much ...](https://health.allwomenstalk.com/telling-signs-you-are-exercising-too-much/)
+- [signs your body is in starvation mode](https://diet.allwomenstalk.com/signs-that-your-diet-has-gone-too-far/)
+- [signs of clingy boyfriend](https://love.allwomenstalk.com/signs-you-might-be-too-clingy/)
 - [7 Signs You May Have a Thyroid Problem ...](https://health.allwomenstalk.com/signs-you-may-have-a-thyroid-problem/)
 - [7 Warning Signs of Stress You Should Be Aware of ....](https://allwomenstalk.com/7-warning-signs-of-stress-you-should-be-aware-of/)
 

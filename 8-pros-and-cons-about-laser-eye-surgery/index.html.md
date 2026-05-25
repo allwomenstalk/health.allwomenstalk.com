@@ -48,16 +48,16 @@ Top Photo Credit: [aswim in knits](https://www.flickr.com/photos/aswiminknits/53
 
 ## Related Posts
 
-- [8 Rare Diseases Youve Probably Not Heard of ...](https://health.allwomenstalk.com/8-rare-diseases-youve-probably-not-heard-of/)
-- [Eye Care What You Should Know ...](https://allwomenstalk.com/eye-care-what-you-should-know-2/)
-- [sunburn bags under eyes](https://allwomenstalk.com/4-things-that-cause-your-under-eye-dark-circles-and-puffiness/)
-- [5 Mysterious Medical Issues Men Face ...](https://lifestyle.allwomenstalk.com/mysterious-medical-issues-men-face/)
-- [Common Foot Problems ...](https://allwomenstalk.com/common-foot-problems/)
-- [8 Highly Essential Health Checks You Shouldnt Negl...](https://health.allwomenstalk.com/8-highly-essential-health-checks-you-shouldnt-neglect/)
-- [8 Horrid Health Dangers in the Home ...](https://health.allwomenstalk.com/horrid-health-dangers-in-the-home/)
-- [detox facts](https://allwomenstalk.com/15-important-facts-about-detox-you-must-know/)
-- [11 Things You Should Know about Farmers Markets .....](https://lifestyle.allwomenstalk.com/things-you-should-know-about-farmers-markets/)
 - [7 Things That May Cause Infertility in Women. ...](https://health.allwomenstalk.com/7-things-that-may-cause-infertility-in-women/)
+- [8 Rare Diseases Youve Probably Not Heard of ...](https://health.allwomenstalk.com/8-rare-diseases-youve-probably-not-heard-of/)
+- [5 Mysterious Medical Issues Men Face ...](https://lifestyle.allwomenstalk.com/mysterious-medical-issues-men-face/)
+- [Eye Care What You Should Know ...](https://allwomenstalk.com/eye-care-what-you-should-know-2/)
+- [detox facts](https://allwomenstalk.com/15-important-facts-about-detox-you-must-know/)
+- [8 Highly Essential Health Checks You Shouldnt Negl...](https://health.allwomenstalk.com/8-highly-essential-health-checks-you-shouldnt-neglect/)
+- [11 Things You Should Know about Farmers Markets .....](https://lifestyle.allwomenstalk.com/things-you-should-know-about-farmers-markets/)
+- [8 Horrid Health Dangers in the Home ...](https://health.allwomenstalk.com/horrid-health-dangers-in-the-home/)
+- [sunburn bags under eyes](https://allwomenstalk.com/4-things-that-cause-your-under-eye-dark-circles-and-puffiness/)
+- [Common Foot Problems ...](https://allwomenstalk.com/common-foot-problems/)
 - [20 Pros and Cons of Having Sex ...](https://allwomenstalk.com/20-pros-and-cons-of-teen-sex/)
 - [10 Pros and Cons of Using Pads for Your Period ...](https://allwomenstalk.com/10-pros-and-cons-of-using-pads-for-your-period/)
 

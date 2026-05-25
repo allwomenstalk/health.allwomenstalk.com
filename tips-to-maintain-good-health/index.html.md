@@ -44,16 +44,16 @@ Top Photo Credit: [data.whicdn.com](http://data.whicdn.com/images/9765083/tumblr
 
 ## Related Posts
 
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/ways-to-be-healthier/)
-- [ways to stop snacking](https://health.allwomenstalk.com/7-ways-to-stop-snacking/)
-- [Eating Well in the New Year.](https://allwomenstalk.com/eating-well-in-the-new-year/)
-- [how to resist temptation food](https://allwomenstalk.com/resisting-the-food-temptation/)
 - [9 Sagely Effective Ways to Banish Emotional Eating...](https://health.allwomenstalk.com/sagely-effective-ways-to-banish-emotional-eating/)
-- [how to keep a food journal](https://allwomenstalk.com/12-tips-on-how-to-keep-a-food-journal/)
-- [7 Highly Useful Tips on How to Stop Drinking Soda ...](https://health.allwomenstalk.com/tips-on-how-to-stop-drinking-soda/)
-- [Beauty Tips Articles: Healthy Snacking Habits ...](https://allwomenstalk.com/beauty-tips-articles-healthy-snacking-habits/)
-- [Healthy Eating and Diet Tips: Part 2](https://allwomenstalk.com/healthy-eating-and-diet-tips-part-2/)
 - [how to prevent obesity](https://allwomenstalk.com/10-ways-to-prevent-obesity/)
+- [ways to stop snacking](https://health.allwomenstalk.com/7-ways-to-stop-snacking/)
+- [Healthy Eating and Diet Tips: Part 2](https://allwomenstalk.com/healthy-eating-and-diet-tips-part-2/)
+- [Beauty Tips Articles: Healthy Snacking Habits ...](https://allwomenstalk.com/beauty-tips-articles-healthy-snacking-habits/)
+- [Eating Well in the New Year.](https://allwomenstalk.com/eating-well-in-the-new-year/)
+- [7 Highly Useful Tips on How to Stop Drinking Soda ...](https://health.allwomenstalk.com/tips-on-how-to-stop-drinking-soda/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/ways-to-be-healthier/)
+- [how to resist temptation food](https://allwomenstalk.com/resisting-the-food-temptation/)
+- [how to keep a food journal](https://allwomenstalk.com/12-tips-on-how-to-keep-a-food-journal/)
 - [7 Ways to Keep Your Heart Healthy ...](https://health.allwomenstalk.com/7-ways-to-keep-your-heart-healthy/)
 - [7 Signs Youre in Good Health ...](https://health.allwomenstalk.com/7-signs-youre-in-good-health/)
 

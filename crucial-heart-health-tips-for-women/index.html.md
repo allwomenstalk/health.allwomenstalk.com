@@ -42,16 +42,16 @@ Hopefully, these heart health tips will have you thinking about your own heart a
 
 ## Related Posts
 
-- [7 Facts about Knee Injuries and How to Prevent The...](https://fitness.allwomenstalk.com/facts-about-knee-injuries-and-how-to-prevent-them/)
-- [7 Things Everyone Should Know about Joint Hypermob...](https://health.allwomenstalk.com/things-everyone-should-know-about-joint-hypermobility-syndrome/)
-- [Things You Absolutely Need to Talk to Your OBGYN a...](https://health.allwomenstalk.com/top-things-to-talk-to-your-obgyn-about/)
 - [7 Causes of Fatigue and How to Resolve Them ...](https://health.allwomenstalk.com/causes-of-fatigue-and-what-you-can-do-to-resolve-it/)
-- [7 Essential Facts You Need to Know about Estrogen ...](https://health.allwomenstalk.com/essential-facts-you-need-to-know-about-estrogen-dominance/)
-- [9 Differences between a Naturopath and a General P...](https://health.allwomenstalk.com/differences-between-a-naturopath-and-a-general-practitioner/)
 - [health talk topics for ladies](https://health.allwomenstalk.com/health-topics-every-woman-should-be-more-familiar-with/)
 - [7 Causes  Triggers of Eczema in Children to Be Awa...](https://health.allwomenstalk.com/causes-triggers-of-eczema-in-children-to-be-aware-of/)
-- [9 Important Facts about Fertility That You Should ...](https://health.allwomenstalk.com/important-facts-about-fertility-that-you-should-know/)
 - [9 Symptoms and Facts about Leaky Gut to Look out f...](https://health.allwomenstalk.com/symptoms-and-facts-about-leaky-gut-to-look-out-for/)
+- [7 Facts about Knee Injuries and How to Prevent The...](https://fitness.allwomenstalk.com/facts-about-knee-injuries-and-how-to-prevent-them/)
+- [Things You Absolutely Need to Talk to Your OBGYN a...](https://health.allwomenstalk.com/top-things-to-talk-to-your-obgyn-about/)
+- [9 Important Facts about Fertility That You Should ...](https://health.allwomenstalk.com/important-facts-about-fertility-that-you-should-know/)
+- [7 Things Everyone Should Know about Joint Hypermob...](https://health.allwomenstalk.com/things-everyone-should-know-about-joint-hypermobility-syndrome/)
+- [9 Differences between a Naturopath and a General P...](https://health.allwomenstalk.com/differences-between-a-naturopath-and-a-general-practitioner/)
+- [7 Essential Facts You Need to Know about Estrogen ...](https://health.allwomenstalk.com/essential-facts-you-need-to-know-about-estrogen-dominance/)
 - [7 Ways to Keep Your Heart Healthy ...](https://health.allwomenstalk.com/7-ways-to-keep-your-heart-healthy/)
 - [7 Shortcuts to Better Health ...](https://health.allwomenstalk.com/7-shortcuts-to-better-health/)
 

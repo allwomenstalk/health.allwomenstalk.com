@@ -56,16 +56,16 @@ These excuses just won't cut it anymore. We should seriously do this together! G
 
 ## Related Posts
 
-- [cool workout gadgets](https://fitness.allwomenstalk.com/workout-gadgets-you-should-consider/)
-- [7 Resolutions to Commit to That Will Take Your Wor...](https://fitness.allwomenstalk.com/resolutions-to-commit-to-that-willtake-your-workout-to-the-next-level/)
 - [7 Exercises to up the Intensity of Your Workouts ....](https://fitness.allwomenstalk.com/exercises-to-up-the-intensity-of-your-workouts/)
 - [7 Ways Exercise Can Boost Other Areas of Your Life...](https://health.allwomenstalk.com/ways-exercise-can-boost-other-areas-of-your-life-too/)
-- [7 Fitness Inspirations for 2015 ...](https://inspiration.allwomenstalk.com/fitness-inspirations-for/)
+- [quick workouts](https://fitness.allwomenstalk.com/quick-workouts-to-squeeze-into-your-day/)
+- [sit and reach scoring](https://fitness.allwomenstalk.com/stretching-exercises-you-can-do-at-your-desk/)
+- [cool workout gadgets](https://fitness.allwomenstalk.com/workout-gadgets-you-should-consider/)
+- [7 Resolutions to Commit to That Will Take Your Wor...](https://fitness.allwomenstalk.com/resolutions-to-commit-to-that-willtake-your-workout-to-the-next-level/)
+- [7 Exercises That Can Be Done with or without Weigh...](https://fitness.allwomenstalk.com/exercises-that-can-be-done-with-or-without-weights/)
 - [7 Workouts for a Body to Rock Any Outfit like a Ce...](https://fitness.allwomenstalk.com/workouts-for-a-body-to-rock-any-outfit-like-a-celebrity/)
 - [13 Awesome Pieces of Home Exercise Equipment ...](https://fitness.allwomenstalk.com/awesome-pieces-of-home-exercise-equipment/)
-- [7 Exercises That Can Be Done with or without Weigh...](https://fitness.allwomenstalk.com/exercises-that-can-be-done-with-or-without-weights/)
-- [sit and reach scoring](https://fitness.allwomenstalk.com/stretching-exercises-you-can-do-at-your-desk/)
-- [quick workouts](https://fitness.allwomenstalk.com/quick-workouts-to-squeeze-into-your-day/)
+- [7 Fitness Inspirations for 2015 ...](https://inspiration.allwomenstalk.com/fitness-inspirations-for/)
 - [7 Yoga Poses for Beginners ...](https://health.allwomenstalk.com/yoga-poses-for-beginners/)
 - [Yoga for the Time-Challenged Busy Woman ...](https://allwomenstalk.com/yoga-for-the-time-challenged-busy-woman/)
 

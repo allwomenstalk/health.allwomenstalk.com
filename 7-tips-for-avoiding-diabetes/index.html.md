@@ -44,16 +44,16 @@ Top Photo Credit: [1RockinDiabeticGurl](https://goo.gl/zgSsDE)
 
 ## Related Posts
 
+- [Healthy Eating and Diet Tips: Part 2](https://allwomenstalk.com/healthy-eating-and-diet-tips-part-2/)
 - [10 Tips to Stay Healthy in Your Twenties ...](https://health.allwomenstalk.com/10-tips-to-stay-healthy-in-your-twenties/)
 - [7 Tips to Maintain Good Health ...](https://health.allwomenstalk.com/tips-to-maintain-good-health/)
+- [how to keep a food journal](https://allwomenstalk.com/12-tips-on-how-to-keep-a-food-journal/)
 - [site:health.allwomenstalk.com](https://health.allwomenstalk.com/ways-to-be-healthier/)
 - [ways to stop snacking](https://health.allwomenstalk.com/7-ways-to-stop-snacking/)
-- [9 Sagely Effective Ways to Banish Emotional Eating...](https://health.allwomenstalk.com/sagely-effective-ways-to-banish-emotional-eating/)
-- [7 Highly Useful Tips on How to Stop Drinking Soda ...](https://health.allwomenstalk.com/tips-on-how-to-stop-drinking-soda/)
-- [Beauty Tips Articles: Healthy Snacking Habits ...](https://allwomenstalk.com/beauty-tips-articles-healthy-snacking-habits/)
-- [how to keep a food journal](https://allwomenstalk.com/12-tips-on-how-to-keep-a-food-journal/)
 - [Eating Well in the New Year.](https://allwomenstalk.com/eating-well-in-the-new-year/)
-- [Healthy Eating and Diet Tips: Part 2](https://allwomenstalk.com/healthy-eating-and-diet-tips-part-2/)
+- [9 Sagely Effective Ways to Banish Emotional Eating...](https://health.allwomenstalk.com/sagely-effective-ways-to-banish-emotional-eating/)
+- [Beauty Tips Articles: Healthy Snacking Habits ...](https://allwomenstalk.com/beauty-tips-articles-healthy-snacking-habits/)
+- [7 Highly Useful Tips on How to Stop Drinking Soda ...](https://health.allwomenstalk.com/tips-on-how-to-stop-drinking-soda/)
 - [5 Simple Lifestyle Changes to Manage Your Diabetes...](https://allwomenstalk.com/lifestyle-changes-to-manage-your-diabetes/)
 - [11 Tips on How to Keep to Your Diet ...](https://allwomenstalk.com/tips-on-how-to-keep-to-your-diet/)
 

@@ -42,16 +42,16 @@ We all get stressed sometimes but that doesn’t necessarily mean we have to let
 
 ## Related Posts
 
-- [how to have a relaxing bath](https://beauty.allwomenstalk.com/ways-to-have-a-relaxing-bath/)
-- [is venting good for you](https://lifestyle.allwomenstalk.com/ways-venting-helps-when-youre-really-frustrated/)
 - [the mood cure supplement list](https://books.allwomenstalk.com/things-i-love-about-the-mood-cure-by-julia-ross/)
-- [simple steps that lead to less stress](https://inspiration.allwomenstalk.com/easy-steps-to-reduce-stress-in-your-life/)
-- [how to obsess over something](https://inspiration.allwomenstalk.com/tips-on-how-to-stop-obsessing-over-things-you-want/)
+- [how to have a relaxing bath](https://beauty.allwomenstalk.com/ways-to-have-a-relaxing-bath/)
 - [stop insulting me](https://inspiration.allwomenstalk.com/ways-to-stop-insulting-yourself-when-youre-upset/)
-- [what to do when you are unemployed and depressed](https://money.allwomenstalk.com/best-ways-to-overcome-unemployment-depression/)
 - [nice things to do for someone having a bad day](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-having-a-bad-day/)
-- [i feel high without being high](https://lifestyle.allwomenstalk.com/ways-to-feel-high-without-drugs-or-alcohol/)
+- [how to obsess over something](https://inspiration.allwomenstalk.com/tips-on-how-to-stop-obsessing-over-things-you-want/)
+- [is venting good for you](https://lifestyle.allwomenstalk.com/ways-venting-helps-when-youre-really-frustrated/)
 - [how to handle post traumatic stress disorder](https://health.allwomenstalk.com/ways-to-handle-post-traumatic-stress/)
+- [simple steps that lead to less stress](https://inspiration.allwomenstalk.com/easy-steps-to-reduce-stress-in-your-life/)
+- [what to do when you are unemployed and depressed](https://money.allwomenstalk.com/best-ways-to-overcome-unemployment-depression/)
+- [i feel high without being high](https://lifestyle.allwomenstalk.com/ways-to-feel-high-without-drugs-or-alcohol/)
 - [How to Reduce Stress ...](https://allwomenstalk.com/how-to-reduce-stress/)
 - [Easy Stress-Busting Tips to Set You Free ...](https://allwomenstalk.com/easy-stress-busting-tips-to-set-you-free/)
 

@@ -50,16 +50,16 @@ These are some of the main things you should avoid doing when you're super stres
 
 ## Related Posts
 
-- [7 Habits That Make You Seem Unprofessional ...](https://money.allwomenstalk.com/habits-that-make-you-seem-unprofessional/)
-- [teen talking apps](https://teen.allwomenstalk.com/apps-teenagers-shouldnt-download/)
-- [7 Icky Things That Lurk in Locker Rooms ...](https://health.allwomenstalk.com/icky-things-that-lurk-in-locker-rooms/)
-- [9 Safety Rules Not to Ditch during Spring Break .....](https://travel.allwomenstalk.com/safety-rules-not-to-ditch-during-spring-break/)
-- [7 Bad Habits That Drive Your Co-workers Crazy ...](https://money.allwomenstalk.com/bad-habits-that-drive-your-co-workers-crazy/)
-- [7 Activities to Avoid to Live a Healthier Life ...](https://health.allwomenstalk.com/activities-to-avoid-to-live-a-healthier-life/)
-- [7 Worst Date Ideas You Should Avoid at All Costs ....](https://funny.allwomenstalk.com/worst-date-ideas-you-should-avoid-at-all-costs/)
-- [7 Words to Avoid when Youre Flirting ...](https://love.allwomenstalk.com/words-to-avoid-when-youre-flirting/)
-- [7 Types of People You Need to Avoid at the Airport...](https://travel.allwomenstalk.com/types-of-people-you-need-to-avoid-at-the-airport/)
 - [never ever emma twitter](https://apps.allwomenstalk.com/here-are-the-things-you-should-never-ever-do-on-twitter/)
+- [teen talking apps](https://teen.allwomenstalk.com/apps-teenagers-shouldnt-download/)
+- [7 Words to Avoid when Youre Flirting ...](https://love.allwomenstalk.com/words-to-avoid-when-youre-flirting/)
+- [7 Habits That Make You Seem Unprofessional ...](https://money.allwomenstalk.com/habits-that-make-you-seem-unprofessional/)
+- [7 Activities to Avoid to Live a Healthier Life ...](https://health.allwomenstalk.com/activities-to-avoid-to-live-a-healthier-life/)
+- [7 Icky Things That Lurk in Locker Rooms ...](https://health.allwomenstalk.com/icky-things-that-lurk-in-locker-rooms/)
+- [7 Types of People You Need to Avoid at the Airport...](https://travel.allwomenstalk.com/types-of-people-you-need-to-avoid-at-the-airport/)
+- [9 Safety Rules Not to Ditch during Spring Break .....](https://travel.allwomenstalk.com/safety-rules-not-to-ditch-during-spring-break/)
+- [7 Worst Date Ideas You Should Avoid at All Costs ....](https://funny.allwomenstalk.com/worst-date-ideas-you-should-avoid-at-all-costs/)
+- [7 Bad Habits That Drive Your Co-workers Crazy ...](https://money.allwomenstalk.com/bad-habits-that-drive-your-co-workers-crazy/)
 - [10 Ways to Eliminate Stress at Work ...](https://allwomenstalk.com/10-ways-to-eliminate-stress-at-work/)
 - [10 Effective Stress Busters ...](https://allwomenstalk.com/10-effective-stress-busters/)
 

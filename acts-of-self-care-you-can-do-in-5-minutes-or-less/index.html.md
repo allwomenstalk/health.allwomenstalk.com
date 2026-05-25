@@ -86,14 +86,14 @@ If you have a pet around the house, make more of an effort to play with them. Th
 
 - [3 Awesome Ways to Heal Your Energy ...](https://inspiration.allwomenstalk.com/awesome-ways-to-heal-your-energy/)
 - [Stress Triggers in Your Home ...](https://health.allwomenstalk.com/stress-triggers-in-your-home/)
-- [goodbye mondays](https://inspiration.allwomenstalk.com/ways-to-say-goodbye-to-the-monday-morning-blues/)
-- [5 Ways to Control Your Anger ...](https://inspiration.allwomenstalk.com/ways-to-control-your-anger/)
+- [Relaxation Techniques for Busy  Women ...](https://health.allwomenstalk.com/relaxation-techniques-for-busy-women/)
 - [My Sanity Practice ...](https://health.allwomenstalk.com/my-sanity-practice/)
 - [12 Exceptional Tips for Staying Calm at Exam Time ...](https://lifestyle.allwomenstalk.com/exceptional-tips-for-staying-calm-at-exam-time/)
+- [5 Ways to Control Your Anger ...](https://inspiration.allwomenstalk.com/ways-to-control-your-anger/)
 - [5 Awesome Ways to Kick Anxiety Now  ...](https://health.allwomenstalk.com/awesome-ways-to-kick-anxiety-now/)
-- [10 High Impact Self Care Ideas to Give Yourself a ...](https://health.allwomenstalk.com/high-impact-self-care-ideas-to-give-yourself-a-break/)
+- [goodbye mondays](https://inspiration.allwomenstalk.com/ways-to-say-goodbye-to-the-monday-morning-blues/)
 - [Tips to Manage Workplace Stress ...](https://health.allwomenstalk.com/tips-to-manage-workplace-stress/)
-- [Relaxation Techniques for Busy  Women ...](https://health.allwomenstalk.com/relaxation-techniques-for-busy-women/)
+- [10 High Impact Self Care Ideas to Give Yourself a ...](https://health.allwomenstalk.com/high-impact-self-care-ideas-to-give-yourself-a-break/)
 - [5 Things That Can Help You Relax Today...](https://allwomenstalk.com/5-things-that-can-help-you-relax-today/)
 - [3 Tips to Make Time for Myself ...](https://allwomenstalk.com/how-to-make-time-for-yourself/)
 

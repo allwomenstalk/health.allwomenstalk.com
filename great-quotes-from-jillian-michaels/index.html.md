@@ -56,16 +56,16 @@ Top Image Source: _celebritydietdoctor.com_
 
 ## Related Posts
 
-- [audrey hepburn quote](https://celebs.allwomenstalk.com/of-my-favorite-audrey-hepburn-quotes/)
-- [cute pick me up quotes](https://lifestyle.allwomenstalk.com/amazing-pick-me-up-quotes/)
+- [7 year itch funny quotes](https://movies.allwomenstalk.com/inspiring-quotes-from-classic-old-movies/)
 - [quotes about healing a broken heart](https://love.allwomenstalk.com/quotes-to-help-heal-a-broken-heart/)
-- [karl lagerfeld quote short men](https://fashion.allwomenstalk.com/infamous-quotes-by-karl-lagerfeld/)
-- [friendships fade quotes](https://movies.allwomenstalk.com/tv-quotes-about-friendship/)
-- [sword quotes](https://beauty.allwomenstalk.com/famous-and-fab-quotes-on-beauty/)
 - [insperational poems](https://lifestyle.allwomenstalk.com/inspirational-poems/)
+- [audrey hepburn quote](https://celebs.allwomenstalk.com/of-my-favorite-audrey-hepburn-quotes/)
+- [sword quotes](https://beauty.allwomenstalk.com/famous-and-fab-quotes-on-beauty/)
+- [cute pick me up quotes](https://lifestyle.allwomenstalk.com/amazing-pick-me-up-quotes/)
+- [karl lagerfeld quote short men](https://fashion.allwomenstalk.com/infamous-quotes-by-karl-lagerfeld/)
 - [how tall was joan crawford](https://movies.allwomenstalk.com/classic-joan-crawford-quotes/)
 - [sometimes the right path is not easiest one](https://lifestyle.allwomenstalk.com/quotes-to-live-by/)
-- [7 year itch funny quotes](https://movies.allwomenstalk.com/inspiring-quotes-from-classic-old-movies/)
+- [friendships fade quotes](https://movies.allwomenstalk.com/tv-quotes-about-friendship/)
 - [30 Motivational Health and Exercise Quotes ...](https://health.allwomenstalk.com/motivational-health-and-exercise-quotes/)
 - [20 Great Fitness Quotes to Help Motivate Your Work...](https://health.allwomenstalk.com/great-fitness-quotes-to-help-motivate-your-work-out/)
 

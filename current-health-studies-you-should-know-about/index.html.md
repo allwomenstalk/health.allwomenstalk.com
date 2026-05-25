@@ -45,15 +45,15 @@ I hope you have found these current health studies interesting and informative. 
 ## Related Posts
 
 - [7 Things to Look for if Youre in the Market for Bu...](https://health.allwomenstalk.com/things-to-look-for-if-youre-in-the-market-for-buying-a-probiotic/)
-- [9 Tips to Consider if Your Hormones Are Driving Yo...](https://vityle.com/tips-to-consider-if-your-hormones-are-driving-you-crazy/)
-- [7 Points to Consider regarding Women and Substance...](https://health.allwomenstalk.com/points-to-consider-regarding-woman-and-substance-abuse/)
+- [7 Things to Ask Your Gynecologist Next Time Youre ...](https://health.allwomenstalk.com/things-to-ask-your-gynecologist-next-time-youre-in-for-a-visit/)
+- [7 Important  Things You Should Know about the Pill...](https://health.allwomenstalk.com/important-things-you-should-know-about-the-pill/)
+- [7 Things You Should Know about over the Counter Pa...](https://health.allwomenstalk.com/things-you-should-know-about-over-the-counter-painkillers/)
+- [7 Marvelous Things to Know about Functional Medici...](https://health.allwomenstalk.com/marvelous-things-to-know-about-functional-medicine/)
 - [7 Important Factors to Consider before Getting Las...](https://health.allwomenstalk.com/important-factors-to-consider-before-getting-lasik/)
 - [7 Signs of Crohns Disease and What You Can do abou...](https://health.allwomenstalk.com/signs-of-crohns-disease-and-what-you-can-do-about-it/)
-- [7 Things You Should Know about over the Counter Pa...](https://health.allwomenstalk.com/things-you-should-know-about-over-the-counter-painkillers/)
-- [7 Important  Things You Should Know about the Pill...](https://health.allwomenstalk.com/important-things-you-should-know-about-the-pill/)
-- [7 Things to Ask Your Gynecologist Next Time Youre ...](https://health.allwomenstalk.com/things-to-ask-your-gynecologist-next-time-youre-in-for-a-visit/)
-- [7 Marvelous Things to Know about Functional Medici...](https://health.allwomenstalk.com/marvelous-things-to-know-about-functional-medicine/)
+- [9 Tips to Consider if Your Hormones Are Driving Yo...](https://vityle.com/tips-to-consider-if-your-hormones-are-driving-you-crazy/)
 - [7 Important Facts about Sweat and Your Body ...](https://health.allwomenstalk.com/important-facts-about-sweat-and-your-body/)
+- [7 Points to Consider regarding Women and Substance...](https://health.allwomenstalk.com/points-to-consider-regarding-woman-and-substance-abuse/)
 - [7 Shortcuts to Better Health ...](https://health.allwomenstalk.com/7-shortcuts-to-better-health/)
 - [7 Tips to Maintain Good Health ...](https://health.allwomenstalk.com/tips-to-maintain-good-health/)
 

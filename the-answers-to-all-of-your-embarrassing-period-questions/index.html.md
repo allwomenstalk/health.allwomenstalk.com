@@ -56,16 +56,16 @@ What other questions do you have about your period?
 
 ## Related Posts
 
-- [Health Tests You Need to Schedule for Sometime  in...](https://health.allwomenstalk.com/schedule-these-health-tests-for-some-time-in/)
-- [These Shocking Things Are Triggering Your Anxiety ...](https://health.allwomenstalk.com/these-shocking-things-are-triggering-your-anxiety-watch-out/)
-- [7 Things You Should Know before Picking up an Egg ...](https://food.allwomenstalk.com/things-you-should-know-before-picking-up-an-egg-carton/)
-- [Do These Things to Reduce Risk of Breast Cancer .....](https://health.allwomenstalk.com/do-these-things-to-reduce-risk-of-breast-cancer/)
 - [10 Things Most Women Dont Know about Their Bodies ...](https://health.allwomenstalk.com/things-most-women-dont-know-about-their-bodies/)
-- [what are ten misconceptions about drinking](https://lifestyle.allwomenstalk.com/dangerous-misconceptions-about-alcohol/)
 - [le stylo eye always pink](https://health.allwomenstalk.com/things-you-should-do-when-you-get-pink-eye/)
-- [Your M.D. Must Know These 7 Things about You ...](https://health.allwomenstalk.com/your-m-d-must-know-these-things-about-you/)
-- [7 Life Events That Can Lead to a Heart Attack ...](https://health.allwomenstalk.com/life-events-that-can-lead-to-a-heart-attack/)
 - [10 Facts That Could End up Saving Your Life ...](https://lifestyle.allwomenstalk.com/facts-that-could-end-up-saving-your-life/)
+- [Your M.D. Must Know These 7 Things about You ...](https://health.allwomenstalk.com/your-m-d-must-know-these-things-about-you/)
+- [Do These Things to Reduce Risk of Breast Cancer .....](https://health.allwomenstalk.com/do-these-things-to-reduce-risk-of-breast-cancer/)
+- [These Shocking Things Are Triggering Your Anxiety ...](https://health.allwomenstalk.com/these-shocking-things-are-triggering-your-anxiety-watch-out/)
+- [7 Life Events That Can Lead to a Heart Attack ...](https://health.allwomenstalk.com/life-events-that-can-lead-to-a-heart-attack/)
+- [Health Tests You Need to Schedule for Sometime  in...](https://health.allwomenstalk.com/schedule-these-health-tests-for-some-time-in/)
+- [what are ten misconceptions about drinking](https://lifestyle.allwomenstalk.com/dangerous-misconceptions-about-alcohol/)
+- [7 Things You Should Know before Picking up an Egg ...](https://food.allwomenstalk.com/things-you-should-know-before-picking-up-an-egg-carton/)
 - [Sly Tricks for Keeping Your Period a Secret ...](https://health.allwomenstalk.com/ways-to-keep-your-period-a-secret/)
 - [Heres All You Need to Know about Taking Painkiller...](https://health.allwomenstalk.com/heres-all-you-need-to-know-about-taking-painkillers-on-your-period/)
 

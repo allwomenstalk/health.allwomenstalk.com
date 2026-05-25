@@ -42,16 +42,16 @@ So, are you going to help your man celebrate Movember? What things have you got 
 
 ## Related Posts
 
-- [7 Quick and Easy Ways to Improve Your Relationship...](https://love.allwomenstalk.com/quick-and-easy-ways-to-improve-your-relationship-with-your-guy/)
+- [7 Types of Flirting Weve All Indulged in ...](https://love.allwomenstalk.com/types-of-flirting-weve-all-indulged-in/)
 - [7 Tips to Overcome Nervousness before a Date ...](https://love.allwomenstalk.com/tips-to-overcome-nervousness-before-a-date/)
-- [how to improve your flirting skills](https://love.allwomenstalk.com/ways-to-improve-your-flirting-abilities/)
-- [date your husband](https://love.allwomenstalk.com/awesome-ways-to-date-your-husband/)
+- [9 Worst Things to do to Get a Guy to like You ...](https://love.allwomenstalk.com/worst-things-to-do-to-get-a-guy-to-like-you/)
 - [7 Ways to Catch the Attention of Your Crush ...](https://love.allwomenstalk.com/ways-to-catch-the-attention-of-your-crush/)
 - [7 Important Things to Remember when Meeting His Fa...](https://love.allwomenstalk.com/important-things-to-remember-when-meeting-his-family/)
-- [brilliant dates](https://love.allwomenstalk.com/brilliant-and-effective-ways-to-meet-more-dates/)
-- [7 Types of Flirting Weve All Indulged in ...](https://love.allwomenstalk.com/types-of-flirting-weve-all-indulged-in/)
-- [9 Worst Things to do to Get a Guy to like You ...](https://love.allwomenstalk.com/worst-things-to-do-to-get-a-guy-to-like-you/)
 - [7 Convenient Ways Youd Love to Meet Your Dream Guy...](https://love.allwomenstalk.com/convenient-ways-youd-love-to-meet-your-dream-guy/)
+- [brilliant dates](https://love.allwomenstalk.com/brilliant-and-effective-ways-to-meet-more-dates/)
+- [how to improve your flirting skills](https://love.allwomenstalk.com/ways-to-improve-your-flirting-abilities/)
+- [7 Quick and Easy Ways to Improve Your Relationship...](https://love.allwomenstalk.com/quick-and-easy-ways-to-improve-your-relationship-with-your-guy/)
+- [date your husband](https://love.allwomenstalk.com/awesome-ways-to-date-your-husband/)
 - [7 Things to do for Your Husband ...](https://love.allwomenstalk.com/things-to-do-for-your-husband/)
 - [7 Ways to Impress Your Man ...](https://allwomenstalk.com/7-ways-to-impress-your-man/)
 

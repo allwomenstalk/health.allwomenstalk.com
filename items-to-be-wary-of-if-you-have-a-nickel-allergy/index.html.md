@@ -42,16 +42,16 @@ Having an allergy that affects your skin can mean a lot of trial and error. It's
 
 ## Related Posts
 
+- [7 Side Effects of Stress to Look out for ...](https://health.allwomenstalk.com/side-effects-of-stress-to-look-out-for/)
 - [10 Health Facts Discovered in 2014 ...](https://health.allwomenstalk.com/health-facts-discovered-in/)
-- [Common Pregnancy Skin Conditions You Might Experie...](https://skincare.allwomenstalk.com/pregnancy-skin-conditions-you-might-have-to-deal-with/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/common-causes-of-stomach-pain/)
-- [7 Risks to Take before You Die ...](https://inspiration.allwomenstalk.com/risks-to-take-before-you-die/)
 - [7 Ways Youre Sabotaging Your Immune System ...](https://health.allwomenstalk.com/ways-youre-sabotaging-your-immune-system/)
-- [10 Things You Should Know about Depression ...](https://mindfulness.allwomenstalk.com/things-you-should-know-about-depression/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/common-causes-of-stomach-pain/)
+- [9 Things You Should Know about Colds and Flu ...](https://health.allwomenstalk.com/things-you-should-know-about-colds-and-flu/)
+- [7 Risks to Take before You Die ...](https://inspiration.allwomenstalk.com/risks-to-take-before-you-die/)
 - [7 Things to Worry about More than Ebola ...](https://health.allwomenstalk.com/things-to-worry-about-more-than-ebola/)
 - [7 Positive Things about Your Period to Make You Ha...](https://health.allwomenstalk.com/positive-things-about-your-period-to-make-you-hate-it-less/)
-- [9 Things You Should Know about Colds and Flu ...](https://health.allwomenstalk.com/things-you-should-know-about-colds-and-flu/)
-- [7 Side Effects of Stress to Look out for ...](https://health.allwomenstalk.com/side-effects-of-stress-to-look-out-for/)
+- [Common Pregnancy Skin Conditions You Might Experie...](https://skincare.allwomenstalk.com/pregnancy-skin-conditions-you-might-have-to-deal-with/)
+- [10 Things You Should Know about Depression ...](https://mindfulness.allwomenstalk.com/things-you-should-know-about-depression/)
 - [8 Food Additvies to Steer Clear of ...](https://diet.allwomenstalk.com/food-additvies-to-steer-clear-of/)
 - [10 Ingredients to Avoid in Your Food ...](https://allwomenstalk.com/10-ingredients-to-avoid-in-your-food/)
 

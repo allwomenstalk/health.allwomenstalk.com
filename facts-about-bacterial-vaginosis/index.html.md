@@ -40,16 +40,16 @@ If in doubt, get it checked out.
 
 ## Related Posts
 
-- [Types of Epileptic Seizures Everyone Should Be Awa...](https://vityle.com/types-of-epileptic-seizure/)
-- [How Augmented Reality is Transforming Healthcare  ...](https://health.allwomenstalk.com/how-augmented-reality-is-changing-health-care/)
-- [Important Things to Know about Ocular Migraines .....](https://health.allwomenstalk.com/things-you-should-know-about-ocular-migraines/)
-- [5 Doctors Appointments You Shouldnt Skip ...](https://health.allwomenstalk.com/doctors-appointments-you-should-not-skip/)
 - [6 Things to Consider to Know if Lipo is Right for ...](https://weightloss.allwomenstalk.com/how-to-decide-if-liposuction-is-for-you/)
+- [Types of Epileptic Seizures Everyone Should Be Awa...](https://vityle.com/types-of-epileptic-seizure/)
+- [Basic Rules for Prime Oral Health ...](https://health.allwomenstalk.com/the-rules-of-basic-oral-health/)
+- [How Augmented Reality is Transforming Healthcare  ...](https://health.allwomenstalk.com/how-augmented-reality-is-changing-health-care/)
+- [Essential Info on 6 Vitamins You Need in Your Diet...](https://diet.allwomenstalk.com/the-101-on-the-major-vitamins-you-need-in-your-diet/)
+- [How to save a Life: Signs of a Heart Attack in Wom...](https://health.allwomenstalk.com/signs-of-a-heart-attack-in-women/)
 - [Important Facts about Condoms Every Girl Should Kn...](https://love.allwomenstalk.com/facts-about-condoms/)
 - [The 5 Secrets to Lifelong  Health  Everyone Needs ...](https://health.allwomenstalk.com/secrets-to-lifelong-health/)
-- [How to save a Life: Signs of a Heart Attack in Wom...](https://health.allwomenstalk.com/signs-of-a-heart-attack-in-women/)
-- [Essential Info on 6 Vitamins You Need in Your Diet...](https://diet.allwomenstalk.com/the-101-on-the-major-vitamins-you-need-in-your-diet/)
-- [Basic Rules for Prime Oral Health ...](https://health.allwomenstalk.com/the-rules-of-basic-oral-health/)
+- [5 Doctors Appointments You Shouldnt Skip ...](https://health.allwomenstalk.com/doctors-appointments-you-should-not-skip/)
+- [Important Things to Know about Ocular Migraines .....](https://health.allwomenstalk.com/things-you-should-know-about-ocular-migraines/)
 - [10 Things Pregnant Women Should Know ...](https://parenting.allwomenstalk.com/10-things-pregnant-women-should-know/)
 - [8 Things Every New Mom Should Know ...](https://parenting.allwomenstalk.com/things-every-new-mom-should-know/)
 

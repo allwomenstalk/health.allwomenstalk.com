@@ -60,16 +60,16 @@ Please share what you do when you are in this crappy mindset and need it to chan
 
 ## Related Posts
 
-- [5 Ways to Control Your Anger ...](https://inspiration.allwomenstalk.com/ways-to-control-your-anger/)
-- [3 Awesome Ways to Heal Your Energy ...](https://inspiration.allwomenstalk.com/awesome-ways-to-heal-your-energy/)
-- [Tips to Manage Workplace Stress ...](https://health.allwomenstalk.com/tips-to-manage-workplace-stress/)
-- [20 Awesome Ways to Ease Holiday Season Stress Are ...](https://health.allwomenstalk.com/awesome-ways-to-ease-holiday-season-stress-are-right-here/)
-- [Relaxation Techniques for Busy  Women ...](https://health.allwomenstalk.com/relaxation-techniques-for-busy-women/)
 - [goodbye mondays](https://inspiration.allwomenstalk.com/ways-to-say-goodbye-to-the-monday-morning-blues/)
+- [Tips to Manage Workplace Stress ...](https://health.allwomenstalk.com/tips-to-manage-workplace-stress/)
+- [3 Awesome Ways to Heal Your Energy ...](https://inspiration.allwomenstalk.com/awesome-ways-to-heal-your-energy/)
+- [20 Awesome Ways to Ease Holiday Season Stress Are ...](https://health.allwomenstalk.com/awesome-ways-to-ease-holiday-season-stress-are-right-here/)
+- [Stress Triggers in Your Home ...](https://health.allwomenstalk.com/stress-triggers-in-your-home/)
+- [Relaxation Techniques for Busy  Women ...](https://health.allwomenstalk.com/relaxation-techniques-for-busy-women/)
 - [10 High Impact Self Care Ideas to Give Yourself a ...](https://health.allwomenstalk.com/high-impact-self-care-ideas-to-give-yourself-a-break/)
 - [My Sanity Practice ...](https://health.allwomenstalk.com/my-sanity-practice/)
 - [12 Exceptional Tips for Staying Calm at Exam Time ...](https://lifestyle.allwomenstalk.com/exceptional-tips-for-staying-calm-at-exam-time/)
-- [Stress Triggers in Your Home ...](https://health.allwomenstalk.com/stress-triggers-in-your-home/)
+- [5 Ways to Control Your Anger ...](https://inspiration.allwomenstalk.com/ways-to-control-your-anger/)
 - [10 Ways to Stop Stress ...](https://allwomenstalk.com/10-ways-to-stop-stress/)
 - [10 Easy Ways to Relieve Anxiety ...](https://allwomenstalk.com/10-easy-ways-to-relieve-anxiety/)
 

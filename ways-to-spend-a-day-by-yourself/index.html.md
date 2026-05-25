@@ -56,16 +56,16 @@ These are just a couple of choices that can help you enjoy your day off. Ladies 
 
 ## Related Posts
 
+- [should you eat blueberries before bed](https://food.allwomenstalk.com/ultra-exciting-things-to-do-with-blueberries/)
+- [items needed for a party](https://lifestyle.allwomenstalk.com/essential-items-to-have-at-your-house-party/)
 - [trips to new york for christmas](https://travel.allwomenstalk.com/essential-things-to-do-in-new-york-at-christmas/)
-- [things to do in fall with boyfriend](https://love.allwomenstalk.com/fun-fall-activities-to-do-with-your-boyfriend/)
+- [how to get into holiday spirit](https://lifestyle.allwomenstalk.com/best-ways-to-get-in-the-holiday-spirit/)
 - [autumn hobbies](https://lifestyle.allwomenstalk.com/unusual-hobbies-to-keep-you-out-of-mischief-this-autumn/)
 - [things to do before 25](https://lifestyle.allwomenstalk.com/things-to-do-before-you-turn-25/)
-- [how to get into holiday spirit](https://lifestyle.allwomenstalk.com/best-ways-to-get-in-the-holiday-spirit/)
-- [items needed for a party](https://lifestyle.allwomenstalk.com/essential-items-to-have-at-your-house-party/)
 - [fun things to put on your bucket list](https://lifestyle.allwomenstalk.com/fun-and-creative-things-to-add-to-your-bucket-list/)
-- [frugal date ideas](https://love.allwomenstalk.com/super-fun-and-frugal-date-ideas/)
-- [should you eat blueberries before bed](https://food.allwomenstalk.com/ultra-exciting-things-to-do-with-blueberries/)
 - [how to make water less boring](https://health.allwomenstalk.com/ways-to-make-your-water-less-boring/)
+- [frugal date ideas](https://love.allwomenstalk.com/super-fun-and-frugal-date-ideas/)
+- [things to do in fall with boyfriend](https://love.allwomenstalk.com/fun-fall-activities-to-do-with-your-boyfriend/)
 - [7 Tips for Travelling Solo ...](https://travel.allwomenstalk.com/7-tips-for-travelling-solo-3/)
 - [7 Ways to Get Me Time ...](https://allwomenstalk.com/7-ways-to-get-me-time/)
 

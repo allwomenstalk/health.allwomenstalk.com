@@ -50,16 +50,16 @@ If you’re struggling with depression, I would advise you to never give up, no 
 
 ## Related Posts
 
-- [7 Alternatives to Bad Behavior when Youre Depresse...](https://lifestyle.allwomenstalk.com/alternatives-to-bad-behavior-when-youre-depressed/)
-- [life changing stressors](https://inspiration.allwomenstalk.com/life-changing-ways-to-deal-with-stress/)
-- [7 Wonderful and Effective Tips on How to Overcome ...](https://inspiration.allwomenstalk.com/wonderful-and-effective-tips-on-how-to-overcome-negative-thoughts/)
 - [7 Ways to Make the Holidays Less Stressful ...](https://lifestyle.allwomenstalk.com/ways-to-make-the-holidays-less-stressful/)
-- [stop feeling lonely](https://lifestyle.allwomenstalk.com/ways-to-stop-feeling-so-lonely/)
-- [7 Ways to Deal with Stress from School ...](https://lifestyle.allwomenstalk.com/ways-to-deal-with-stress-from-school/)
-- [7 Helpful Tips to Get You Meditating Regularly ...](https://health.allwomenstalk.com/helpful-tips-to-get-you-meditating-regularly/)
 - [7 Ways to Be Happy Being Alone ...](https://love.allwomenstalk.com/ways-to-be-happy-being-alone-2/)
-- [7 Tips on How to Get over Test Anxiety ...](https://health.allwomenstalk.com/tips-on-how-to-get-over-test-anxiety/)
+- [life changing stressors](https://inspiration.allwomenstalk.com/life-changing-ways-to-deal-with-stress/)
 - [7 Ways to Be Happy Being Alone ...](https://love.allwomenstalk.com/ways-to-be-happy-being-alone/)
+- [7 Alternatives to Bad Behavior when Youre Depresse...](https://lifestyle.allwomenstalk.com/alternatives-to-bad-behavior-when-youre-depressed/)
+- [7 Helpful Tips to Get You Meditating Regularly ...](https://health.allwomenstalk.com/helpful-tips-to-get-you-meditating-regularly/)
+- [7 Tips on How to Get over Test Anxiety ...](https://health.allwomenstalk.com/tips-on-how-to-get-over-test-anxiety/)
+- [7 Wonderful and Effective Tips on How to Overcome ...](https://inspiration.allwomenstalk.com/wonderful-and-effective-tips-on-how-to-overcome-negative-thoughts/)
+- [7 Ways to Deal with Stress from School ...](https://lifestyle.allwomenstalk.com/ways-to-deal-with-stress-from-school/)
+- [stop feeling lonely](https://lifestyle.allwomenstalk.com/ways-to-stop-feeling-so-lonely/)
 - [9 Ways to Beat the Winter Blues ...](https://lifestyle.allwomenstalk.com/ways-to-beat-the-winter-blues/)
 - [10 Ways to Fight Postpartum Depression ...](https://allwomenstalk.com/10-ways-to-fight-postpartum-depression/)
 

@@ -52,15 +52,15 @@ There are lots of new diets cropping up all the time but no matter how good it m
 
 ## Related Posts
 
-- [foods to avoid on a sodium restricted diet](https://food.allwomenstalk.com/foods-to-avoid-if-you-are-on-a-low-sodium-diet/)
-- [what is cold food for body](https://food.allwomenstalk.com/cold-weather-foods-that-are-incredible-for-your-metabolism/)
-- [smooties near me](https://food.allwomenstalk.com/smoothie-ingredients-that-might-be-hurting-your-tummy/)
-- [boost italian mood](https://food.allwomenstalk.com/italian-foods-that-boost-your-mood-and-help-your-love-life/)
-- [starbucks yogurt calories](https://diet.allwomenstalk.com/healthy-fast-food-options-that-wont-get-your-diet-off-track/)
-- [surprisingly healthy foods](https://food.allwomenstalk.com/glorious-foods-that-are-surprisingly-healthy/)
-- [international foods to try](https://food.allwomenstalk.com/international-foods-we-love-to-enjoy/)
-- [best bedtime snacks](https://food.allwomenstalk.com/best-bedtime-snacks-for-those-hard-to-ignore-cravings/)
 - [teen titans food](https://food.allwomenstalk.com/superbowl-foods-to-choose-that-wont-derail-your-diet/)
+- [international foods to try](https://food.allwomenstalk.com/international-foods-we-love-to-enjoy/)
+- [foods to avoid on a sodium restricted diet](https://food.allwomenstalk.com/foods-to-avoid-if-you-are-on-a-low-sodium-diet/)
+- [starbucks yogurt calories](https://diet.allwomenstalk.com/healthy-fast-food-options-that-wont-get-your-diet-off-track/)
+- [what is cold food for body](https://food.allwomenstalk.com/cold-weather-foods-that-are-incredible-for-your-metabolism/)
+- [surprisingly healthy foods](https://food.allwomenstalk.com/glorious-foods-that-are-surprisingly-healthy/)
+- [boost italian mood](https://food.allwomenstalk.com/italian-foods-that-boost-your-mood-and-help-your-love-life/)
+- [best bedtime snacks](https://food.allwomenstalk.com/best-bedtime-snacks-for-those-hard-to-ignore-cravings/)
+- [smooties near me](https://food.allwomenstalk.com/smoothie-ingredients-that-might-be-hurting-your-tummy/)
 - [reasons why food is important](https://food.allwomenstalk.com/reasons-to-add-variety-to-your-diet-each-week/)
 - [9 Fantastic Diet Apps Youll Love ...](https://diet.allwomenstalk.com/fantastic-diet-apps-youll-love/)
 - [10 Amazingly Healthy Foods to Eat ...](https://health.allwomenstalk.com/amazingly-healthy-foods-to-eat/)

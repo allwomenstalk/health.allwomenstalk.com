@@ -74,16 +74,16 @@ What are your health goals in the upcoming year? What habits will you be impleme
 
 ## Related Posts
 
-- [9 Things You Can do to Connect with Your Body ...](https://health.allwomenstalk.com/connect-to-your-body-by-doing-these-things/)
 - [Check out These Websites to Boost Brain Power  ...](https://7fun.net/want-to-be-smarter-check-out-these-websites/)
-- [energy makeover](https://health.allwomenstalk.com/the-total-energy-makeover-thatll-change-your-life/)
-- [Outstanding Ways to Change Your Life when Youre Ti...](https://inspiration.allwomenstalk.com/ways-to-change-your-life-when-youre-exhausted-trying/)
-- [Great Ways to Help You Stop Fearing the Future ...](https://inspiration.allwomenstalk.com/how-to-stop-fearing-the-future/)
-- [best list maker](https://lifestyle.allwomenstalk.com/become-a-list-maker-and-reap-the-rewards/)
+- [9 Things You Can do to Connect with Your Body ...](https://health.allwomenstalk.com/connect-to-your-body-by-doing-these-things/)
+- [10 Genius Ways to Always Keep Your Mind Razor Shar...](https://health.allwomenstalk.com/ways-to-keep-your-mind-razor-sharp-always/)
 - [The Best Ways to Develop Mental Strength ...](https://vityle.com/the-best-ways-to-develop-mental-strength/)
+- [Great Ways to Help You Stop Fearing the Future ...](https://inspiration.allwomenstalk.com/how-to-stop-fearing-the-future/)
 - [Nix These Things to Be Instantly  Happier ...](https://inspiration.allwomenstalk.com/nix-these-things-to-be-instantly-happier/)
 - [Youll Be Happier if You Say Yes to These 17 Things...](https://inspiration.allwomenstalk.com/youll-be-happier-if-you-say-yes-to-these-things/)
-- [10 Genius Ways to Always Keep Your Mind Razor Shar...](https://health.allwomenstalk.com/ways-to-keep-your-mind-razor-sharp-always/)
+- [energy makeover](https://health.allwomenstalk.com/the-total-energy-makeover-thatll-change-your-life/)
+- [best list maker](https://lifestyle.allwomenstalk.com/become-a-list-maker-and-reap-the-rewards/)
+- [Outstanding Ways to Change Your Life when Youre Ti...](https://inspiration.allwomenstalk.com/ways-to-change-your-life-when-youre-exhausted-trying/)
 - [10 Ways to Be Happier in the New Year ...](https://health.allwomenstalk.com/ways-to-be-happier-in-the-new-year/)
 - [7 Good Habits for New Year ...](https://health.allwomenstalk.com/good-habits-for/)
 

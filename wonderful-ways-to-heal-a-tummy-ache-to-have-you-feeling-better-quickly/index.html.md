@@ -104,16 +104,16 @@ Tummy aches are no fun and they hurt something terrible! I’ve learned to work 
 
 ## Related Posts
 
-- [7 Wonderful Tips to Soothe Your Aching Feet ...](https://health.allwomenstalk.com/wonderful-tips-to-soothe-your-aching-feet/)
 - [7 Ways to Fight Chronic Pain and Feel Better Insta...](https://health.allwomenstalk.com/ways-to-fight-chronic-pain-and-feel-better-instantly/)
-- [7 Natural PMS Remedies That Will Have You Feeling ...](https://health.allwomenstalk.com/natural-pms-remedies-that-will-have-you-feeling-great-each-month/)
 - [9 Ways to Reduce Symptoms of Fibromylagia Pain and...](https://health.allwomenstalk.com/ways-to-reduce-symptoms-of-fibromylagia-pain-and-get-relief-fast/)
-- [7 Homeopathic Supplements That May Help Common Hea...](https://health.allwomenstalk.com/homeopathic-supplements-that-may-help-common-health-ailments/)
 - [7 Ways to Get Rid of Your Seasonal Allergies Natur...](https://health.allwomenstalk.com/ways-to-get-rid-of-your-seasonal-allergies-naturally-and-breathe-easier/)
-- [7 Herbs That Are Used in Home Remedies ...](https://health.allwomenstalk.com/herbs-that-are-used-in-home-remedies/)
 - [7 Simple Yet Effective Ways Avoid Mosquito Bites ....](https://lifestyle.allwomenstalk.com/simple-yet-effective-ways-avoid-mosquito-bites/)
-- [7 Natural Ways to Relieve Your Headache and Become...](https://health.allwomenstalk.com/natural-ways-to-relieve-your-headache-and-become-pain-free/)
+- [7 Natural PMS Remedies That Will Have You Feeling ...](https://health.allwomenstalk.com/natural-pms-remedies-that-will-have-you-feeling-great-each-month/)
 - [9 Simple Home Remedies for Puffy Eyes ...](https://beauty.allwomenstalk.com/simple-home-remedies-for-puffy-eyes/)
+- [7 Natural Ways to Relieve Your Headache and Become...](https://health.allwomenstalk.com/natural-ways-to-relieve-your-headache-and-become-pain-free/)
+- [7 Wonderful Tips to Soothe Your Aching Feet ...](https://health.allwomenstalk.com/wonderful-tips-to-soothe-your-aching-feet/)
+- [7 Herbs That Are Used in Home Remedies ...](https://health.allwomenstalk.com/herbs-that-are-used-in-home-remedies/)
+- [7 Homeopathic Supplements That May Help Common Hea...](https://health.allwomenstalk.com/homeopathic-supplements-that-may-help-common-health-ailments/)
 - [10 Top Ways to Get a Flat Stomach ...](https://allwomenstalk.com/top-10-ways-to-get-a-flat-stomach/)
 - [8 Things to Help with Indigestion ...](https://allwomenstalk.com/8-things-to-help-with-indigestion/)
 

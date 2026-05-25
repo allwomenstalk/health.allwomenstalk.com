@@ -42,16 +42,16 @@ Do you have heart disease or know someone who does? What do you think are the mo
 
 ## Related Posts
 
-- [what to know before getting a tattoo](https://lifestyle.allwomenstalk.com/things-to-consider-before-getting-a-tattoo/)
-- [weird addictions](https://health.allwomenstalk.com/totally-strange-addictions-that-youve-got-to-check-out/)
-- [minerals your body needs daily](https://health.allwomenstalk.com/minerals-your-body-needs-every-day/)
 - [what do feet tell you about your health](https://health.allwomenstalk.com/things-your-feet-can-tell-you-about-your-health/)
-- [things you sign](https://lifestyle.allwomenstalk.com/things-you-should-sign-up-for/)
-- [detox symptoms from juicing](https://health.allwomenstalk.com/effects-of-cleansing-to-be-aware-of-before-you-start/)
 - [ensure anorexia](https://health.allwomenstalk.com/signs-you-may-need-to-take-ensure-supplements/)
-- [controversial supplements](https://health.allwomenstalk.com/controversial-health-supplements-and-what-you-need-to-know/)
-- [fluoride negative effects](https://health.allwomenstalk.com/negative-effects-of-fluoride-on-your-health/)
+- [things you sign](https://lifestyle.allwomenstalk.com/things-you-should-sign-up-for/)
+- [what to know before getting a tattoo](https://lifestyle.allwomenstalk.com/things-to-consider-before-getting-a-tattoo/)
 - [what gives away your age](https://beauty.allwomenstalk.com/body-parts-that-can-give-away-your-age/)
+- [minerals your body needs daily](https://health.allwomenstalk.com/minerals-your-body-needs-every-day/)
+- [detox symptoms from juicing](https://health.allwomenstalk.com/effects-of-cleansing-to-be-aware-of-before-you-start/)
+- [weird addictions](https://health.allwomenstalk.com/totally-strange-addictions-that-youve-got-to-check-out/)
+- [fluoride negative effects](https://health.allwomenstalk.com/negative-effects-of-fluoride-on-your-health/)
+- [controversial supplements](https://health.allwomenstalk.com/controversial-health-supplements-and-what-you-need-to-know/)
 - [7 Ways to Keep Your Heart Healthy ...](https://health.allwomenstalk.com/7-ways-to-keep-your-heart-healthy/)
 - [10 Things to Know to Stay Healthy ...](https://health.allwomenstalk.com/things-to-know-to-stay-healthy/)
 

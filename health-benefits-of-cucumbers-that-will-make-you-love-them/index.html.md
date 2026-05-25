@@ -50,16 +50,16 @@ I knew they were good for me, but I never knew there were so many healthy benefi
 
 ## Related Posts
 
-- [justify coffee](https://food.allwomenstalk.com/perks-of-coffee-that-justify-your-habit/)
-- [7 Essential Reasons to Supplement with Zinc This Y...](https://health.allwomenstalk.com/essential-reasons-to-supplement-with-zinc-this-year/)
-- [10 Reasons to Eat More Spinach ...](https://food.allwomenstalk.com/reasons-to-eat-more-spinach/)
-- [7 Amazing Benefits of Getting in the Sauna ...](https://health.allwomenstalk.com/amazing-benefits-of-getting-in-the-sauna/)
-- [9 Beautiful and Delicious Berries and Their Health...](https://health.allwomenstalk.com/beautiful-and-delicious-berries-and-their-health-benefits/)
-- [7 Benefits of Yerba Mate Tea That Will Have Your H...](https://health.allwomenstalk.com/benefits-of-yerba-mate-tea-that-will-have-your-head-spinning/)
-- [7 Herbal Supplements You Should Consume for a Powe...](https://health.allwomenstalk.com/herbal-supplements-you-should-consume-for-a-powerful-immune-system/)
 - [7 Awesome Reasons to Eat Apples Every Day ...](https://food.allwomenstalk.com/awesome-reasons-to-eat-apples-every-day/)
 - [7 Exceptional Benefits of Apple Cider Vinegar ...](https://health.allwomenstalk.com/exceptional-benefits-of-apple-cider-vinegar/)
+- [justify coffee](https://food.allwomenstalk.com/perks-of-coffee-that-justify-your-habit/)
 - [7 Amazing Health Benefits of Drinking Tea ...](https://health.allwomenstalk.com/amazing-health-benefits-of-drinking-tea/)
+- [7 Herbal Supplements You Should Consume for a Powe...](https://health.allwomenstalk.com/herbal-supplements-you-should-consume-for-a-powerful-immune-system/)
+- [7 Benefits of Yerba Mate Tea That Will Have Your H...](https://health.allwomenstalk.com/benefits-of-yerba-mate-tea-that-will-have-your-head-spinning/)
+- [9 Beautiful and Delicious Berries and Their Health...](https://health.allwomenstalk.com/beautiful-and-delicious-berries-and-their-health-benefits/)
+- [10 Reasons to Eat More Spinach ...](https://food.allwomenstalk.com/reasons-to-eat-more-spinach/)
+- [7 Essential Reasons to Supplement with Zinc This Y...](https://health.allwomenstalk.com/essential-reasons-to-supplement-with-zinc-this-year/)
+- [7 Amazing Benefits of Getting in the Sauna ...](https://health.allwomenstalk.com/amazing-benefits-of-getting-in-the-sauna/)
 - [9 Healthiest Vegetables to Add to Your Diet ...](https://diet.allwomenstalk.com/healthiest-vegetables-to-add-to-your-diet/)
 - [9 Simple Ways to Eat More Vegetables ...](https://food.allwomenstalk.com/simple-ways-to-eat-more-vegetables/)
 

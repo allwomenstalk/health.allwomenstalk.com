@@ -42,15 +42,15 @@ Beating an eating disorder is achievable if you explore the different treatment 
 
 ## Related Posts
 
-- [9 Tips for Stabilizing Your Insulin at Each of You...](https://health.allwomenstalk.com/tips-for-stabilizing-you-insulin-at-each-of-your-meals/)
-- [ways to get healthy fast](https://health.allwomenstalk.com/quick-and-simple-ways-to-get-healthier/)
-- [7 Ways to Enjoy Chocolate without Blowing Your Cal...](https://diet.allwomenstalk.com/ways-to-enjoy-chocolate-without-blowing-your-calories-for-the-day/)
-- [eating at a wedding...](https://food.allwomenstalk.com/tips-on-eating-healthy-at-weddings-that-work/)
-- [7 Important Reasons to Improve Your Diet and Eatin...](https://diet.allwomenstalk.com/important-reasons-to-improve-your-diet-and-eating-habits/)
-- [11 Ways to Know if Your Diet is Healthy or Not ...](https://diet.allwomenstalk.com/ways-to-know-if-your-diet-is-healthy-or-not/)
-- [7 Ways to Fight Fatigue with Food ...](https://health.allwomenstalk.com/ways-to-fight-fatigue-with-food/)
 - [7 Tips for Cooking Healthier in the New Year ...](https://food.allwomenstalk.com/tips-for-cooking-healthier-in-the-new-year/)
+- [eating at a wedding...](https://food.allwomenstalk.com/tips-on-eating-healthy-at-weddings-that-work/)
+- [11 Ways to Know if Your Diet is Healthy or Not ...](https://diet.allwomenstalk.com/ways-to-know-if-your-diet-is-healthy-or-not/)
+- [ways to get healthy fast](https://health.allwomenstalk.com/quick-and-simple-ways-to-get-healthier/)
+- [7 Important Reasons to Improve Your Diet and Eatin...](https://diet.allwomenstalk.com/important-reasons-to-improve-your-diet-and-eating-habits/)
 - [new year health tips](https://health.allwomenstalk.com/health-tips-for-the-new-year/)
+- [9 Tips for Stabilizing Your Insulin at Each of You...](https://health.allwomenstalk.com/tips-for-stabilizing-you-insulin-at-each-of-your-meals/)
+- [7 Ways to Fight Fatigue with Food ...](https://health.allwomenstalk.com/ways-to-fight-fatigue-with-food/)
+- [7 Ways to Enjoy Chocolate without Blowing Your Cal...](https://diet.allwomenstalk.com/ways-to-enjoy-chocolate-without-blowing-your-calories-for-the-day/)
 - [9 Diet Choices to Make if You Suffer from High Blo...](https://food.allwomenstalk.com/diet-choices-to-make-if-you-suffer-high-blood-pressure/)
 - [7 Radical Cures for Obesity ...](https://allwomenstalk.com/7-radical-cures-for-obesity/)
 - [7 Ways to Repair Your Relationship with Food ...](https://diet.allwomenstalk.com/ways-to-repair-your-relationship-with-food/)

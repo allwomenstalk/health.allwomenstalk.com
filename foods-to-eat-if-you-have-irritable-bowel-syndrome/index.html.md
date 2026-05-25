@@ -56,16 +56,16 @@ Do you have IBS? What foods are safe for you to eat?
 
 ## Related Posts
 
-- [The Best Fruits and Veggies  for Your Body ...](https://diet.allwomenstalk.com/these-fruits-and-veggies-are-the-best-for-your-body/)
 - [Never Let Your Baby Eat These 7 Foods ...](https://parenting.allwomenstalk.com/never-let-your-baby-eat-these-foods/)
+- [How to Tell if Youve Chosen a Healthy Cereal ...](https://health.allwomenstalk.com/how-to-tell-if-youve-chosen-a-healthy-cereal/)
+- [Healthy Food Trends You Need in 2017 ...](https://food.allwomenstalk.com/follow-these-healthy-food-trends-in/)
 - [Awesome Reasons All Women Should Adopt Meatless Mo...](https://diet.allwomenstalk.com/why-every-woman-should-adopt-meatless-monday/)
+- [10 Foods to Give You the Flat Belly Youve Always D...](https://weightloss.allwomenstalk.com/these-foods-can-help-you-flatten-your-belly/)
+- [The Best Fruits and Veggies  for Your Body ...](https://diet.allwomenstalk.com/these-fruits-and-veggies-are-the-best-for-your-body/)
+- [Homemade Juicing Recipes  to Make to Stay Healthy ...](https://health.allwomenstalk.com/these-homemade-juice-recipes-will-keep-you-healthy/)
+- [Healthy Foods to Eat when Stressed Instead of Junk...](https://food.allwomenstalk.com/foods-to-eat-when-youre-stressed-instead-of-a-sugary-snack/)
 - [10 Healthy Foods  You Can Regrow at Home ...](https://food.allwomenstalk.com/healthy-foods-you-can-regrow-at-home/)
 - [Spices for Your Food That Are Delicious and Benefi...](https://diet.allwomenstalk.com/stay-healthy-by-using-these-spices-on-your-food/)
-- [Healthy Foods to Eat when Stressed Instead of Junk...](https://food.allwomenstalk.com/foods-to-eat-when-youre-stressed-instead-of-a-sugary-snack/)
-- [Homemade Juicing Recipes  to Make to Stay Healthy ...](https://health.allwomenstalk.com/these-homemade-juice-recipes-will-keep-you-healthy/)
-- [Healthy Food Trends You Need in 2017 ...](https://food.allwomenstalk.com/follow-these-healthy-food-trends-in/)
-- [How to Tell if Youve Chosen a Healthy Cereal ...](https://health.allwomenstalk.com/how-to-tell-if-youve-chosen-a-healthy-cereal/)
-- [10 Foods to Give You the Flat Belly Youve Always D...](https://weightloss.allwomenstalk.com/these-foods-can-help-you-flatten-your-belly/)
 - [7 Remedies for an Aching Stomach ...](https://health.allwomenstalk.com/7-remedies-for-an-aching-stomach/)
 - [7 Foods You Should Eat Every Day ...](https://allwomenstalk.com/7-foods-you-should-eat-every-day/)
 

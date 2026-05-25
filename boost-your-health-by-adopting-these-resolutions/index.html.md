@@ -116,16 +116,16 @@ What's your health resolution this year?
 
 ## Related Posts
 
-- [10 Habits Thatll Start Your Year off the Right Way...](https://health.allwomenstalk.com/habits-thatll-start-your-year-off-the-right-way/)
-- [Get to Know Yourself Better by Answering These 17 ...](https://inspiration.allwomenstalk.com/get-to-know-yourself-better-by-answering-these-questions/)
-- [Websites That Will Help You Keep Your New Years Re...](https://lifestyle.allwomenstalk.com/websites-that-will-help-keep-your-new-years-resolutions/)
-- [How to Stick  to Your New Years Resolution of Lear...](https://diy.allwomenstalk.com/how-to-stick-to-your-new-years-resolution-of-learning-something-new/)
+- [Make a Difference in 2019 with These Meaningful Re...](https://inspiration.allwomenstalk.com/make-a-difference-in-with-these-meaningful-resolutions/)
 - [17 Realistic New Years Resolutions for ...](https://inspiration.allwomenstalk.com/realistic-new-years-resolutions/)
 - [Rules for Setting New Years Resolutions That Youll...](https://inspiration.allwomenstalk.com/rules-for-setting-new-years-resolutions-that-youll-actually-keep/)
-- [Make a Difference in 2019 with These Meaningful Re...](https://inspiration.allwomenstalk.com/make-a-difference-in-with-these-meaningful-resolutions/)
 - [The Science of Motivation ...](https://inspiration.allwomenstalk.com/the-science-of-motivation/)
-- [Check out These Websites to Boost Brain Power  ...](https://7fun.net/want-to-be-smarter-check-out-these-websites/)
+- [How to Stick  to Your New Years Resolution of Lear...](https://diy.allwomenstalk.com/how-to-stick-to-your-new-years-resolution-of-learning-something-new/)
+- [Websites That Will Help You Keep Your New Years Re...](https://lifestyle.allwomenstalk.com/websites-that-will-help-keep-your-new-years-resolutions/)
+- [Get to Know Yourself Better by Answering These 17 ...](https://inspiration.allwomenstalk.com/get-to-know-yourself-better-by-answering-these-questions/)
 - [17 New Years Resolutions Thatll Make You Happier ....](https://inspiration.allwomenstalk.com/new-years-resolutions-thatll-make-you-happier/)
+- [10 Habits Thatll Start Your Year off the Right Way...](https://health.allwomenstalk.com/habits-thatll-start-your-year-off-the-right-way/)
+- [Check out These Websites to Boost Brain Power  ...](https://7fun.net/want-to-be-smarter-check-out-these-websites/)
 - [7 Resolutions for a Healthier 2019 ...](https://allwomenstalk.com/resolutions-for-a-healthier/)
 - [7 Simple Steps to a Healthy Lifestyle ...](https://allwomenstalk.com/7-simple-steps-to-a-healthy-lifestyle/)
 

@@ -136,16 +136,16 @@ Sometimes we just need a little **motivation** to move us, to get us going when 
 
 ## Related Posts
 
-- [a simple i love you means more than money](https://allwomenstalk.com/10-of-my-favorite-love-quotes/)
-- [Words of Wisdom from Natalie Wood ...](https://allwomenstalk.com/words-of-wisdom-from-natalie-wood/)
 - [single as](https://love.allwomenstalk.com/awesome-quotes-about-being-single/)
-- [women christian speakers](https://lifestyle.allwomenstalk.com/quotes-to-empower-and-inspire-women/)
+- [Words of Wisdom from Natalie Wood ...](https://allwomenstalk.com/words-of-wisdom-from-natalie-wood/)
 - [motivational running quote](https://allwomenstalk.com/7-motivational-quotes-for-runners/)
-- [color riche le stylo shadow enchanted](https://allwomenstalk.com/7-stargirl-quotes-to-inspire-you/)
-- [quotes exercise health](https://health.allwomenstalk.com/motivational-health-and-exercise-quotes/)
-- [war is gods way of teaching americans geography](https://allwomenstalk.com/10-favorite-quotes/)
 - [black woman friendship quotes](https://lifestyle.allwomenstalk.com/friendship-quotes/)
+- [women christian speakers](https://lifestyle.allwomenstalk.com/quotes-to-empower-and-inspire-women/)
+- [a simple i love you means more than money](https://allwomenstalk.com/10-of-my-favorite-love-quotes/)
+- [quotes exercise health](https://health.allwomenstalk.com/motivational-health-and-exercise-quotes/)
 - [today outfit](https://allwomenstalk.com/fashion-quotes-newsletter/)
+- [war is gods way of teaching americans geography](https://allwomenstalk.com/10-favorite-quotes/)
+- [color riche le stylo shadow enchanted](https://allwomenstalk.com/7-stargirl-quotes-to-inspire-you/)
 - [8 Reasons to Keep Going when Youre Feeling down .....](https://health.allwomenstalk.com/reasons-to-keep-going-when-youre-feeling-down/)
 - [9 Inspiring Quotes to Lift Your Spirits ...](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
 

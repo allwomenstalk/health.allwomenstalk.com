@@ -46,16 +46,16 @@ I hope that by reminding you of all the reasons why you are amazing you have ear
 
 ## Related Posts
 
+- [wish i was](https://lifestyle.allwomenstalk.com/reasons-why-i-wish-i-was-british/)
 - [i love doctor who](https://movies.allwomenstalk.com/reasons-to-love-doctor-who/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/reasons-to-love-zumba/)
-- [how to watch buffy the vampire slayer](https://movies.allwomenstalk.com/reasons-to-watch-buffy-the-vampire-slayer/)
 - [do you like to use technology](https://lifestyle.allwomenstalk.com/reasons-to-love-technology/)
-- [jr ward reading order](https://books.allwomenstalk.com/reasons-to-love-j-r-wards-black-dagger-brotherhood-series/)
 - [forever 21 dupes](https://fashion.allwomenstalk.com/reaons-we-love-forever-21/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/reasons-to-love-zumba/)
 - [reasons to live in michigan](https://travel.allwomenstalk.com/reasons-to-love-michigan/)
 - [marlee matlin family guy](https://celebs.allwomenstalk.com/reasons-to-admire-marlee-matlin/)
+- [jr ward reading order](https://books.allwomenstalk.com/reasons-to-love-j-r-wards-black-dagger-brotherhood-series/)
 - [soap movies meaning](https://movies.allwomenstalk.com/reasons-soap-operas-are-so-addicting/)
-- [wish i was](https://lifestyle.allwomenstalk.com/reasons-why-i-wish-i-was-british/)
+- [how to watch buffy the vampire slayer](https://movies.allwomenstalk.com/reasons-to-watch-buffy-the-vampire-slayer/)
 - [10 Reasons to Smile in Life ...](https://allwomenstalk.com/10-reasons-to-smile-in-life/)
 - [10 Reasons Why Being a Woman is Great ...](https://allwomenstalk.com/10-reasons-why-being-a-woman-is-great/)
 

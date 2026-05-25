@@ -62,16 +62,16 @@ Having leaky gut syndrome can be a life altering condition, but there are a lot 
 
 ## Related Posts
 
-- [face mapping for health](https://health.allwomenstalk.com/things-face-mapping-can-tell-you-about-your-health/)
-- [7 Health Warnings You Can Stop Listening to and sa...](https://vityle.com/health-warnings-you-can-stop-listening-to-and-save-your-sanity/)
-- [7 Things That Can Influence Your Memory You Might ...](https://inspiration.allwomenstalk.com/things-that-can-influence-your-memory-you-might-not-know-about/)
 - [9 Important Facts about Fertility That You Should ...](https://health.allwomenstalk.com/important-facts-about-fertility-that-you-should-know/)
 - [7 Causes  Triggers of Eczema in Children to Be Awa...](https://health.allwomenstalk.com/causes-triggers-of-eczema-in-children-to-be-aware-of/)
-- [7 Important Things You Need to Know about Antibiot...](https://vityle.com/important-things-you-need-to-know-about-antibiotics/)
-- [7 Important Things You Need to Know about Iodine ....](https://health.allwomenstalk.com/important-things-you-need-to-know-about-iodine/)
-- [15 Milestones in the History of Menstruation ...](https://health.allwomenstalk.com/milestones-in-the-history-of-menstruation/)
 - [7 Essential Facts You Need to Know about Estrogen ...](https://health.allwomenstalk.com/essential-facts-you-need-to-know-about-estrogen-dominance/)
+- [7 Health Warnings You Can Stop Listening to and sa...](https://vityle.com/health-warnings-you-can-stop-listening-to-and-save-your-sanity/)
+- [7 Things That Can Influence Your Memory You Might ...](https://inspiration.allwomenstalk.com/things-that-can-influence-your-memory-you-might-not-know-about/)
+- [7 Important Things You Need to Know about Iodine ....](https://health.allwomenstalk.com/important-things-you-need-to-know-about-iodine/)
 - [7 Ways PMS Affects Your Digestion and What to do a...](https://health.allwomenstalk.com/ways-pms-affects-your-digestion-and-what-to-do-about-it/)
+- [7 Important Things You Need to Know about Antibiot...](https://vityle.com/important-things-you-need-to-know-about-antibiotics/)
+- [15 Milestones in the History of Menstruation ...](https://health.allwomenstalk.com/milestones-in-the-history-of-menstruation/)
+- [face mapping for health](https://health.allwomenstalk.com/things-face-mapping-can-tell-you-about-your-health/)
 - [10 Facts about Fiber You Should Know ...](https://allwomenstalk.com/10-facts-about-fiber-you-should-know/)
 - [8 Reasons to See Your Doctor ...](https://allwomenstalk.com/8-reasons-to-see-your-doctor/)
 

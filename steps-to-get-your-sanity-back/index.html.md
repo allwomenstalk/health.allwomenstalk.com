@@ -36,16 +36,16 @@ Make it a point to do this activity for 3 days. After your third day, do it for 
 
 ## Related Posts
 
-- [turn on study](https://fitness.allwomenstalk.com/how-to-squeeze-in-exercise-during-your-study-breaks-for-busy-students/)
+- [energy zapping](https://health.allwomenstalk.com/things-that-zap-your-energy-on-a-daily-basis/)
 - [flower mental health](https://gardening.allwomenstalk.com/flowers-that-can-improve-your-mental-health/)
+- [how to stay positive during exams](https://teen.allwomenstalk.com/how-to-stay-positive-during-exam-season/)
+- [drained empath quotes](https://inspiration.allwomenstalk.com/an-empaths-guide-to-self-care/)
+- [ways to set the mood](https://love.allwomenstalk.com/paris-in-a-handbasket-quick-tricks-to-help-you-set-the-mood/)
+- [how to be chill af](https://inspiration.allwomenstalk.com/simple-steps-to-be-chill-af/)
+- [turn on study](https://fitness.allwomenstalk.com/how-to-squeeze-in-exercise-during-your-study-breaks-for-busy-students/)
 - [stress reliever drawing](https://diy.allwomenstalk.com/ways-to-relieve-stress-through-drawing/)
 - [hidden reasons behind stress](https://health.allwomenstalk.com/hidden-sources-of-stress-in-your-life/)
-- [energy zapping](https://health.allwomenstalk.com/things-that-zap-your-energy-on-a-daily-basis/)
 - [busters stress](https://health.allwomenstalk.com/effective-stress-busters-everyone-should-know/)
-- [drained empath quotes](https://inspiration.allwomenstalk.com/an-empaths-guide-to-self-care/)
-- [how to be chill af](https://inspiration.allwomenstalk.com/simple-steps-to-be-chill-af/)
-- [how to stay positive during exams](https://teen.allwomenstalk.com/how-to-stay-positive-during-exam-season/)
-- [ways to set the mood](https://love.allwomenstalk.com/paris-in-a-handbasket-quick-tricks-to-help-you-set-the-mood/)
 - [5 Things for a Stress Free Life ...](https://allwomenstalk.com/the-top-5-things-for-a-stress-free-life/)
 - [5 Things That Can Help You Relax Today...](https://allwomenstalk.com/5-things-that-can-help-you-relax-today/)
 

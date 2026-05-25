@@ -52,16 +52,16 @@ Top Photo Credit: [kirstiecat](https://www.flickr.com/photos/kirstiecat/50410814
 
 ## Related Posts
 
-- [Ease the Stress of Flying with a Soothing Eye Pill...](https://allwomenstalk.com/ease-the-stress-of-flying-with-a-soothing-eye-pillow/)
-- [green health acupressure services](https://health.allwomenstalk.com/spots-to-massage-your-stress-away/)
 - [7 Ways to Handle Holiday Stress ...](https://health.allwomenstalk.com/ways-to-handle-holiday-stress/)
+- [8 Ways of Dealing with Stress at School ...](https://lifestyle.allwomenstalk.com/ways-of-dealing-with-stress-at-school/)
+- [Ease the Stress of Flying with a Soothing Eye Pill...](https://allwomenstalk.com/ease-the-stress-of-flying-with-a-soothing-eye-pillow/)
+- [dwane needs to be careful about eating carbohydrat...](https://allwomenstalk.com/10-ways-to-prevent-depression/)
 - [8 Quick Stress Busters ...](https://health.allwomenstalk.com/8-quick-stress-busters/)
 - [top 10 ways to fight depression](https://allwomenstalk.com/10-ways-to-fight-depression/)
-- [how to get over an obsession](https://lifestyle.allwomenstalk.com/ways-to-stop-being-obsessive/)
-- [dwane needs to be careful about eating carbohydrat...](https://allwomenstalk.com/10-ways-to-prevent-depression/)
-- [8 Ways of Dealing with Stress at School ...](https://lifestyle.allwomenstalk.com/ways-of-dealing-with-stress-at-school/)
-- [How to Reduce Stress ...](https://allwomenstalk.com/how-to-reduce-stress/)
+- [green health acupressure services](https://health.allwomenstalk.com/spots-to-massage-your-stress-away/)
 - [New Years Resolution - Less Stress](https://allwomenstalk.com/new-years-resolution-less-stress/)
+- [How to Reduce Stress ...](https://allwomenstalk.com/how-to-reduce-stress/)
+- [how to get over an obsession](https://lifestyle.allwomenstalk.com/ways-to-stop-being-obsessive/)
 - [10 Easy Ways to Relieve Anxiety ...](https://allwomenstalk.com/10-easy-ways-to-relieve-anxiety/)
 - [9 Simple Ways to Feel Good ...](https://allwomenstalk.com/9-simple-ways-to-feel-good/)
 

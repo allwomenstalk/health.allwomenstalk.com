@@ -42,16 +42,16 @@ If you follow these tips, you should soon be a pro at drifting off to sleep in h
 
 ## Related Posts
 
-- [things to think about when trying to sleep](https://health.allwomenstalk.com/things-to-think-about-before-bed/)
-- [flight accessories for sleeping](https://travel.allwomenstalk.com/tips-for-sleeping-on-a-plane/)
-- [safe 7 sleep](https://parenting.allwomenstalk.com/must-follow-tips-for-safe-sleep-for-your-baby/)
-- [freefaller sleeping position](https://health.allwomenstalk.com/sleeping-positions-and-what-they-say-about-you/)
-- [how to wake up on time for work](https://lifestyle.allwomenstalk.com/time-management-tips-to-get-you-to-work-on-time-in-the-morning/)
+- [waking up in the middle of the night](https://health.allwomenstalk.com/reasons-you-wake-up-in-the-middle-of-the-night-every-single-night/)
 - [freefaller sleeping position personality](https://lifestyle.allwomenstalk.com/sleep-positions-and-what-they-say-about-your-personality/)
 - [theories why we dream](https://lifestyle.allwomenstalk.com/interesting-theories-of-why-we-dream/)
-- [waking up in the middle of the night](https://health.allwomenstalk.com/reasons-you-wake-up-in-the-middle-of-the-night-every-single-night/)
-- [funsummer10](https://lifestyle.allwomenstalk.com/ways-to-become-a-morning-person/)
 - [is tea a dehydrant](https://food.allwomenstalk.com/tricks-to-beating-the-caffeine-habit/)
+- [funsummer10](https://lifestyle.allwomenstalk.com/ways-to-become-a-morning-person/)
+- [freefaller sleeping position](https://health.allwomenstalk.com/sleeping-positions-and-what-they-say-about-you/)
+- [how to wake up on time for work](https://lifestyle.allwomenstalk.com/time-management-tips-to-get-you-to-work-on-time-in-the-morning/)
+- [flight accessories for sleeping](https://travel.allwomenstalk.com/tips-for-sleeping-on-a-plane/)
+- [safe 7 sleep](https://parenting.allwomenstalk.com/must-follow-tips-for-safe-sleep-for-your-baby/)
+- [things to think about when trying to sleep](https://health.allwomenstalk.com/things-to-think-about-before-bed/)
 - [10 Ways to Sleep Better ...](https://health.allwomenstalk.com/ways-to-sleep-better/)
 - [11 Tips to Help You Sleep Better ...](https://allwomenstalk.com/6-natural-remedies-to-help-you-sleep-better/)
 

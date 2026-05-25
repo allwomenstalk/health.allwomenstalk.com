@@ -42,16 +42,16 @@ These are some of my personal favorite mantras to keep in mind when recovering f
 
 ## Related Posts
 
-- [websites to calm you down](https://health.allwomenstalk.com/zen-friendly-websites-to-keep-you-calm-and-productive/)
+- [mental health approaches](https://health.allwomenstalk.com/therapeutic-approaches-to-overcoming-mental-illness/)
+- [depression tips and tricks](https://health.allwomenstalk.com/mental-tricks-to-fight-depression-that-really-do-work/)
+- [how successful people stay calm](https://inspiration.allwomenstalk.com/very-interesting-ways-successful-people-stay-calm/)
 - [how to heal yourself emotionally](https://inspiration.allwomenstalk.com/ways-to-emotionally-heal-yourself-and-be-set-free/)
 - [how to listen to your body](https://health.allwomenstalk.com/effective-ways-to-listen-to-your-body/)
-- [you had a long day](https://health.allwomenstalk.com/very-useful-tips-on-how-to-recover-after-a-long-day-at-work/)
-- [calming things to do](https://inspiration.allwomenstalk.com/calming-things-to-do-when-everything-else-seems-to-fail/)
-- [mental health approaches](https://health.allwomenstalk.com/therapeutic-approaches-to-overcoming-mental-illness/)
-- [grouch meaning](https://inspiration.allwomenstalk.com/helpful-hints-on-how-to-stop-being-a-grouch/)
-- [depression tips and tricks](https://health.allwomenstalk.com/mental-tricks-to-fight-depression-that-really-do-work/)
 - [how to deal with senioritis in high school](https://teen.allwomenstalk.com/tips-on-how-to-deal-with-senioritis/)
-- [how successful people stay calm](https://inspiration.allwomenstalk.com/very-interesting-ways-successful-people-stay-calm/)
+- [websites to calm you down](https://health.allwomenstalk.com/zen-friendly-websites-to-keep-you-calm-and-productive/)
+- [calming things to do](https://inspiration.allwomenstalk.com/calming-things-to-do-when-everything-else-seems-to-fail/)
+- [grouch meaning](https://inspiration.allwomenstalk.com/helpful-hints-on-how-to-stop-being-a-grouch/)
+- [you had a long day](https://health.allwomenstalk.com/very-useful-tips-on-how-to-recover-after-a-long-day-at-work/)
 - [7 Great Books on Mental Illness ...](https://health.allwomenstalk.com/great-books-on-mental-illness/)
 - [7 Ways to Feel Better ...](https://health.allwomenstalk.com/ways-to-feel-better/)
 

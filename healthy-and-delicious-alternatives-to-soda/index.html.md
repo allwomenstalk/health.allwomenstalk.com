@@ -54,16 +54,16 @@ If you've found yourself with an addiction to soda, try any of these 7 delicious
 
 ## Related Posts
 
-- [food inspired by the milky way persona](https://food.allwomenstalk.com/celebrity-smoothie-recipes-to-put-in-your-blender-this-week/)
-- [7 day smoothie detox](https://food.allwomenstalk.com/delicious-and-detoxifying-green-drinks-to-help-clear-your-skin/)
-- [how do you like your coffee](https://food.allwomenstalk.com/different-ways-to-enjoy-your-morning-coffee/)
-- [lychee and dog meat festival](https://food.allwomenstalk.com/crazy-cocktails-you-have-to-try/)
 - [zebra mocha starbucks](https://food.allwomenstalk.com/starbucks-drinks-you-must-try-next-time-youre-there/)
-- [juices to reduce bloating](https://food.allwomenstalk.com/best-healthy-juice-recipes-to-absolutely-flip-over/)
-- [is gatorade a good replacement for water](https://fitness.allwomenstalk.com/alternatives-to-gatorade-to-consider-if-youre-an-athlete/)
+- [lychee and dog meat festival](https://food.allwomenstalk.com/crazy-cocktails-you-have-to-try/)
+- [7 day smoothie detox](https://food.allwomenstalk.com/delicious-and-detoxifying-green-drinks-to-help-clear-your-skin/)
 - [cheap alternatives to soda](https://food.allwomenstalk.com/healthy-soda-alternatives-that-will-have-you-kick-your-habit-for-good/)
-- [blended fruit juice](https://food.allwomenstalk.com/fresh-juice-blends-that-will-taste-delicious-while-cooling-you-off/)
+- [juices to reduce bloating](https://food.allwomenstalk.com/best-healthy-juice-recipes-to-absolutely-flip-over/)
+- [food inspired by the milky way persona](https://food.allwomenstalk.com/celebrity-smoothie-recipes-to-put-in-your-blender-this-week/)
 - [coffee infused with superfoods](https://food.allwomenstalk.com/healthy-coffee-infused-recipes-that-wont-break-your-diet-or-your-bank/)
+- [how do you like your coffee](https://food.allwomenstalk.com/different-ways-to-enjoy-your-morning-coffee/)
+- [is gatorade a good replacement for water](https://fitness.allwomenstalk.com/alternatives-to-gatorade-to-consider-if-youre-an-athlete/)
+- [blended fruit juice](https://food.allwomenstalk.com/fresh-juice-blends-that-will-taste-delicious-while-cooling-you-off/)
 - [7 Healthy and Diet-Friendly Alternatives to Your F...](https://diet.allwomenstalk.com/healthy-and-diet-friendly-alternatives-to-your-favorite-comfort-foods/)
 - [7 Carbonated Beverage Alternatives ...](https://allwomenstalk.com/7-carbonated-beverage-alternatives/)
 

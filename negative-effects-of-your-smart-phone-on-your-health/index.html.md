@@ -42,16 +42,16 @@ As you can see, smart phones easily affect several areas of our overall health. 
 
 ## Related Posts
 
-- [life saving items](https://lifestyle.allwomenstalk.com/life-saving-items-you-must-keep-in-your-emergency-kit/)
-- [myths about stds](https://health.allwomenstalk.com/common-myths-about-sexually-transmitted-diseases-and-infections/)
-- [multivitamin without titanium dioxide](https://health.allwomenstalk.com/toxic-ingredients-to-avoid-when-buying-supplements/)
-- [the skin book tattoo](https://lifestyle.allwomenstalk.com/things-you-didnt-know-about-getting-a-tattoo/)
-- [tired all the time blood test](https://health.allwomenstalk.com/blood-tests-for-fatigue-to-have-your-doctor-do-if-youre-always-tired/)
-- [does hot yoga tone your body](https://lifestyle.allwomenstalk.com/pros-and-cons-of-hot-yoga-that-you-should-know/)
-- [bad things for your heart](https://health.allwomenstalk.com/bad-habits-that-could-damage-your-heart/)
-- [what to look for in a juicer](https://health.allwomenstalk.com/essential-things-to-consider-when-buying-a-juicer/)
-- [men and anorexia](https://health.allwomenstalk.com/facts-about-male-anorexia-that-you-probably-dont-know-but-should/)
 - [how to educate yourself on politics](https://lifestyle.allwomenstalk.com/important-political-issues-you-need-to-educate-yourself-on/)
+- [men and anorexia](https://health.allwomenstalk.com/facts-about-male-anorexia-that-you-probably-dont-know-but-should/)
+- [myths about stds](https://health.allwomenstalk.com/common-myths-about-sexually-transmitted-diseases-and-infections/)
+- [what to look for in a juicer](https://health.allwomenstalk.com/essential-things-to-consider-when-buying-a-juicer/)
+- [does hot yoga tone your body](https://lifestyle.allwomenstalk.com/pros-and-cons-of-hot-yoga-that-you-should-know/)
+- [tired all the time blood test](https://health.allwomenstalk.com/blood-tests-for-fatigue-to-have-your-doctor-do-if-youre-always-tired/)
+- [life saving items](https://lifestyle.allwomenstalk.com/life-saving-items-you-must-keep-in-your-emergency-kit/)
+- [multivitamin without titanium dioxide](https://health.allwomenstalk.com/toxic-ingredients-to-avoid-when-buying-supplements/)
+- [bad things for your heart](https://health.allwomenstalk.com/bad-habits-that-could-damage-your-heart/)
+- [the skin book tattoo](https://lifestyle.allwomenstalk.com/things-you-didnt-know-about-getting-a-tattoo/)
 - [5 Major Health Issues You Should Be Aware of ...](https://allwomenstalk.com/5-major-health-issues-you-should-be-aware-of/)
 - [8 Negative Effects of over-Exercise ...](https://allwomenstalk.com/8-negative-effects-of-over-exercise/)
 

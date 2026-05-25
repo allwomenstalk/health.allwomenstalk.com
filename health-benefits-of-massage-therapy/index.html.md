@@ -56,16 +56,16 @@ Massages can release the body’s natural endorphins, which boosts mood and work
 
 ## Related Posts
 
-- [best water detox for weight loss](https://food.allwomenstalk.com/detox-water-recipes-2/)
-- [yarrow benefits for periods](https://health.allwomenstalk.com/the-health-benefits-of-yarrow/)
-- [what happened to sparkpeople](https://weightloss.allwomenstalk.com/benefits-of-joining-sparkpeople-com/)
-- [sweet health benefits of chocolate](https://diet.allwomenstalk.com/health-benefits-of-chocolate/)
 - [kissing benefits](https://love.allwomenstalk.com/health-benefits-of-kissing/)
-- [a benefit to preparing and taking your own lunch t...](https://diet.allwomenstalk.com/benefits-of-packing-your-own-lunch/)
 - [benefits of oral collagen](https://health.allwomenstalk.com/benefits-of-oral-collagen/)
-- [is homemade sweet tea good for you](https://food.allwomenstalk.com/southern-sweet-tea/)
 - [sweet tea benefits](https://food.allwomenstalk.com/benefits-of-iced-tea/)
+- [yarrow benefits for periods](https://health.allwomenstalk.com/the-health-benefits-of-yarrow/)
+- [a benefit to preparing and taking your own lunch t...](https://diet.allwomenstalk.com/benefits-of-packing-your-own-lunch/)
+- [best water detox for weight loss](https://food.allwomenstalk.com/detox-water-recipes-2/)
+- [sweet health benefits of chocolate](https://diet.allwomenstalk.com/health-benefits-of-chocolate/)
 - [is chocolate milk good to drink after a workout](https://fitness.allwomenstalk.com/why-you-should-have-chocolate-milk-after-a-workout-rather-than-an-energy-drink/)
+- [what happened to sparkpeople](https://weightloss.allwomenstalk.com/benefits-of-joining-sparkpeople-com/)
+- [is homemade sweet tea good for you](https://food.allwomenstalk.com/southern-sweet-tea/)
 - [9 Healthy  Fun Ways to Relax ...](https://health.allwomenstalk.com/healthy-fun-ways-to-relax/)
 - [8 Spots to Massage Your Stress Away ...](https://health.allwomenstalk.com/spots-to-massage-your-stress-away/)
 

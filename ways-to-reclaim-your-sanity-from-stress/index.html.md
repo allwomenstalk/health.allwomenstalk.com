@@ -36,16 +36,16 @@ What things do you do to relax?
 
 ## Related Posts
 
-- [5 Coping Mechanisms to Use when Life Becomes Too M...](https://inspiration.allwomenstalk.com/coping-mechanisms-for-when-youre-overwhelmed/)
-- [It Only Takes a Minute to Turn a Negative Mood aro...](https://inspiration.allwomenstalk.com/easy-ways-to-adopt-a-positive-attitude/)
-- [Genius Ways to Help You Manage and Reduce Stress f...](https://health.allwomenstalk.com/ways-to-manage-and-reduce-stress/)
-- [Creative Ways to Cope when Life is Overwhelming .....](https://inspiration.allwomenstalk.com/ways-to-deal-with-life-is-overwhelming/)
 - [Perfect Ways to Manage Holiday Stress ...](https://lifestyle.allwomenstalk.com/how-to-manage-holiday-stress/)
+- [Little Things That Can Make You Feel Better even o...](https://inspiration.allwomenstalk.com/little-things-that-make-a-bad-day-better/)
+- [Exceptional Ways to Perk up Your Meditation Routin...](https://health.allwomenstalk.com/ways-to-perk-up-your-meditation-routine/)
+- [It Only Takes a Minute to Turn a Negative Mood aro...](https://inspiration.allwomenstalk.com/easy-ways-to-adopt-a-positive-attitude/)
+- [Perfect Ways to Cope when You Feel Overwhelmed ...](https://inspiration.allwomenstalk.com/ways-to-cope-when-youre-overwhelmed/)
 - [Exceptional Ways to Take Your Mind off the Stress ...](https://inspiration.allwomenstalk.com/ways-to-take-your-mind-off-the-stress-of-christmas/)
 - [what to do when youre in a funk](https://inspiration.allwomenstalk.com/ways-to-practice-self-care-when-youre-in-a-funk/)
-- [Perfect Ways to Cope when You Feel Overwhelmed ...](https://inspiration.allwomenstalk.com/ways-to-cope-when-youre-overwhelmed/)
-- [Exceptional Ways to Perk up Your Meditation Routin...](https://health.allwomenstalk.com/ways-to-perk-up-your-meditation-routine/)
-- [Little Things That Can Make You Feel Better even o...](https://inspiration.allwomenstalk.com/little-things-that-make-a-bad-day-better/)
+- [5 Coping Mechanisms to Use when Life Becomes Too M...](https://inspiration.allwomenstalk.com/coping-mechanisms-for-when-youre-overwhelmed/)
+- [Genius Ways to Help You Manage and Reduce Stress f...](https://health.allwomenstalk.com/ways-to-manage-and-reduce-stress/)
+- [Creative Ways to Cope when Life is Overwhelming .....](https://inspiration.allwomenstalk.com/ways-to-deal-with-life-is-overwhelming/)
 - [Easy Ways for Busy Girls to Find Time for the Thin...](https://inspiration.allwomenstalk.com/ways-to-make-time-for-your-passion/)
 - [Empowering Steps for Girls Who Want to Be More Min...](https://inspiration.allwomenstalk.com/steps-to-mindfulness-that-will-make-you-feel-amazing/)
 

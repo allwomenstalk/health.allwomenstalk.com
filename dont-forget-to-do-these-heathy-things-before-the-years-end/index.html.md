@@ -42,16 +42,16 @@ What are you going to do for your health before the end of the year?
 
 ## Related Posts
 
-- [how to curb cravings](https://weightloss.allwomenstalk.com/this-is-how-athletes-curb-their-food-cravings/)
-- [7 Healthy Things to do While Binge Watching  Netfl...](https://health.allwomenstalk.com/healthy-things-to-do-while-watching-netflix/)
-- [Heres How to Know if You Eat Enough Veggies ...](https://health.allwomenstalk.com/heres-how-to-know-if-you-eat-enough-veggies/)
-- [Kick These Unhealthy Eating Habits to the Curb ...](https://money.allwomenstalk.com/kick-these-unhealthy-eating-habits-to-the-curb/)
 - [7 Ways to Reverse Bad Diet Decisions ...](https://weightloss.allwomenstalk.com/ways-to-reverse-bad-diet-decisions/)
-- [Make Your Diet Easier to Stick to with These Simpl...](https://weightloss.allwomenstalk.com/make-your-diet-easier-to-stick-to-with-these-simple-steps/)
-- [making a meal healthier involves eating foods in](https://food.allwomenstalk.com/how-to-cook-healthier-in-the-upcoming-year/)
-- [Dont Let These Sneaky Menu Words Make You Eat Unhe...](https://health.allwomenstalk.com/dont-let-these-sneaky-menu-words-make-you-eat-unhealthy/)
+- [Heres How to Know if You Eat Enough Veggies ...](https://health.allwomenstalk.com/heres-how-to-know-if-you-eat-enough-veggies/)
+- [how to curb cravings](https://weightloss.allwomenstalk.com/this-is-how-athletes-curb-their-food-cravings/)
 - [How to Make the Switch to Whole Grains for a Bette...](https://diet.allwomenstalk.com/how-to-make-the-switch-to-whole-grains-for-a-better-body/)
+- [making a meal healthier involves eating foods in](https://food.allwomenstalk.com/how-to-cook-healthier-in-the-upcoming-year/)
+- [Kick These Unhealthy Eating Habits to the Curb ...](https://money.allwomenstalk.com/kick-these-unhealthy-eating-habits-to-the-curb/)
+- [Make Your Diet Easier to Stick to with These Simpl...](https://weightloss.allwomenstalk.com/make-your-diet-easier-to-stick-to-with-these-simple-steps/)
+- [7 Healthy Things to do While Binge Watching  Netfl...](https://health.allwomenstalk.com/healthy-things-to-do-while-watching-netflix/)
 - [How to Eat Better in 2019 than You Did in 2018 ...](https://diet.allwomenstalk.com/how-to-eat-better-in-than-you-did-in/)
+- [Dont Let These Sneaky Menu Words Make You Eat Unhe...](https://health.allwomenstalk.com/dont-let-these-sneaky-menu-words-make-you-eat-unhealthy/)
 - [7 Tips to Maintain Good Health ...](https://health.allwomenstalk.com/tips-to-maintain-good-health/)
 - [7 Easy Ways to Improve Your Health Today ...](https://allwomenstalk.com/7-easy-ways-to-improve-your-health-today/)
 

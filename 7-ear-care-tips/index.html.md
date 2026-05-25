@@ -44,16 +44,16 @@ Top Photo Credit: [shareski](https://www.flickr.com/photos/shareski/2594555270/)
 
 ## Related Posts
 
-- [botox party at home](https://lifestyle.allwomenstalk.com/tips-for-planning-the-perfect-botox-party/)
-- [want a new gadget](https://lifestyle.allwomenstalk.com/helpful-tips-for-choosing-a-new-gadget/)
 - [become a writer](https://lifestyle.allwomenstalk.com/tips-on-how-to-become-a-writer/)
-- [7 Tips on Using Facebook for Your Business ...](https://lifestyle.allwomenstalk.com/tips-on-using-facebook-for-your-business/)
-- [how to blog better](https://lifestyle.allwomenstalk.com/tips-to-improve-your-blog/)
-- [tips to write poetry](https://lifestyle.allwomenstalk.com/tips-for-writing-poetry/)
+- [want a new gadget](https://lifestyle.allwomenstalk.com/helpful-tips-for-choosing-a-new-gadget/)
 - [tips on self discipline](https://lifestyle.allwomenstalk.com/7-tips-on-self-discipline/)
+- [tips to write poetry](https://lifestyle.allwomenstalk.com/tips-for-writing-poetry/)
+- [botox party at home](https://lifestyle.allwomenstalk.com/tips-for-planning-the-perfect-botox-party/)
 - [what is the best way to make a complaint](https://lifestyle.allwomenstalk.com/tips-on-how-to-make-a-successful-complaint/)
-- [old photo for retouching](https://lifestyle.allwomenstalk.com/tips-for-retouching-old-photos/)
 - [do angry birds](https://lifestyle.allwomenstalk.com/tips-on-how-to-beat-angry-birds/)
+- [7 Tips on Using Facebook for Your Business ...](https://lifestyle.allwomenstalk.com/tips-on-using-facebook-for-your-business/)
+- [old photo for retouching](https://lifestyle.allwomenstalk.com/tips-for-retouching-old-photos/)
+- [how to blog better](https://lifestyle.allwomenstalk.com/tips-to-improve-your-blog/)
 - [7 Summer Beauty Tips ...](https://makeup.allwomenstalk.com/summer-beauty-tips-2/)
 - [7 Home Remedies for a Earache ...](https://health.allwomenstalk.com/7-home-remedies-for-a-earache/)
 

@@ -42,16 +42,16 @@ By following these health and wellness resolutions, 2014 could easily be your he
 
 ## Related Posts
 
-- [minimalist lifestyle benefits](https://lifestyle.allwomenstalk.com/wonderful-benefits-of-living-a-minimalist-lifestyle-that-may-surprise-you/)
 - [how to recover on new years day](https://health.allwomenstalk.com/sure-fire-ways-to-recover-from-new-years-eve/)
-- [7 Smart Ways to Help You Move on in Life ...](https://lifestyle.allwomenstalk.com/smart-ways-to-help-you-move-on-in-life/)
-- [negin mirsalehi husband](https://inspiration.allwomenstalk.com/choices-that-will-change-your-life-for-the-better/)
 - [how to love yourself again](https://inspiration.allwomenstalk.com/life-changing-ways-to-love-yourself-again/)
-- [7 Ways to Find Gratitude in Your Life ...](https://inspiration.allwomenstalk.com/ways-to-find-gratitude-in-your-life/)
-- [7 Ways to Stick to Your New Years Resolution Goals...](https://inspiration.allwomenstalk.com/ways-to-stick-to-your-new-years-resolution-goals/)
-- [7 New Years Resolutions  to Consider Making This Y...](https://lifestyle.allwomenstalk.com/new-years-resolutions-you-need-to-consider-making-this-year/)
-- [11 Life Changing Feel Good Confidence Boosters ...](https://inspiration.allwomenstalk.com/life-changing-feel-good-confidence-boosters/)
 - [7 Ways Smiling is Good for You ...](https://health.allwomenstalk.com/ways-smiling-is-good-for-you/)
+- [7 Smart Ways to Help You Move on in Life ...](https://lifestyle.allwomenstalk.com/smart-ways-to-help-you-move-on-in-life/)
+- [7 Ways to Stick to Your New Years Resolution Goals...](https://inspiration.allwomenstalk.com/ways-to-stick-to-your-new-years-resolution-goals/)
+- [11 Life Changing Feel Good Confidence Boosters ...](https://inspiration.allwomenstalk.com/life-changing-feel-good-confidence-boosters/)
+- [negin mirsalehi husband](https://inspiration.allwomenstalk.com/choices-that-will-change-your-life-for-the-better/)
+- [7 New Years Resolutions  to Consider Making This Y...](https://lifestyle.allwomenstalk.com/new-years-resolutions-you-need-to-consider-making-this-year/)
+- [minimalist lifestyle benefits](https://lifestyle.allwomenstalk.com/wonderful-benefits-of-living-a-minimalist-lifestyle-that-may-surprise-you/)
+- [7 Ways to Find Gratitude in Your Life ...](https://inspiration.allwomenstalk.com/ways-to-find-gratitude-in-your-life/)
 - [7 Fun Exercise Routines to Adopt in 2012 ...](https://health.allwomenstalk.com/fun-exercise-routines-to-adopt-in/)
 - [7 Easy Ways to Get Healthier](https://allwomenstalk.com/easy-ways-to-get-healthier/)
 

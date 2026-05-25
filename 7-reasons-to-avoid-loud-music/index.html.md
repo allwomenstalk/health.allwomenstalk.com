@@ -44,16 +44,16 @@ Top Photo Credit: [doug88888](https://www.flickr.com/photos/doug88888/4542297929
 
 ## Related Posts
 
-- [10 Reasons Why You Should Never Get a Job - an Art...](https://allwomenstalk.com/10-reasons-why-you-should-never-get-a-job-an-article-about-getting-your-life-back/)
-- [7 Shrewdly Clever Reasons to Avoid a Dating Type ....](https://love.allwomenstalk.com/shrewdly-clever-reasons-to-avoid-a-dating-type/)
+- [8 Reasons for Reduced under-the-Sheet Action ...](https://love.allwomenstalk.com/8-reasons-for-reduced-under-the-sheet-action/)
+- [reasons to seek marriage counseling](https://love.allwomenstalk.com/seriously-obvious-reasons-to-seek-marriage-counseling/)
+- [good excuse to get out of a date](https://love.allwomenstalk.com/excuses-to-get-out-of-a-date/)
 - [seeing first love after many years](https://love.allwomenstalk.com/reasons-why-first-love-rarely-works/)
 - [reasons not to go to a party](https://lifestyle.allwomenstalk.com/incredibly-smart-reasons-not-to-drink-at-holiday-parties/)
-- [good excuse to get out of a date](https://love.allwomenstalk.com/excuses-to-get-out-of-a-date/)
-- [reasons to seek marriage counseling](https://love.allwomenstalk.com/seriously-obvious-reasons-to-seek-marriage-counseling/)
-- [8 Compelling Reasons for Talking on a Cellphone In...](https://lifestyle.allwomenstalk.com/compelling-reasons-for-talking-on-a-cellphone-instead-of-texting/)
-- [why do men always leave me](https://love.allwomenstalk.com/reasons-why-men-leave/)
-- [8 Reasons for Reduced under-the-Sheet Action ...](https://love.allwomenstalk.com/8-reasons-for-reduced-under-the-sheet-action/)
 - [7 Reasons to Not Get Married ...](https://love.allwomenstalk.com/reasons-to-not-get-married/)
+- [8 Compelling Reasons for Talking on a Cellphone In...](https://lifestyle.allwomenstalk.com/compelling-reasons-for-talking-on-a-cellphone-instead-of-texting/)
+- [7 Shrewdly Clever Reasons to Avoid a Dating Type ....](https://love.allwomenstalk.com/shrewdly-clever-reasons-to-avoid-a-dating-type/)
+- [10 Reasons Why You Should Never Get a Job - an Art...](https://allwomenstalk.com/10-reasons-why-you-should-never-get-a-job-an-article-about-getting-your-life-back/)
+- [why do men always leave me](https://love.allwomenstalk.com/reasons-why-men-leave/)
 - [7 Reasons to Stay out of the Sun ...](https://skincare.allwomenstalk.com/reasons-to-stay-out-of-the-sun/)
 - [7 Reasons to Skip a Work-out ...](https://allwomenstalk.com/7-reasons-to-skip-a-work-out/)
 

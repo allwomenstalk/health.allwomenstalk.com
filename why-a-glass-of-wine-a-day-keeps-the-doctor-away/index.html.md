@@ -50,16 +50,16 @@ I’m off to crack open a bottle of Merlot. Who’s joining me?
 
 ## Related Posts
 
-- [benefits of drinking a gallon of water](https://health.allwomenstalk.com/benefits-of-drinking-one-gallon-of-water-per-day/)
-- [health benefits of dark beer](https://food.allwomenstalk.com/this-is-why-beer-is-actually-good-for-you/)
-- [is eating pineapple good for your skin](https://beauty.allwomenstalk.com/why-you-should-be-using-pineapple-in-your-beauty-routine/)
-- [rich people lunch](https://food.allwomenstalk.com/this-is-why-even-rich-people-brown-bag-it/)
+- [can u eat too much yogurt](https://health.allwomenstalk.com/can-eating-yogurt-save-your-life/)
 - [how much protein in quinoa](https://food.allwomenstalk.com/this-is-why-everyone-is-eating-quinoa-and-you-should-too/)
 - [is himalayan salt radioactive](https://health.allwomenstalk.com/heres-why-you-should-buy-himalayan-pink-salt-this-week/)
-- [coconut sugar walmart](https://food.allwomenstalk.com/you-wont-believe-all-the-benefits-of-coconut-sugar/)
+- [rich people lunch](https://food.allwomenstalk.com/this-is-why-even-rich-people-brown-bag-it/)
 - [what to eat with tuna steaks](https://food.allwomenstalk.com/this-is-why-you-should-eat-tuna-fish-regularly/)
-- [can u eat too much yogurt](https://health.allwomenstalk.com/can-eating-yogurt-save-your-life/)
+- [health benefits of dark beer](https://food.allwomenstalk.com/this-is-why-beer-is-actually-good-for-you/)
 - [components of apple cider vinegar](https://food.allwomenstalk.com/ways-to-eat-the-benefits-of-apple-cider-vinegar/)
+- [is eating pineapple good for your skin](https://beauty.allwomenstalk.com/why-you-should-be-using-pineapple-in-your-beauty-routine/)
+- [benefits of drinking a gallon of water](https://health.allwomenstalk.com/benefits-of-drinking-one-gallon-of-water-per-day/)
+- [coconut sugar walmart](https://food.allwomenstalk.com/you-wont-believe-all-the-benefits-of-coconut-sugar/)
 - [10 Top Beverages to Help You Keep a Healthy Heart ...](https://food.allwomenstalk.com/top-beverages-to-help-you-keep-a-healthy-heart/)
 - [7 Reasons Why a Glass of Wine is Good for You ...](https://health.allwomenstalk.com/7-reasons-why-a-glass-of-wine-is-good-for-you/)
 

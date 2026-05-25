@@ -42,16 +42,16 @@ What other breast cancer myths do you know about? Were any of these a relief to 
 
 ## Related Posts
 
-- [7 Things You do on the Daily That Are Hurting Your...](https://health.allwomenstalk.com/things-you-do-on-the-daily-that-are-hurting-your-breasts/)
-- [unhealthy activities](https://health.allwomenstalk.com/unhealthy-activities-as-dangerous-as-smoking/)
-- [brushing teeth wrong](https://health.allwomenstalk.com/ways-youve-been-brushing-your-teeth-wrong/)
 - [Inventive New Ways Your Phone is Probably Wrecking...](https://health.allwomenstalk.com/inventive-new-ways-your-phone-is-probably-wrecking-your-health/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/fixes-for-common-period-problems/)
-- [The inside Scoop on the Essential Elements Your Bo...](https://health.allwomenstalk.com/the-low-down-on-the-elements-your-body-needs/)
-- [Things You Should Know about Female Viagra ...](https://health.allwomenstalk.com/things-you-should-know-about-female-viagra/)
 - [This Will Change Your Mind about Using Tampons ...](https://health.allwomenstalk.com/this-will-change-your-mind-about-using-tampons/)
 - [Myths about Birth Control Pills That Sexually Acti...](https://health.allwomenstalk.com/myths-about-birth-control-pills-that-sexually-active-women-should-know/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/fixes-for-common-period-problems/)
+- [7 Things You do on the Daily That Are Hurting Your...](https://health.allwomenstalk.com/things-you-do-on-the-daily-that-are-hurting-your-breasts/)
+- [unhealthy activities](https://health.allwomenstalk.com/unhealthy-activities-as-dangerous-as-smoking/)
+- [The inside Scoop on the Essential Elements Your Bo...](https://health.allwomenstalk.com/the-low-down-on-the-elements-your-body-needs/)
 - [The 7 Biggest Health Questions from around the Wor...](https://health.allwomenstalk.com/the-biggest-health-questions-from-around-the-world/)
+- [Things You Should Know about Female Viagra ...](https://health.allwomenstalk.com/things-you-should-know-about-female-viagra/)
+- [brushing teeth wrong](https://health.allwomenstalk.com/ways-youve-been-brushing-your-teeth-wrong/)
 - [Health Kick Ideas for the Modern Woman ...](https://allwomenstalk.com/health-kick-ideas-for-the-modern-woman/)
 - [What You Should Know about Breast Enhancement ...](https://allwomenstalk.com/what-you-should-know-about-breast-enhancement/)
 

@@ -44,15 +44,15 @@ Next time someone tells you that you need to go off coffee, take it with a grain
 
 ## Related Posts
 
-- [benefits to eating cherries](https://health.allwomenstalk.com/long-term-health-benefits-of-eating-cherries/)
-- [cacao nibs caffeine](https://food.allwomenstalk.com/reasons-to-use-cacao-nibs-in-your-next-recipe/)
-- [seeds for healthy skin](https://beauty.allwomenstalk.com/skin-benefits-of-chia-seeds-to-help-you-look-your-best/)
-- [elaichi benefits for female](https://food.allwomenstalk.com/sweet-benefits-of-using-cardamom-in-your-foods/)
-- [yard work as exercise](https://health.allwomenstalk.com/health-benefits-of-doing-yard-work/)
-- [herb tea for medicinal purposes](https://health.allwomenstalk.com/assortment-of-teas-to-try-for-medicinal-purposes/)
 - [benefits of drinking red tea](https://health.allwomenstalk.com/ridiculously-healthy-benefits-of-drinking-rooibos-tea/)
+- [benefits to eating cherries](https://health.allwomenstalk.com/long-term-health-benefits-of-eating-cherries/)
+- [seeds for healthy skin](https://beauty.allwomenstalk.com/skin-benefits-of-chia-seeds-to-help-you-look-your-best/)
 - [minerals for healthy bones](https://health.allwomenstalk.com/essential-vitamins-and-minerals-for-healthy-bones/)
 - [sushi after colonoscopy](https://food.allwomenstalk.com/amazing-health-benefits-of-sushi-that-you-simply-cant-ignore/)
+- [cacao nibs caffeine](https://food.allwomenstalk.com/reasons-to-use-cacao-nibs-in-your-next-recipe/)
+- [yard work as exercise](https://health.allwomenstalk.com/health-benefits-of-doing-yard-work/)
+- [herb tea for medicinal purposes](https://health.allwomenstalk.com/assortment-of-teas-to-try-for-medicinal-purposes/)
+- [elaichi benefits for female](https://food.allwomenstalk.com/sweet-benefits-of-using-cardamom-in-your-foods/)
 - [camu camu extract benefits](https://food.allwomenstalk.com/amazing-benefits-of-camu-camu-that-you-should-know/)
 - [7 Reasons Why a Glass of Wine is Good for You ...](https://health.allwomenstalk.com/7-reasons-why-a-glass-of-wine-is-good-for-you/)
 - [4 Facts about Coffee You Did Not Know ...](https://allwomenstalk.com/7-facts-about-coffee-you-do-not-know/)

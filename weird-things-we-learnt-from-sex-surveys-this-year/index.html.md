@@ -46,16 +46,16 @@ Some sex survey questions are just down-right bizarre, but most do tell us somet
 
 ## Related Posts
 
-- [soymonks life](https://food.allwomenstalk.com/worst-foods-for-your-sex-life/)
-- [7 Surprisingly Common Sex Injuries ...](https://love.allwomenstalk.com/surprisingly-common-sex-injuries/)
-- [virgo man turn ons](https://love.allwomenstalk.com/fabulous-sex-tips-for-a-virgo/)
+- [gemini man scorpio woman](https://love.allwomenstalk.com/enchanting-sex-tips-for-a-gemini/)
 - [why do people have one night stands](https://love.allwomenstalk.com/pros-cons-of-one-night-stands/)
 - [what turns on an aries](https://love.allwomenstalk.com/mind-blowing-sex-tips-for-an-aries/)
-- [gemini man scorpio woman](https://love.allwomenstalk.com/enchanting-sex-tips-for-a-gemini/)
-- [are sagittarius good in bed](https://love.allwomenstalk.com/beautiful-sex-tips-for-a-sagittarius/)
-- [elbow kisses](https://love.allwomenstalk.com/erogenous-zones-to-explore/)
-- [i want to make it clear](https://love.allwomenstalk.com/ways-to-make-clear-you-just-want-sex/)
 - [how freaky are cancers](https://love.allwomenstalk.com/awesome-sex-tips-for-a-cancer/)
+- [are sagittarius good in bed](https://love.allwomenstalk.com/beautiful-sex-tips-for-a-sagittarius/)
+- [i want to make it clear](https://love.allwomenstalk.com/ways-to-make-clear-you-just-want-sex/)
+- [7 Surprisingly Common Sex Injuries ...](https://love.allwomenstalk.com/surprisingly-common-sex-injuries/)
+- [elbow kisses](https://love.allwomenstalk.com/erogenous-zones-to-explore/)
+- [virgo man turn ons](https://love.allwomenstalk.com/fabulous-sex-tips-for-a-virgo/)
+- [soymonks life](https://food.allwomenstalk.com/worst-foods-for-your-sex-life/)
 - [7 Myths about Sex Revealed ...](https://health.allwomenstalk.com/7-myths-about-sex-revealed/)
 - [8 Myths about Sexual Health Busted ...](https://health.allwomenstalk.com/8-myths-about-sexual-health-busted/)
 

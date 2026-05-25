@@ -46,16 +46,16 @@ As women, we often want to pretend like everything is fine. People assume that w
 
 ## Related Posts
 
-- [are models celebrities](https://celebs.allwomenstalk.com/why-do-we-expect-celebrities-to-be-role-models/)
-- [A Short Story : What is Love](https://love.allwomenstalk.com/what-is-love/)
+- [Is Coffee a Necessary Nutrient or a Necessary Evil](https://health.allwomenstalk.com/is-coffee-good-for-you/)
+- [Which Friends Character Are You](https://movies.allwomenstalk.com/which-friends-character-are-you/)
 - [What Are the Differences between Lust and Love](https://love.allwomenstalk.com/differences-between-lust-and-love/)
+- [Which Birth Control is Right for You](https://parenting.allwomenstalk.com/which-birth-control-method-is-right-for-you/)
+- [are models celebrities](https://celebs.allwomenstalk.com/why-do-we-expect-celebrities-to-be-role-models/)
+- [Stealthing  is Real  and You Need to Protect Yours...](https://love.allwomenstalk.com/what-is-stealthing/)
 - [Should You Freeze Your Eggs  a Question for Women ...](https://parenting.allwomenstalk.com/should-you-freeze-your-eggs/)
 - [What is the Real Meaning of Love](https://love.allwomenstalk.com/what-is-the-real-meaning-of-love/)
-- [Which Friends Character Are You](https://movies.allwomenstalk.com/which-friends-character-are-you/)
-- [Stealthing  is Real  and You Need to Protect Yours...](https://love.allwomenstalk.com/what-is-stealthing/)
-- [Is Coffee a Necessary Nutrient or a Necessary Evil](https://health.allwomenstalk.com/is-coffee-good-for-you/)
-- [Which Birth Control is Right for You](https://parenting.allwomenstalk.com/which-birth-control-method-is-right-for-you/)
 - [Can You Handle  a Relationship Crisis](https://love.allwomenstalk.com/how-to-deal-with-a-relationship-in-crisis/)
+- [A Short Story : What is Love](https://love.allwomenstalk.com/what-is-love/)
 - [Am I Crazy](https://allwomenstalk.com/am-i-crazy/)
 - [Are You Dealing with Social Anxiety ...](https://lifestyle.allwomenstalk.com/are-you-dealing-with-social-anxiety/)
 

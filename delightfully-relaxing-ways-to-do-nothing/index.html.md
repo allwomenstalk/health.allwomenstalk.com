@@ -48,16 +48,16 @@ Top Image Source: [rosettephotographyblog.com](https://goo.gl/0HU2p0)
 
 ## Related Posts
 
-- [8 Techniques to Stop Self-Criticism ...](https://lifestyle.allwomenstalk.com/techniques-to-stop-self-criticism/)
-- [7 Tips on How to Relieve Stress when Studying ...](https://health.allwomenstalk.com/tips-on-how-to-relieve-stress-when-studying/)
-- [8 Simple but Effective Ways to Lift Your Spirits ....](https://health.allwomenstalk.com/simple-but-effective-ways-to-lift-your-spirits/)
-- [7 Ways to Calm down Quickly ...](https://health.allwomenstalk.com/ways-to-calm-down-quickly/)
-- [relaxation techniques for teens](https://health.allwomenstalk.com/healthy-ways-for-teens-to-relax/)
-- [8 Welcome Ways to Calm down ...](https://health.allwomenstalk.com/welcome-ways-to-calm-down/)
 - [7 Ways to Feel Better ...](https://health.allwomenstalk.com/ways-to-feel-better/)
 - [7 Great Ways to Improve Your Mood at Work ...](https://health.allwomenstalk.com/great-ways-to-improve-your-mood-at-work/)
-- [stress free thanksgiving](https://allwomenstalk.com/6-tips-for-a-stress-free-thanksgiving/)
+- [8 Welcome Ways to Calm down ...](https://health.allwomenstalk.com/welcome-ways-to-calm-down/)
 - [how to increase time management skills](https://lifestyle.allwomenstalk.com/ways-to-improve-time-management-skills/)
+- [8 Simple but Effective Ways to Lift Your Spirits ....](https://health.allwomenstalk.com/simple-but-effective-ways-to-lift-your-spirits/)
+- [7 Ways to Calm down Quickly ...](https://health.allwomenstalk.com/ways-to-calm-down-quickly/)
+- [stress free thanksgiving](https://allwomenstalk.com/6-tips-for-a-stress-free-thanksgiving/)
+- [relaxation techniques for teens](https://health.allwomenstalk.com/healthy-ways-for-teens-to-relax/)
+- [8 Techniques to Stop Self-Criticism ...](https://lifestyle.allwomenstalk.com/techniques-to-stop-self-criticism/)
+- [7 Tips on How to Relieve Stress when Studying ...](https://health.allwomenstalk.com/tips-on-how-to-relieve-stress-when-studying/)
 - [9 Healthy  Fun Ways to Relax ...](https://health.allwomenstalk.com/healthy-fun-ways-to-relax/)
 - [8 Delightful and Fun Ways to Pamper Yourself ...](https://health.allwomenstalk.com/delightful-and-fun-ways-to-pamper-yourself/)
 

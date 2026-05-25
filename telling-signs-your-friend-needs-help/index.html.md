@@ -48,16 +48,16 @@ Top Image Source: [styleite.com](http://runwayriot.com/)
 
 ## Related Posts
 
-- [signs of love addiction](https://love.allwomenstalk.com/signs-youre-a-love-addict/)
 - [7 Ways to Tell if You Are Gay ...](https://love.allwomenstalk.com/ways-to-tell-if-you-are-gay/)
-- [taking a break from.facebook](https://health.allwomenstalk.com/signs-that-you-should-take-a-break-from-facebook/)
-- [signs of overspending](https://money.allwomenstalk.com/signs-you-are-overspending/)
 - [make up signs](https://makeup.allwomenstalk.com/telling-signs-you-could-be-addicted-to-makeup/)
-- [how to compliment new haircut](https://hair.allwomenstalk.com/signs-you-need-a-new-haircut/)
 - [5 symptoms of workplace bullying](https://lifestyle.allwomenstalk.com/telltale-signs-of-a-bully-boss/)
-- [am i spending too much money](https://money.allwomenstalk.com/indications-that-you-are-spending-too-much-money/)
-- [signs someone is living beyond their means](https://money.allwomenstalk.com/signs-that-youre-living-beyond-your-means/)
 - [what is a diva girl](https://fashion.allwomenstalk.com/signs-youre-a-diva/)
+- [am i spending too much money](https://money.allwomenstalk.com/indications-that-you-are-spending-too-much-money/)
+- [signs of love addiction](https://love.allwomenstalk.com/signs-youre-a-love-addict/)
+- [signs of overspending](https://money.allwomenstalk.com/signs-you-are-overspending/)
+- [how to compliment new haircut](https://hair.allwomenstalk.com/signs-you-need-a-new-haircut/)
+- [signs someone is living beyond their means](https://money.allwomenstalk.com/signs-that-youre-living-beyond-your-means/)
+- [taking a break from.facebook](https://health.allwomenstalk.com/signs-that-you-should-take-a-break-from-facebook/)
 - [8 Signs Your Relationship is in Trouble ...](https://allwomenstalk.com/8-signs-your-relationship-is-in-trouble/)
 - [10 Signs Your Friend is in an Abusive Relationship...](https://allwomenstalk.com/10-signs-your-friend-is-in-an-abused-relationship/)
 

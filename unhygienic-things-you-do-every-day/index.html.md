@@ -50,16 +50,16 @@ These unhygienic things that you do every day have certainly got me upping my hy
 
 ## Related Posts
 
-- [hotel mistakes](https://funny.allwomenstalk.com/hotel-mistakes-that-everybody-makes/)
-- [7 Traits Cheaters Possess That You Should Watch ou...](https://love.allwomenstalk.com/traits-cheaters-possess-that-you-should-watch-out-for/)
-- [what makes a woman look desperate](https://love.allwomenstalk.com/things-thatll-make-you-look-desperate-and-undesirable/)
-- [annoying meaning](https://lifestyle.allwomenstalk.com/here-are-of-the-most-irritating-habits-people-have/)
-- [make a man respect you](https://inspiration.allwomenstalk.com/things-you-shouldnt-do-if-you-want-a-man-to-respect-you/)
-- [3 things your man wont do if he is really in love ...](https://love.allwomenstalk.com/things-your-boyfriend-doesnt-want-you-to-know/)
 - [things you should never say to your teenage daught...](https://parenting.allwomenstalk.com/things-you-shouldnt-say-to-your-daughter/)
+- [make a man respect you](https://inspiration.allwomenstalk.com/things-you-shouldnt-do-if-you-want-a-man-to-respect-you/)
+- [what makes a woman look desperate](https://love.allwomenstalk.com/things-thatll-make-you-look-desperate-and-undesirable/)
+- [3 things your man wont do if he is really in love ...](https://love.allwomenstalk.com/things-your-boyfriend-doesnt-want-you-to-know/)
+- [annoying meaning](https://lifestyle.allwomenstalk.com/here-are-of-the-most-irritating-habits-people-have/)
 - [diy pda](https://love.allwomenstalk.com/worst-places-for-pda/)
-- [what clothes should not go in the dryer](https://fashion.allwomenstalk.com/clothing-items-you-should-never-put-in-the-dryer/)
+- [7 Traits Cheaters Possess That You Should Watch ou...](https://love.allwomenstalk.com/traits-cheaters-possess-that-you-should-watch-out-for/)
 - [superficial stuff](https://inspiration.allwomenstalk.com/superficial-things-that-wont-actually-make-you-happier/)
+- [what clothes should not go in the dryer](https://fashion.allwomenstalk.com/clothing-items-you-should-never-put-in-the-dryer/)
+- [hotel mistakes](https://funny.allwomenstalk.com/hotel-mistakes-that-everybody-makes/)
 - [9 Ways to Avoid a Bad Hair Day ...](https://hair.allwomenstalk.com/9-ways-to-avoid-a-bad-hair-day/)
 - [7 Ways to Keep Germs at Bay ...](https://allwomenstalk.com/7-ways-to-keep-germs-at-bay/)
 

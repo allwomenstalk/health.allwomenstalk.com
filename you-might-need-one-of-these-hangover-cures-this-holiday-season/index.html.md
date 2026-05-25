@@ -87,15 +87,15 @@ I’m useless with a hangover so I’d have to get someone to make these for me.
 ## Related Posts
 
 - [perfume coffee addict](https://food.allwomenstalk.com/things-to-put-in-your-coffee-to-make-it-awesome/)
+- [how to make drinking water fun](https://health.allwomenstalk.com/drinking-water-will-suck-less-if-you-do-these-things/)
 - [classy cocktails to order](https://food.allwomenstalk.com/cocktails-to-order-when-you-want-to-sound-mature/)
+- [best at home detox drink](https://food.allwomenstalk.com/detox-drinks-thatll-make-you-feel-better-than-ever/)
 - [winter smoothie recipe](https://food.allwomenstalk.com/warm-smoothies-to-start-the-new-year-off-right/)
 - [dry to sweet red wine chart](https://food.allwomenstalk.com/infographics-about-alcohol-that-every-drinker-should-read/)
+- [layered shots recipes](https://food.allwomenstalk.com/fill-your-cup-with-these-layered-drink-recipes/)
 - [drinks to make for party](https://food.allwomenstalk.com/get-your-party-on-with-these-colorful-cocktails/)
 - [valentines day drinks with tequila](https://food.allwomenstalk.com/these-cocktails-will-make-valentines-day-even-sweeter/)
 - [solera marzen](https://food.allwomenstalk.com/check-out-this-practical-beer-pairing-cheat-sheet/)
-- [layered shots recipes](https://food.allwomenstalk.com/fill-your-cup-with-these-layered-drink-recipes/)
-- [how to make drinking water fun](https://health.allwomenstalk.com/drinking-water-will-suck-less-if-you-do-these-things/)
-- [best at home detox drink](https://food.allwomenstalk.com/detox-drinks-thatll-make-you-feel-better-than-ever/)
 - [7 Impressively Potent Remedies for Those Painfully...](https://health.allwomenstalk.com/impressively-potent-remedies-for-those-painfully-pesky-migraines/)
 - [Cures for a Hangover ...](https://allwomenstalk.com/cures-for-a-hangover/)
 

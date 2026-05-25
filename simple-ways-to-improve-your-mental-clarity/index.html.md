@@ -42,16 +42,16 @@ If you have a way to improve mental clarity, I’d love to hear it! How do you b
 
 ## Related Posts
 
-- [7 Relaxing Activities to Reduce Stress and Cause H...](https://health.allwomenstalk.com/relaxing-activities-to-reduce-stress-and-cause-happiness/)
-- [8 Times when You Need a Break ...](https://lifestyle.allwomenstalk.com/times-when-you-need-a-break/)
-- [7 Ways to Reduce Morning Anxiety without Medicatio...](https://health.allwomenstalk.com/ways-to-reduce-morning-anxiety-without-medication/)
+- [7 Ways to Prevent Depression from Striking You ...](https://health.allwomenstalk.com/ways-to-prevent-depression-from-striking-you/)
+- [7 Ways to Prevent Burnout before You Hit 35 ...](https://health.allwomenstalk.com/ways-to-prevent-burnout-before-you-hit-35/)
 - [happy valentines day boston terrier](https://lifestyle.allwomenstalk.com/photos-of-cute-pets-to-make-you-giggle/)
+- [8 Times when You Need a Break ...](https://lifestyle.allwomenstalk.com/times-when-you-need-a-break/)
 - [7 Tips to Calm down when You Start to Get Stressed...](https://health.allwomenstalk.com/tips-to-calm-down-when-you-start-to-get-stressed/)
 - [7 Tips for Clearing Your Head after a Long Day ...](https://health.allwomenstalk.com/tips-for-clearing-your-head-after-a-long-day/)
-- [7 Ways to Prevent Depression from Striking You ...](https://health.allwomenstalk.com/ways-to-prevent-depression-from-striking-you/)
+- [7 Ways to Reduce Morning Anxiety without Medicatio...](https://health.allwomenstalk.com/ways-to-reduce-morning-anxiety-without-medication/)
 - [7 Distracting Habits That Keep You from Meeting De...](https://lifestyle.allwomenstalk.com/distracting-habits-that-keep-you-from-meeting-deadlines/)
 - [7 Proven Ways to Destress in the Midst of a Crazy ...](https://parenting.allwomenstalk.com/ways-to-find-peace-in-the-midst-of-crazy-mommy-days/)
-- [7 Ways to Prevent Burnout before You Hit 35 ...](https://health.allwomenstalk.com/ways-to-prevent-burnout-before-you-hit-35/)
+- [7 Relaxing Activities to Reduce Stress and Cause H...](https://health.allwomenstalk.com/relaxing-activities-to-reduce-stress-and-cause-happiness/)
 - [7 Ways to Increase Your Brain Power ...](https://health.allwomenstalk.com/ways-to-increase-your-brain-power/)
 - [15 Ways to Declutter Your Mind ...](https://allwomenstalk.com/15-ways-to-declutter-your-mind/)
 

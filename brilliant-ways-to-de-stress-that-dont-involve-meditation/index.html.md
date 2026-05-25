@@ -61,15 +61,15 @@ Try to force yourself out of your normal routine by taking spontaneous opportuni
 ## Related Posts
 
 - [5 Ways to Control Your Anger ...](https://inspiration.allwomenstalk.com/ways-to-control-your-anger/)
+- [10 High Impact Self Care Ideas to Give Yourself a ...](https://health.allwomenstalk.com/high-impact-self-care-ideas-to-give-yourself-a-break/)
+- [3 Awesome Ways to Heal Your Energy ...](https://inspiration.allwomenstalk.com/awesome-ways-to-heal-your-energy/)
+- [goodbye mondays](https://inspiration.allwomenstalk.com/ways-to-say-goodbye-to-the-monday-morning-blues/)
+- [12 Exceptional Tips for Staying Calm at Exam Time ...](https://lifestyle.allwomenstalk.com/exceptional-tips-for-staying-calm-at-exam-time/)
+- [5 Awesome Ways to Kick Anxiety Now  ...](https://health.allwomenstalk.com/awesome-ways-to-kick-anxiety-now/)
 - [My Sanity Practice ...](https://health.allwomenstalk.com/my-sanity-practice/)
 - [self care acts](https://health.allwomenstalk.com/acts-of-self-care-you-can-do-in-5-minutes-or-less/)
-- [5 Inspiring Ways to Manage Your Depression ...](https://health.allwomenstalk.com/inspiring-ways-to-manage-your-depression/)
-- [5 Awesome Ways to Kick Anxiety Now  ...](https://health.allwomenstalk.com/awesome-ways-to-kick-anxiety-now/)
-- [goodbye mondays](https://inspiration.allwomenstalk.com/ways-to-say-goodbye-to-the-monday-morning-blues/)
-- [3 Awesome Ways to Heal Your Energy ...](https://inspiration.allwomenstalk.com/awesome-ways-to-heal-your-energy/)
 - [Stress Triggers in Your Home ...](https://health.allwomenstalk.com/stress-triggers-in-your-home/)
-- [10 High Impact Self Care Ideas to Give Yourself a ...](https://health.allwomenstalk.com/high-impact-self-care-ideas-to-give-yourself-a-break/)
-- [12 Exceptional Tips for Staying Calm at Exam Time ...](https://lifestyle.allwomenstalk.com/exceptional-tips-for-staying-calm-at-exam-time/)
+- [5 Inspiring Ways to Manage Your Depression ...](https://health.allwomenstalk.com/inspiring-ways-to-manage-your-depression/)
 - [8 Quick Stress Busters ...](https://health.allwomenstalk.com/8-quick-stress-busters/)
 - [9 Healthy  Fun Ways to Relax ...](https://health.allwomenstalk.com/healthy-fun-ways-to-relax/)
 

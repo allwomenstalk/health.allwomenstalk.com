@@ -74,16 +74,16 @@ What is your favorite way to practice self-care? Comment down below.
 
 ## Related Posts
 
-- [Enjoyable Self-care Tips for Stressful Times in Li...](https://health.allwomenstalk.com/tips-for-self-care-when-youre-stressed/)
-- [9 Survival Tips for Staying Sane over the Holiday ...](https://inspiration.allwomenstalk.com/tips-for-staying-sane-during-the-holidays/)
-- [Just Stop and Breathe ...](https://inspiration.allwomenstalk.com/just-stop-and-breathe/)
 - [Little Ways to Improve Your Mood when Youre Not Fe...](https://inspiration.allwomenstalk.com/little-ways-to-improve-your-mood/)
-- [down in the dumps quotes](https://inspiration.allwomenstalk.com/ways-to-clear-your-mind-when-you-re-down-in-the-dumps/)
-- [sunday night blues](https://lifestyle.allwomenstalk.com/ways-to-nix-the-sunday-night-blues/)
+- [5 Ways to Ease the Stress of the Holiday Season .....](https://health.allwomenstalk.com/ways-to-ease-the-pressure-of-the-holidays/)
+- [9 Survival Tips for Staying Sane over the Holiday ...](https://inspiration.allwomenstalk.com/tips-for-staying-sane-during-the-holidays/)
 - [Inspirational Ways to Take Stress off Your Mind fo...](https://health.allwomenstalk.com/ways-to-take-your-mind-off-stress/)
+- [Just Stop and Breathe ...](https://inspiration.allwomenstalk.com/just-stop-and-breathe/)
+- [sunday night blues](https://lifestyle.allwomenstalk.com/ways-to-nix-the-sunday-night-blues/)
+- [Enjoyable Self-care Tips for Stressful Times in Li...](https://health.allwomenstalk.com/tips-for-self-care-when-youre-stressed/)
+- [down in the dumps quotes](https://inspiration.allwomenstalk.com/ways-to-clear-your-mind-when-you-re-down-in-the-dumps/)
 - [Genius Ways to Improve Your Concentration for Bett...](https://inspiration.allwomenstalk.com/ways-to-improve-your-concentration/)
 - [Exceptional Ways to Avoid Stress to Stick to Your ...](https://inspiration.allwomenstalk.com/ways-to-avoid-stress-so-you-can-stick-to-your-goals/)
-- [5 Ways to Ease the Stress of the Holiday Season .....](https://health.allwomenstalk.com/ways-to-ease-the-pressure-of-the-holidays/)
 - [7 Easy Ways to Improve Your Health Today ...](https://allwomenstalk.com/7-easy-ways-to-improve-your-health-today/)
 - [9 Amazing Ways to Be Happier Right Now ...](https://inspiration.allwomenstalk.com/amazing-ways-to-be-happier-right-now/)
 

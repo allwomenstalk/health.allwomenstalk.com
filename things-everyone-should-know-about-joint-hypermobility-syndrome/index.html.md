@@ -42,16 +42,16 @@ Joint hypermobility syndrome can destroy people’s lives and the worst thing is
 
 ## Related Posts
 
-- [7 Health Warnings You Can Stop Listening to and sa...](https://vityle.com/health-warnings-you-can-stop-listening-to-and-save-your-sanity/)
-- [9 Symptoms and Facts about Leaky Gut to Look out f...](https://health.allwomenstalk.com/symptoms-and-facts-about-leaky-gut-to-look-out-for/)
-- [9 Important Facts about Fertility That You Should ...](https://health.allwomenstalk.com/important-facts-about-fertility-that-you-should-know/)
-- [9 Differences between a Naturopath and a General P...](https://health.allwomenstalk.com/differences-between-a-naturopath-and-a-general-practitioner/)
-- [15 Milestones in the History of Menstruation ...](https://health.allwomenstalk.com/milestones-in-the-history-of-menstruation/)
-- [7 Ways PMS Affects Your Digestion and What to do a...](https://health.allwomenstalk.com/ways-pms-affects-your-digestion-and-what-to-do-about-it/)
 - [7 Causes  Triggers of Eczema in Children to Be Awa...](https://health.allwomenstalk.com/causes-triggers-of-eczema-in-children-to-be-aware-of/)
-- [7 Essential Facts You Need to Know about Estrogen ...](https://health.allwomenstalk.com/essential-facts-you-need-to-know-about-estrogen-dominance/)
+- [9 Differences between a Naturopath and a General P...](https://health.allwomenstalk.com/differences-between-a-naturopath-and-a-general-practitioner/)
+- [7 Health Warnings You Can Stop Listening to and sa...](https://vityle.com/health-warnings-you-can-stop-listening-to-and-save-your-sanity/)
+- [15 Milestones in the History of Menstruation ...](https://health.allwomenstalk.com/milestones-in-the-history-of-menstruation/)
 - [7 Important Things You Need to Know about Antibiot...](https://vityle.com/important-things-you-need-to-know-about-antibiotics/)
 - [face mapping for health](https://health.allwomenstalk.com/things-face-mapping-can-tell-you-about-your-health/)
+- [9 Important Facts about Fertility That You Should ...](https://health.allwomenstalk.com/important-facts-about-fertility-that-you-should-know/)
+- [7 Essential Facts You Need to Know about Estrogen ...](https://health.allwomenstalk.com/essential-facts-you-need-to-know-about-estrogen-dominance/)
+- [9 Symptoms and Facts about Leaky Gut to Look out f...](https://health.allwomenstalk.com/symptoms-and-facts-about-leaky-gut-to-look-out-for/)
+- [7 Ways PMS Affects Your Digestion and What to do a...](https://health.allwomenstalk.com/ways-pms-affects-your-digestion-and-what-to-do-about-it/)
 - [6 Incredibly Important Health Issues You Must Know...](https://health.allwomenstalk.com/incredibly-important-health-issues-you-must-know-about/)
 - [10 Things about Metabolism You Should Know ...](https://allwomenstalk.com/10-things-about-metabolism-you-should-know/)
 

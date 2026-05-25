@@ -48,16 +48,16 @@ Top Photo Credit: [M!sS ArT ³³](https://www.flickr.com/photos/miss-art/2783285
 
 ## Related Posts
 
-- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
 - [stop saying if you will](https://lifestyle.allwomenstalk.com/negative-things-you-should-stop-saying/)
-- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/annoying-things-about-supermarkets/)
-- [le stylo timeless spark](https://lifestyle.allwomenstalk.com/table-manners-you-dont-want-to-forget/)
-- [topics to talk with friends](https://lifestyle.allwomenstalk.com/conversation-topics-you-dont-want-to-bring-up-too-soon/)
-- [lgbt sterotypes](https://lifestyle.allwomenstalk.com/common-gay-stereotypes-you-should-avoid/)
-- [bad influences examples](https://lifestyle.allwomenstalk.com/negative-influences-to-remove-from-your-life/)
-- [7 things you should always keep secret](https://lifestyle.allwomenstalk.com/things-you-should-keep-secret/)
-- [stylo primped previous](https://hair.allwomenstalk.com/things-that-wont-help-grow-your-hair-faster/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/worst-interview-mistakes/)
+- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
+- [lgbt sterotypes](https://lifestyle.allwomenstalk.com/common-gay-stereotypes-you-should-avoid/)
+- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/annoying-things-about-supermarkets/)
+- [topics to talk with friends](https://lifestyle.allwomenstalk.com/conversation-topics-you-dont-want-to-bring-up-too-soon/)
+- [stylo primped previous](https://hair.allwomenstalk.com/things-that-wont-help-grow-your-hair-faster/)
+- [7 things you should always keep secret](https://lifestyle.allwomenstalk.com/things-you-should-keep-secret/)
+- [bad influences examples](https://lifestyle.allwomenstalk.com/negative-influences-to-remove-from-your-life/)
+- [le stylo timeless spark](https://lifestyle.allwomenstalk.com/table-manners-you-dont-want-to-forget/)
 - [8 Harmful Heart Habits ...](https://health.allwomenstalk.com/8-harmful-heart-habits/)
 - [How to Keep Your Heart Healthy ...](https://allwomenstalk.com/how-to-keep-your-heart-healthy/)
 

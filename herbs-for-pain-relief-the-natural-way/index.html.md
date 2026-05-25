@@ -56,16 +56,16 @@ These are just a few of the herbs for pain relief that are readily available. If
 
 ## Related Posts
 
-- [10 Ways to Avoid Chapped Lips ...](https://beauty.allwomenstalk.com/ways-to-avoid-chapped-lips/)
+- [7 Effective Tips for Recovering from a Cold or Flu...](https://health.allwomenstalk.com/effective-tips-for-recovering-from-a-cold-or-flu/)
 - [living with interstitial cystitis](https://health.allwomenstalk.com/tips-to-living-with-interstitial-cystitis/)
 - [Swollen Feet You Need to Try These Home Remedies ....](https://health.allwomenstalk.com/swollen-feet-you-need-to-try-these-home-remedies/)
-- [10 Ways to Use Less Deodorant ...](https://skincare.allwomenstalk.com/ways-to-use-less-deodorant/)
-- [7 Effective Tips for Recovering from a Cold or Flu...](https://health.allwomenstalk.com/effective-tips-for-recovering-from-a-cold-or-flu/)
-- [quick relief for cough and cold](https://health.allwomenstalk.com/cough-and-cold-remedies-for-quick-relief/)
-- [7 Easy Ways to Fight Puffy Eyes ...](https://beauty.allwomenstalk.com/easy-ways-to-fight-puffy-eyes/)
 - [9 Ways to Ease Constipation and Feel Yourself Agai...](https://health.allwomenstalk.com/ways-to-ease-constipation-and-feel-yourself-again/)
+- [7 Easy Ways to Fight Puffy Eyes ...](https://beauty.allwomenstalk.com/easy-ways-to-fight-puffy-eyes/)
+- [quick relief for cough and cold](https://health.allwomenstalk.com/cough-and-cold-remedies-for-quick-relief/)
 - [7 Ways to Keep Your Eyes Healthy ...](https://health.allwomenstalk.com/ways-to-keep-your-eyes-healthy/)
 - [7 Homemade Remedies for Cracked Heels You Need to ...](https://skincare.allwomenstalk.com/homemade-remedies-for-cracked-heels-you-need-to-know/)
+- [10 Ways to Use Less Deodorant ...](https://skincare.allwomenstalk.com/ways-to-use-less-deodorant/)
+- [10 Ways to Avoid Chapped Lips ...](https://beauty.allwomenstalk.com/ways-to-avoid-chapped-lips/)
 - [7 Foods That Help Ease Pain Naturally ...](https://food.allwomenstalk.com/foods-that-help-ease-pain-naturally/)
 - [5 Healing Herbs ...](https://gardening.allwomenstalk.com/5-healing-herbs/)
 

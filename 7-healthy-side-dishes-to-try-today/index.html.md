@@ -44,16 +44,16 @@ Top Photo Credit: [alancleaver_2000](https://www.flickr.com/photos/alancleaver/2
 
 ## Related Posts
 
+- [Book Update Part III: Recipe Testing](https://allwomenstalk.com/book-update-part-iii-recipe-testing/)
 - [7 World Exotic Foods Every Gourmand Must Try ...](https://lifestyle.allwomenstalk.com/world-exotic-foods-every-gourmand-must-try/)
-- [unwaxed kitchen string](https://allwomenstalk.com/fig-orange-chipotle-pork-roast/)
-- [Book Update Part III: Recipe Testing](https://allwomenstalk.com/book-update-part-iii-recipe-testing-2/)
 - [is canning worth it](https://lifestyle.allwomenstalk.com/dos-and-donts-of-home-canning/)
 - [6 Finger-Licking Recipes for the Grill ...](https://lifestyle.allwomenstalk.com/finger-licking-recipes-for-the-grill/)
-- [On Expanding My Palate ...](https://allwomenstalk.com/on-expanding-my-palate/)
-- [Book Update Part III: Recipe Testing](https://allwomenstalk.com/book-update-part-iii-recipe-testing/)
+- [unwaxed kitchen string](https://allwomenstalk.com/fig-orange-chipotle-pork-roast/)
 - [7 Recipes Kids Can Help Make ...](https://lifestyle.allwomenstalk.com/recipes-kids-can-help-make/)
+- [Book Update Part III: Recipe Testing](https://allwomenstalk.com/book-update-part-iii-recipe-testing-2/)
 - [garde manger recipes](https://allwomenstalk.com/small-steps-to-the-garde-manger-breakfast-sausage-with-sage-and-ginger/)
 - [Shrimp and Corn Chowder - a Soup Your Entire Famil...](https://allwomenstalk.com/shrimp-and-corn-chowder/)
+- [On Expanding My Palate ...](https://allwomenstalk.com/on-expanding-my-palate/)
 - [10 Healthy Dinner Ideas ...](https://cooking.allwomenstalk.com/healthy-dinner-ideas-2/)
 - [7 Healthy Salads to Eat Daily ...](https://diet.allwomenstalk.com/healthy-salads-to-eat-daily/)
 

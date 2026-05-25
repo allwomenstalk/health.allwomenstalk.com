@@ -64,16 +64,16 @@ Do you have acid reflux? What foods do you have to avoid and which ones here are
 
 ## Related Posts
 
-- [do oranges help with anxiety](https://food.allwomenstalk.com/foods-that-will-boost-your-mood-and-help-with-anxiety/)
-- [orange and calcium](https://food.allwomenstalk.com/ways-for-vegans-to-up-their-calcium-intake/)
 - [dried fig recipes healthy](https://food.allwomenstalk.com/delicious-fig-recipes-that-will-keep-you-happy-and-healthy/)
-- [healthy alternative to mms](https://food.allwomenstalk.com/healthy-vegan-candy-alternatives-that-wont-break-your-diet/)
-- [maca post workout](https://food.allwomenstalk.com/great-post-workout-foods-that-are-also-pretty-delicious-too/)
-- [kashi bars nutrition](https://food.allwomenstalk.com/yummy-nutritional-bars-to-keep-you-satisfied-on-the-go/)
+- [fruit pouches](https://food.allwomenstalk.com/best-pouch-snacks-for-easy-healthy-snacking/)
 - [a bad rap or bad rep](https://food.allwomenstalk.com/healthy-foods-with-a-bad-reputation/)
+- [orange and calcium](https://food.allwomenstalk.com/ways-for-vegans-to-up-their-calcium-intake/)
+- [healthy alternative to mms](https://food.allwomenstalk.com/healthy-vegan-candy-alternatives-that-wont-break-your-diet/)
+- [do oranges help with anxiety](https://food.allwomenstalk.com/foods-that-will-boost-your-mood-and-help-with-anxiety/)
+- [kashi bars nutrition](https://food.allwomenstalk.com/yummy-nutritional-bars-to-keep-you-satisfied-on-the-go/)
 - [ac6 salad](https://food.allwomenstalk.com/healthy-salad-recipes-that-act-as-full-meals/)
 - [are artichokes fermented](https://food.allwomenstalk.com/foods-that-increase-your-good-gut-bacteria-to-help-you-feel-better-fast/)
-- [fruit pouches](https://food.allwomenstalk.com/best-pouch-snacks-for-easy-healthy-snacking/)
+- [maca post workout](https://food.allwomenstalk.com/great-post-workout-foods-that-are-also-pretty-delicious-too/)
 - [8 Foods to Avoid While Breastfeeding ...](https://parenting.allwomenstalk.com/8-foods-to-avoid-while-breastfeeding/)
 - [7 Foods to Avoid While Pregnant ...](https://parenting.allwomenstalk.com/7-foods-to-avoid-while-pregnant/)
 

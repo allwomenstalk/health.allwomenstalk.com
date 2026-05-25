@@ -50,14 +50,14 @@ _livinggroovecounseling.com_
 
 - [7 Definitions of Happiness That Will Make You Smil...](https://inspiration.allwomenstalk.com/definitions-of-happiness-that-will-make-you-smile/)
 - [tiquette habits](https://lifestyle.allwomenstalk.com/etiquette-habits-that-never-go-out-of-style/)
-- [what is katherine johnsons iq](https://inspiration.allwomenstalk.com/valuable-lessons-life-teaches-us-along-the-way/)
 - [paris riche stylo smoky shadow pearl](https://inspiration.allwomenstalk.com/pearls-of-wisdom-from-grandparents-everywhere/)
+- [what is katherine johnsons iq](https://inspiration.allwomenstalk.com/valuable-lessons-life-teaches-us-along-the-way/)
 - [jimmy fallon downton abbey](https://movies.allwomenstalk.com/life-lessons-from-downton-abbey/)
 - [7 Things to Stop Worrying over ...](https://inspiration.allwomenstalk.com/things-to-stop-worrying-over/)
-- [7 Things You Should Give up to Be Happy ...](https://inspiration.allwomenstalk.com/things-you-should-give-up-to-be-happy/)
-- [7 Good Things about Who You Are ...](https://inspiration.allwomenstalk.com/good-things-about-who-you-are/)
 - [7 Things That May Cause Teenage Depression ...](https://mindfulness.allwomenstalk.com/things-that-may-cause-teenage-depression/)
 - [7 Things Only People with Anxiety Understand ...](https://mindfulness.allwomenstalk.com/things-only-people-with-anxiety-understand/)
+- [7 Things You Should Give up to Be Happy ...](https://inspiration.allwomenstalk.com/things-you-should-give-up-to-be-happy/)
+- [7 Good Things about Who You Are ...](https://inspiration.allwomenstalk.com/good-things-about-who-you-are/)
 - [7 Breast Cancer Myths ...](https://allwomenstalk.com/7-breast-cancer-myths/)
 - [7 Jewelry Myths You Hear ...](https://jewelry.allwomenstalk.com/jewelry-myths-you-hear/)
 

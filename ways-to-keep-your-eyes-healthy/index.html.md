@@ -46,16 +46,16 @@ Sources: [webmd.com](https://www.webmd.com/eye-health/good-eyesight)
 
 ## Related Posts
 
-- [coping with pain of endometriosis](https://health.allwomenstalk.com/tips-for-coping-with-endometriosis/)
-- [Bet You Didnt Know These Cool Uses for Mouthwash ....](https://diy.allwomenstalk.com/bet-you-didnt-know-these-cool-uses-for-mouthwash/)
-- [Avoid Allergies with These Tips for Keeping Your H...](https://health.allwomenstalk.com/avoid-allergies-with-these-tips-for-keeping-your-home-pollen-free/)
-- [Swollen Feet You Need to Try These Home Remedies ....](https://health.allwomenstalk.com/swollen-feet-you-need-to-try-these-home-remedies/)
 - [7 Homemade Remedies for Cracked Heels You Need to ...](https://skincare.allwomenstalk.com/homemade-remedies-for-cracked-heels-you-need-to-know/)
-- [Health Tips: the Easiest Ways to Always Have Kiss-...](https://health.allwomenstalk.com/health-tips-the-easiest-ways-to-always-have-kiss-ready-breath/)
 - [The Girls Foolproof Guide on How to Cure Hangovers...](https://health.allwomenstalk.com/heres-a-foolproof-guide-on-how-to-cure-hangovers/)
-- [living with interstitial cystitis](https://health.allwomenstalk.com/tips-to-living-with-interstitial-cystitis/)
+- [Health Tips: the Easiest Ways to Always Have Kiss-...](https://health.allwomenstalk.com/health-tips-the-easiest-ways-to-always-have-kiss-ready-breath/)
+- [Bet You Didnt Know These Cool Uses for Mouthwash ....](https://diy.allwomenstalk.com/bet-you-didnt-know-these-cool-uses-for-mouthwash/)
 - [10 Ways to Avoid Chapped Lips ...](https://beauty.allwomenstalk.com/ways-to-avoid-chapped-lips/)
 - [Stop Sneezing: 7 Awesome Ways to Outsmart Your All...](https://health.allwomenstalk.com/stop-sneezing-awesome-ways-to-outsmart-your-allergies-that-youve-never-tried-before/)
+- [coping with pain of endometriosis](https://health.allwomenstalk.com/tips-for-coping-with-endometriosis/)
+- [living with interstitial cystitis](https://health.allwomenstalk.com/tips-to-living-with-interstitial-cystitis/)
+- [Swollen Feet You Need to Try These Home Remedies ....](https://health.allwomenstalk.com/swollen-feet-you-need-to-try-these-home-remedies/)
+- [Avoid Allergies with These Tips for Keeping Your H...](https://health.allwomenstalk.com/avoid-allergies-with-these-tips-for-keeping-your-home-pollen-free/)
 - [7 Important Tips to Keep Youthful Looks ...](https://beauty.allwomenstalk.com/important-tips-to-keep-youthful-looks/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 

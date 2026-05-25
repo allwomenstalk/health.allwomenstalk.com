@@ -48,16 +48,16 @@ Top Photo Credit: [InWaves](https://www.flickr.com/photos/inwaves/3928004716/)
 
 ## Related Posts
 
-- [pros and cons to liposuction](https://allwomenstalk.com/10-liposuction-pros-and-cons/)
-- [detox facts](https://allwomenstalk.com/15-important-facts-about-detox-you-must-know/)
-- [Eye Care What You Should Know ...](https://allwomenstalk.com/eye-care-what-you-should-know-2/)
-- [sunburn bags under eyes](https://allwomenstalk.com/4-things-that-cause-your-under-eye-dark-circles-and-puffiness/)
-- [disadvantages of pads](https://allwomenstalk.com/10-pros-and-cons-of-using-pads-for-your-period/)
 - [Common Foot Problems ...](https://allwomenstalk.com/common-foot-problems/)
-- [pros and cons of the pill](https://allwomenstalk.com/18-pros-and-cons-of-birth-control-pills/)
 - [11 Things You Should Know about Farmers Markets .....](https://lifestyle.allwomenstalk.com/things-you-should-know-about-farmers-markets/)
-- [5 Mysterious Medical Issues Men Face ...](https://lifestyle.allwomenstalk.com/mysterious-medical-issues-men-face/)
 - [disadvantage of tampons](https://allwomenstalk.com/10-pros-and-cons-of-using-tampons-for-your-period/)
+- [detox facts](https://allwomenstalk.com/15-important-facts-about-detox-you-must-know/)
+- [pros and cons of the pill](https://allwomenstalk.com/18-pros-and-cons-of-birth-control-pills/)
+- [Eye Care What You Should Know ...](https://allwomenstalk.com/eye-care-what-you-should-know-2/)
+- [disadvantages of pads](https://allwomenstalk.com/10-pros-and-cons-of-using-pads-for-your-period/)
+- [pros and cons to liposuction](https://allwomenstalk.com/10-liposuction-pros-and-cons/)
+- [5 Mysterious Medical Issues Men Face ...](https://lifestyle.allwomenstalk.com/mysterious-medical-issues-men-face/)
+- [sunburn bags under eyes](https://allwomenstalk.com/4-things-that-cause-your-under-eye-dark-circles-and-puffiness/)
 - [8 Horrifying Problems Faced by Children across the...](https://parenting.allwomenstalk.com/8-horrifying-problems-faced-by-children-across-the-world/)
 - [8 Incurable Diseases ...](https://health.allwomenstalk.com/incurable-diseases/)
 

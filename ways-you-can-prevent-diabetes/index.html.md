@@ -48,16 +48,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/20331885)
 
 ## Related Posts
 
-- [8 Tips for Choosing Healthy Cereal ...](https://diet.allwomenstalk.com/tips-for-choosing-healthy-cereal/)
-- [7 Sure Ways to Improve Your Heart Health ...](https://health.allwomenstalk.com/sure-ways-to-improve-your-heart-health/)
-- [8 Smart Points to Remember when Choosing a Diet .....](https://diet.allwomenstalk.com/smart-points-to-remember-when-choosing-a-diet/)
-- [how to eat more leafy greens](https://diet.allwomenstalk.com/ways-to-eat-more-leafy-greens/)
 - [diet tips for woman](https://vityle.com/diet-tips-for-women-you-should-know/)
-- [9 Simple Pointers on How to Eat Healthy ...](https://diet.allwomenstalk.com/simple-pointers-on-how-to-eat-healthy/)
-- [21 Healthy Ways to Eat Less ...](https://vityle.com/healthy-ways-to-eat-less/)
+- [7 Sure Ways to Improve Your Heart Health ...](https://health.allwomenstalk.com/sure-ways-to-improve-your-heart-health/)
+- [8 Tips for Choosing Healthy Cereal ...](https://diet.allwomenstalk.com/tips-for-choosing-healthy-cereal/)
 - [7 Diet Tips for Breakfast ...](https://diet.allwomenstalk.com/diet-tips-for-breakfast/)
-- [22 Grocery Shopping Tips for Healthy Eating ...](https://eatial.com/grocery-shopping-tips-for-healthy-eating/)
+- [9 Simple Pointers on How to Eat Healthy ...](https://diet.allwomenstalk.com/simple-pointers-on-how-to-eat-healthy/)
 - [7 Smart Dieting Tips for Travel ...](https://diet.allwomenstalk.com/smart-dieting-tips-for-travel/)
+- [how to eat more leafy greens](https://diet.allwomenstalk.com/ways-to-eat-more-leafy-greens/)
+- [22 Grocery Shopping Tips for Healthy Eating ...](https://eatial.com/grocery-shopping-tips-for-healthy-eating/)
+- [21 Healthy Ways to Eat Less ...](https://vityle.com/healthy-ways-to-eat-less/)
+- [8 Smart Points to Remember when Choosing a Diet .....](https://diet.allwomenstalk.com/smart-points-to-remember-when-choosing-a-diet/)
 - [8 Ways to Start a Healthy Lifestyle ...](https://diet.allwomenstalk.com/ways-to-start-a-healthy-lifestyle/)
 - [7 Tips for Avoiding Diabetes ...](https://health.allwomenstalk.com/7-tips-for-avoiding-diabetes/)
 

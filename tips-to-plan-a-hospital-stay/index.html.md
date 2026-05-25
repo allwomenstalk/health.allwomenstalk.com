@@ -42,16 +42,16 @@ It's definitely not fun being in hospital, but one advantage of having a schedul
 
 ## Related Posts
 
-- [what activities can you do in thailand](https://travel.allwomenstalk.com/things-to-do-when-visiting-thailand-to-make-the-most-of-your-experience/)
 - [9 Ways You Can Be a Sustainable Traveler ...](https://travel.allwomenstalk.com/ways-you-can-be-a-sustainable-traveler/)
-- [7 Ways to Prevent Getting Sick when Traveling ...](https://travel.allwomenstalk.com/ways-to-prevent-getting-sick-when-traveling/)
-- [budget backpacking](https://travel.allwomenstalk.com/super-tips-for-budget-backpacking/)
-- [best interailing places quiet](https://travel.allwomenstalk.com/tips-for-making-the-most-of-a-rail-trip/)
-- [7 Ways to Fly Solo in a Paired-up World ...](https://love.allwomenstalk.com/ways-to-fly-solo-in-a-paired-up-world/)
-- [smartphone hacks and tricks](https://gadgets.allwomenstalk.com/smartphone-hacks-to-use-on-your-travels/)
-- [7 Top Tips for Traveling with Budget Airlines ...](https://travel.allwomenstalk.com/top-tips-for-traveling-with-budget-airlines/)
-- [7 Secrets of the Travel Industry and How Not to Le...](https://travel.allwomenstalk.com/secrets-of-the-travel-industry-and-how-not-to-let-them-concern-you/)
 - [7 Essentials in the Theme Park Survival Manual ...](https://travel.allwomenstalk.com/essentials-in-the-theme-park-survival-manual/)
+- [7 Secrets of the Travel Industry and How Not to Le...](https://travel.allwomenstalk.com/secrets-of-the-travel-industry-and-how-not-to-let-them-concern-you/)
+- [7 Ways to Prevent Getting Sick when Traveling ...](https://travel.allwomenstalk.com/ways-to-prevent-getting-sick-when-traveling/)
+- [what activities can you do in thailand](https://travel.allwomenstalk.com/things-to-do-when-visiting-thailand-to-make-the-most-of-your-experience/)
+- [budget backpacking](https://travel.allwomenstalk.com/super-tips-for-budget-backpacking/)
+- [7 Ways to Fly Solo in a Paired-up World ...](https://love.allwomenstalk.com/ways-to-fly-solo-in-a-paired-up-world/)
+- [best interailing places quiet](https://travel.allwomenstalk.com/tips-for-making-the-most-of-a-rail-trip/)
+- [7 Top Tips for Traveling with Budget Airlines ...](https://travel.allwomenstalk.com/top-tips-for-traveling-with-budget-airlines/)
+- [smartphone hacks and tricks](https://gadgets.allwomenstalk.com/smartphone-hacks-to-use-on-your-travels/)
 - [7 Tips to Help You Pack for Your Holiday ...](https://travel.allwomenstalk.com/tips-to-help-you-pack-for-your-holiday/)
 - [7 Travel Tips You Should Know ...](https://travel.allwomenstalk.com/travel-tips-you-should-know/)
 

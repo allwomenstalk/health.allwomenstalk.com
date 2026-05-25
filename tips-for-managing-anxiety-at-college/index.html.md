@@ -24,16 +24,16 @@ Make a conscious effort to check in with yourself. Ask, "Are my feelings impacti
 
 ## Related Posts
 
+- [Awesome Ways to Make Your Money Last  in College ....](https://money.allwomenstalk.com/awesome-ways-to-make-your-money-last-in-college/)
+- [bad studying habits](https://lifestyle.allwomenstalk.com/the-bad-habits-that-can-wreck-your-studies/)
 - [Why  Some Students Always Get an a ...](https://teen.allwomenstalk.com/why-some-students-always-get-an-a/)
+- [The Best Tips Ever to Ace Exams ...](https://teen.allwomenstalk.com/best-tips-to-ace-exams/)
+- [Use the Einstein  Method of Simplifying Your Stude...](https://lifestyle.allwomenstalk.com/use-the-einstein-method-of-simplifying-your-student-life/)
 - [How to Manage Multiple College Deadlines ...](https://teen.allwomenstalk.com/how-to-manage-multiple-college-deadlines/)
 - [how do college dorms stay safe urban safety soluti...](https://lifestyle.allwomenstalk.com/smart-tips-on-how-to-stay-safe-on-campus/)
-- [Use the Einstein  Method of Simplifying Your Stude...](https://lifestyle.allwomenstalk.com/use-the-einstein-method-of-simplifying-your-student-life/)
-- [The Pros and Cons of Studying  Abroad ...](https://lifestyle.allwomenstalk.com/the-pros-and-cons-of-studying-abroad/)
-- [Awesome Ways to Make Your Money Last  in College ....](https://money.allwomenstalk.com/awesome-ways-to-make-your-money-last-in-college/)
-- [5 Exceptional Ways to Alleviate Stress during Coll...](https://teen.allwomenstalk.com/exceptional-ways-to-alleviate-stress-during-college-application-season/)
-- [The Best Tips Ever to Ace Exams ...](https://teen.allwomenstalk.com/best-tips-to-ace-exams/)
 - [how to make money in grad school](https://money.allwomenstalk.com/ways-to-earn-money-in-grad-school/)
-- [bad studying habits](https://lifestyle.allwomenstalk.com/the-bad-habits-that-can-wreck-your-studies/)
+- [The Pros and Cons of Studying  Abroad ...](https://lifestyle.allwomenstalk.com/the-pros-and-cons-of-studying-abroad/)
+- [5 Exceptional Ways to Alleviate Stress during Coll...](https://teen.allwomenstalk.com/exceptional-ways-to-alleviate-stress-during-college-application-season/)
 - [8 Tips for College Students ...](https://allwomenstalk.com/8-tips-for-college-students/)
 - [9 Useful Tips for the College Student ...](https://allwomenstalk.com/9-useful-tips-for-the-college-student/)
 

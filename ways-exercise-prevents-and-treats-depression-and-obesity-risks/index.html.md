@@ -42,15 +42,15 @@ My favorite ways to combat depression are to eat a healthy diet, move my body, g
 
 ## Related Posts
 
-- [7 Best Weightlifting Exercises That Make a Differe...](https://weightloss.allwomenstalk.com/best-weightlifting-exercises-that-make-a-difference/)
-- [best places to work out](https://travel.allwomenstalk.com/places-you-should-work-out-at/)
-- [11 Best Workout Tanks ...](https://fashion.allwomenstalk.com/best-workout-tanks/)
 - [can be enjoyable exercise](https://fitness.allwomenstalk.com/ways-to-make-exercising-more-enjoyable/)
-- [half mile intervals](https://running.allwomenstalk.com/running-speed-workouts-to-keep-you-in-shape-this-fall/)
-- [7 Effective Exercises That Change the Way Your Bod...](https://fitene.com/effective-exercises-that-change-the-way-your-body-burns-fat/)
-- [7 Ways to Strengthen Your Joints and Improve Movem...](https://health.allwomenstalk.com/ways-to-strengthen-your-joints-and-improve-movement/)
+- [7 Best Weightlifting Exercises That Make a Differe...](https://weightloss.allwomenstalk.com/best-weightlifting-exercises-that-make-a-difference/)
 - [7 Effective Yoga Poses to Add to Your Routine Toda...](https://fitness.allwomenstalk.com/effective-yoga-poses-to-add-to-your-routine-today/)
+- [7 Ways to Strengthen Your Joints and Improve Movem...](https://health.allwomenstalk.com/ways-to-strengthen-your-joints-and-improve-movement/)
+- [7 Effective Exercises That Change the Way Your Bod...](https://fitene.com/effective-exercises-that-change-the-way-your-body-burns-fat/)
+- [half mile intervals](https://running.allwomenstalk.com/running-speed-workouts-to-keep-you-in-shape-this-fall/)
+- [11 Best Workout Tanks ...](https://fashion.allwomenstalk.com/best-workout-tanks/)
 - [7 Brilliant Tips to Tone Your Tush ...](https://weightloss.allwomenstalk.com/brilliant-tips-to-tone-your-tush/)
+- [best places to work out](https://travel.allwomenstalk.com/places-you-should-work-out-at/)
 - [9 Amazing Workout Words to Know and Love ...](https://fitene.com/amazing-workout-words-to-know-and-love/)
 - [7 Tips to Make More Time for Exercise ...](https://health.allwomenstalk.com/tips-to-make-more-time-for-exercise/)
 - [7 Time-saving Exercise Tips ...](https://allwomenstalk.com/7-time-saving-exercise-tips/)

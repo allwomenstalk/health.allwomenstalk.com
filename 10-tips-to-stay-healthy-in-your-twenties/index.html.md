@@ -56,16 +56,16 @@ Top Photo Credit: [J.D.Gregory](https://www.flickr.com/photos/jdgregory/50435954
 
 ## Related Posts
 
-- [7 Tips to Maintain Good Health ...](https://health.allwomenstalk.com/tips-to-maintain-good-health/)
-- [7 Highly Useful Tips on How to Stop Drinking Soda ...](https://health.allwomenstalk.com/tips-on-how-to-stop-drinking-soda/)
-- [Beauty Tips Articles: Healthy Snacking Habits ...](https://allwomenstalk.com/beauty-tips-articles-healthy-snacking-habits/)
-- [Eating Well in the New Year.](https://allwomenstalk.com/eating-well-in-the-new-year/)
-- [9 Sagely Effective Ways to Banish Emotional Eating...](https://health.allwomenstalk.com/sagely-effective-ways-to-banish-emotional-eating/)
-- [ways to stop snacking](https://health.allwomenstalk.com/7-ways-to-stop-snacking/)
-- [how to keep a food journal](https://allwomenstalk.com/12-tips-on-how-to-keep-a-food-journal/)
 - [how to resist temptation food](https://allwomenstalk.com/resisting-the-food-temptation/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/ways-to-be-healthier/)
 - [Healthy Eating and Diet Tips: Part 2](https://allwomenstalk.com/healthy-eating-and-diet-tips-part-2/)
+- [Beauty Tips Articles: Healthy Snacking Habits ...](https://allwomenstalk.com/beauty-tips-articles-healthy-snacking-habits/)
+- [7 Tips to Maintain Good Health ...](https://health.allwomenstalk.com/tips-to-maintain-good-health/)
+- [9 Sagely Effective Ways to Banish Emotional Eating...](https://health.allwomenstalk.com/sagely-effective-ways-to-banish-emotional-eating/)
+- [7 Highly Useful Tips on How to Stop Drinking Soda ...](https://health.allwomenstalk.com/tips-on-how-to-stop-drinking-soda/)
+- [how to keep a food journal](https://allwomenstalk.com/12-tips-on-how-to-keep-a-food-journal/)
+- [ways to stop snacking](https://health.allwomenstalk.com/7-ways-to-stop-snacking/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/ways-to-be-healthier/)
+- [Eating Well in the New Year.](https://allwomenstalk.com/eating-well-in-the-new-year/)
 - [10 Things to Know to Stay Healthy ...](https://health.allwomenstalk.com/things-to-know-to-stay-healthy/)
 - [10 Tips on Living a Healthier Life ...](https://allwomenstalk.com/10-tips-on-living-a-healthier-life/)
 

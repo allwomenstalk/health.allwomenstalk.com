@@ -43,15 +43,15 @@ Do you drink soda? Swap it out for unsweetened tea, low-fat milk or water and yo
 ## Related Posts
 
 - [detox diet drinks](https://diet.allwomenstalk.com/detox-diet-drinks-that-actually-taste-good/)
-- [water substitutes](https://diet.allwomenstalk.com/low-cal-substitutes-for-water/)
-- [7 Creative Alternatives to Coffee That Youll Love ...](https://food.allwomenstalk.com/creative-alternatives-to-coffee-that-youll-love/)
-- [7 Make-your-own Sports and Energy Drinks ...](https://food.allwomenstalk.com/make-your-own-sports-and-energy-drinks/)
-- [9 Special Uses for Beer ...](https://diy.allwomenstalk.com/special-uses-for-beer-you-should-know-about/)
 - [7 Healthy Ways to Survive a Spring Happy Hour ...](https://diet.allwomenstalk.com/healthy-ways-to-survive-a-spring-happy-hour/)
-- [7 Slimming Ingredients to Add to Your Summer Drink...](https://diet.allwomenstalk.com/slimming-ingredients-to-add-to-your-summer-drinks/)
-- [diet friendly drinks](https://diet.allwomenstalk.com/beverages-that-are-diet-friendly-and-wont-affect-your-waistline/)
+- [7 Creative Alternatives to Coffee That Youll Love ...](https://food.allwomenstalk.com/creative-alternatives-to-coffee-that-youll-love/)
 - [7 Helpful Ways to Drink 8 Glasses of Water a Day a...](https://health.allwomenstalk.com/helpful-ways-to-drink-8-glasses-of-water-a-day-and-enjoy-them/)
 - [7 Different Teas to Try out This Year ...](https://food.allwomenstalk.com/different-teas-to-try-out-this-year/)
+- [7 Make-your-own Sports and Energy Drinks ...](https://food.allwomenstalk.com/make-your-own-sports-and-energy-drinks/)
+- [diet friendly drinks](https://diet.allwomenstalk.com/beverages-that-are-diet-friendly-and-wont-affect-your-waistline/)
+- [7 Slimming Ingredients to Add to Your Summer Drink...](https://diet.allwomenstalk.com/slimming-ingredients-to-add-to-your-summer-drinks/)
+- [9 Special Uses for Beer ...](https://diy.allwomenstalk.com/special-uses-for-beer-you-should-know-about/)
+- [water substitutes](https://diet.allwomenstalk.com/low-cal-substitutes-for-water/)
 - [7 Highly Useful Tips on How to Stop Drinking Soda ...](https://health.allwomenstalk.com/tips-on-how-to-stop-drinking-soda/)
 - [10 Reasons to Cut down on Alcohol Now ...](https://allwomenstalk.com/10-reasons-to-cut-down-on-alcohol-now/)
 

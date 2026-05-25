@@ -42,15 +42,15 @@ Breakfast is the number one meal we miss and it seems like everyone has an excus
 
 ## Related Posts
 
-- [how to eat beetroot](https://food.allwomenstalk.com/ways-to-add-beets-into-your-diet/)
 - [what to do when overeat](https://weightloss.allwomenstalk.com/things-to-do-after-you-overeat/)
-- [power up meal](https://food.allwomenstalk.com/ways-to-power-up-your-morning-meal-with-delicious-food/)
 - [is olive oil bad for ibs](https://food.allwomenstalk.com/cooking-tips-for-minimizing-ibs-symptoms/)
 - [best way to get your greens](https://food.allwomenstalk.com/ways-to-get-more-greens-in-your-diet/)
-- [froyo vs yogurt](https://food.allwomenstalk.com/ways-to-make-frozen-yogurt-healthier/)
-- [overeating when drunk](https://health.allwomenstalk.com/ways-to-prevent-overeating-when-drinking-alcohol/)
-- [french diet plan](https://diet.allwomenstalk.com/french-diet-tips-that-will-work-for-you/)
 - [italian songs about food](https://food.allwomenstalk.com/ways-to-make-italian-food-healthier/)
+- [power up meal](https://food.allwomenstalk.com/ways-to-power-up-your-morning-meal-with-delicious-food/)
+- [french diet plan](https://diet.allwomenstalk.com/french-diet-tips-that-will-work-for-you/)
+- [overeating when drunk](https://health.allwomenstalk.com/ways-to-prevent-overeating-when-drinking-alcohol/)
+- [froyo vs yogurt](https://food.allwomenstalk.com/ways-to-make-frozen-yogurt-healthier/)
+- [how to eat beetroot](https://food.allwomenstalk.com/ways-to-add-beets-into-your-diet/)
 - [recover me yoga](https://health.allwomenstalk.com/ways-yoga-can-help-you-recover-from-your-eating-disorder/)
 - [7 Diet Tips for Breakfast ...](https://diet.allwomenstalk.com/diet-tips-for-breakfast/)
 - [7 Ways to Repair Your Relationship with Food ...](https://diet.allwomenstalk.com/ways-to-repair-your-relationship-with-food/)

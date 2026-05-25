@@ -42,16 +42,16 @@ While not all of these points mean that the person you know is a sociopath, it i
 
 ## Related Posts
 
+- [how to heal from a toxic friendship](https://teen.allwomenstalk.com/tips-for-ending-a-friendship-smoothly/)
+- [song for sister birthday](https://lifestyle.allwomenstalk.com/things-you-can-do-to-have-a-closer-relationship-with-your-sister/)
+- [the daughter deal movie](https://parenting.allwomenstalk.com/ways-to-help-your-daughter-deal-with-mean-girls/)
+- [the worlds most beautiful twins now](https://parenting.allwomenstalk.com/tips-to-avoid-jealousy-among-twins/)
+- [how to deal with noisy neighbors](https://lifestyle.allwomenstalk.com/steps-for-dealing-with-a-noisy-neighbor/)
+- [how to deal with self absorbed people](https://inspiration.allwomenstalk.com/steps-to-dealing-with-a-self-absorbed-person/)
+- [stop being judgemental quotes](https://inspiration.allwomenstalk.com/ways-to-stop-being-judgmental-of-others/)
+- [how to avoid pda](https://love.allwomenstalk.com/ways-to-engage-in-pda-without-annoying-those-around-you/)
 - [how to deal with bullying boss](https://money.allwomenstalk.com/ways-to-deal-with-a-bullying-boss/)
 - [my best friend too](https://lifestyle.allwomenstalk.com/things-to-do-when-your-best-friend-is-too-busy-for-you/)
-- [the daughter deal movie](https://parenting.allwomenstalk.com/ways-to-help-your-daughter-deal-with-mean-girls/)
-- [stop being judgemental quotes](https://inspiration.allwomenstalk.com/ways-to-stop-being-judgmental-of-others/)
-- [the worlds most beautiful twins now](https://parenting.allwomenstalk.com/tips-to-avoid-jealousy-among-twins/)
-- [how to deal with self absorbed people](https://inspiration.allwomenstalk.com/steps-to-dealing-with-a-self-absorbed-person/)
-- [how to heal from a toxic friendship](https://teen.allwomenstalk.com/tips-for-ending-a-friendship-smoothly/)
-- [how to avoid pda](https://love.allwomenstalk.com/ways-to-engage-in-pda-without-annoying-those-around-you/)
-- [song for sister birthday](https://lifestyle.allwomenstalk.com/things-you-can-do-to-have-a-closer-relationship-with-your-sister/)
-- [how to deal with noisy neighbors](https://lifestyle.allwomenstalk.com/steps-for-dealing-with-a-noisy-neighbor/)
 - [10 Ways to Spot a Frenemy ...](https://allwomenstalk.com/10-ways-to-spot-a-frenemy/)
 - [7 Know-Hows to Spot a Liar ...](https://allwomenstalk.com/7-know-hows-to-spot-a-liar/)
 

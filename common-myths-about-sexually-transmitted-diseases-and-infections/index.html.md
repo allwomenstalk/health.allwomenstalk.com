@@ -44,16 +44,16 @@ Most sexually transmitted diseases and infections are preventable through method
 
 ## Related Posts
 
-- [what to look for in a juicer](https://health.allwomenstalk.com/essential-things-to-consider-when-buying-a-juicer/)
+- [tired all the time blood test](https://health.allwomenstalk.com/blood-tests-for-fatigue-to-have-your-doctor-do-if-youre-always-tired/)
 - [the skin book tattoo](https://lifestyle.allwomenstalk.com/things-you-didnt-know-about-getting-a-tattoo/)
+- [what to look for in a juicer](https://health.allwomenstalk.com/essential-things-to-consider-when-buying-a-juicer/)
+- [life saving items](https://lifestyle.allwomenstalk.com/life-saving-items-you-must-keep-in-your-emergency-kit/)
 - [how to educate yourself on politics](https://lifestyle.allwomenstalk.com/important-political-issues-you-need-to-educate-yourself-on/)
+- [men and anorexia](https://health.allwomenstalk.com/facts-about-male-anorexia-that-you-probably-dont-know-but-should/)
 - [bad things for your heart](https://health.allwomenstalk.com/bad-habits-that-could-damage-your-heart/)
 - [multivitamin without titanium dioxide](https://health.allwomenstalk.com/toxic-ingredients-to-avoid-when-buying-supplements/)
-- [does hot yoga tone your body](https://lifestyle.allwomenstalk.com/pros-and-cons-of-hot-yoga-that-you-should-know/)
 - [things every woman needs to know about her heart](https://health.allwomenstalk.com/things-every-woman-needs-to-know-about-heart-disease/)
-- [tired all the time blood test](https://health.allwomenstalk.com/blood-tests-for-fatigue-to-have-your-doctor-do-if-youre-always-tired/)
-- [men and anorexia](https://health.allwomenstalk.com/facts-about-male-anorexia-that-you-probably-dont-know-but-should/)
-- [life saving items](https://lifestyle.allwomenstalk.com/life-saving-items-you-must-keep-in-your-emergency-kit/)
+- [does hot yoga tone your body](https://lifestyle.allwomenstalk.com/pros-and-cons-of-hot-yoga-that-you-should-know/)
 - [7 Myths about Sex Revealed ...](https://health.allwomenstalk.com/7-myths-about-sex-revealed/)
 - [8 Myths about Sexual Health Busted ...](https://health.allwomenstalk.com/8-myths-about-sexual-health-busted/)
 

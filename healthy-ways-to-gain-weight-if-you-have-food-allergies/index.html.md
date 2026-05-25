@@ -42,16 +42,16 @@ When I needed to gain weight, I had trouble finding articles on ways to do so he
 
 ## Related Posts
 
-- [discouraged weight loss](https://diet.allwomenstalk.com/ways-to-not-get-discouraged-when-dieting/)
-- [vegan cat food study](https://food.allwomenstalk.com/points-to-remember-when-turning-vegan/)
-- [eating out too much](https://lifestyle.allwomenstalk.com/fail-safe-ways-to-keep-from-overeating-at-restaurants/)
-- [how to get back on track after binge eating](https://diet.allwomenstalk.com/ways-to-get-back-on-track-after-binge-eating-and-start-feeling-great-again/)
-- [how to stop fast food addiction](https://diet.allwomenstalk.com/tips-for-beating-a-fast-food-addiction-starting-today/)
-- [eat differently](https://diet.allwomenstalk.com/ways-to-deal-with-eating-differently-than-others/)
-- [diet on vacation](https://diet.allwomenstalk.com/tips-to-help-you-stick-to-your-diet-while-on-vacation/)
-- [how to include spinach in your diet](https://food.allwomenstalk.com/sneaky-ways-to-add-spinach-to-your-diet/)
 - [a food label ingredient list reads](https://diet.allwomenstalk.com/quick-ways-to-read-a-food-label-to-tell-if-its-healthy-or-not/)
 - [navigate grocery store](https://lifestyle.allwomenstalk.com/simple-steps-for-navigating-through-the-grocery-store/)
+- [vegan cat food study](https://food.allwomenstalk.com/points-to-remember-when-turning-vegan/)
+- [diet on vacation](https://diet.allwomenstalk.com/tips-to-help-you-stick-to-your-diet-while-on-vacation/)
+- [discouraged weight loss](https://diet.allwomenstalk.com/ways-to-not-get-discouraged-when-dieting/)
+- [how to stop fast food addiction](https://diet.allwomenstalk.com/tips-for-beating-a-fast-food-addiction-starting-today/)
+- [eat differently](https://diet.allwomenstalk.com/ways-to-deal-with-eating-differently-than-others/)
+- [how to include spinach in your diet](https://food.allwomenstalk.com/sneaky-ways-to-add-spinach-to-your-diet/)
+- [eating out too much](https://lifestyle.allwomenstalk.com/fail-safe-ways-to-keep-from-overeating-at-restaurants/)
+- [how to get back on track after binge eating](https://diet.allwomenstalk.com/ways-to-get-back-on-track-after-binge-eating-and-start-feeling-great-again/)
 - [7 Healthiest Foods for Losing Weight ...](https://weightloss.allwomenstalk.com/healthiest-foods-for-losing-weight/)
 - [7 Ways to Increase Protein Intake ...](https://diet.allwomenstalk.com/7-ways-to-increase-protein-intake/)
 

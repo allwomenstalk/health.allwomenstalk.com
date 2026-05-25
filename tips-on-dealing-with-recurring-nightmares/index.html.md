@@ -44,16 +44,16 @@ Top Photo Credit: [fallrod](https://www.flickr.com/photos/fallrod/4805980991/)
 
 ## Related Posts
 
-- [tune bed](https://allwomenstalk.com/tune-in-bed-for-pre-sleep-music/)
-- [Sleep Apnea ...](https://allwomenstalk.com/sleep-apnea/)
-- [9 Tips to Avoid Fatigue in the Afternoon ...](https://health.allwomenstalk.com/tips-to-avoid-fatigue-in-the-afternoon/)
 - [nap time for adults](https://allwomenstalk.com/why-dont-adults-have-nap-time-2/)
-- [How Sleep Apnea Can Hurt a Relationship.](https://allwomenstalk.com/how-sleep-apnea-can-hurt-a-relationship/)
-- [couple goals sleep](https://allwomenstalk.com/quick-tip-allot-ample-sleep-time/)
-- [How to Prevent a Nightmare from Happening ...](https://allwomenstalk.com/how-to-prevent-a-nightmare-from-happening-2/)
-- [ADHD and Sleep ...](https://allwomenstalk.com/3-14/)
+- [9 Tips to Avoid Fatigue in the Afternoon ...](https://health.allwomenstalk.com/tips-to-avoid-fatigue-in-the-afternoon/)
+- [Sleep Apnea ...](https://allwomenstalk.com/sleep-apnea/)
 - [gf bf sleeping pic](https://allwomenstalk.com/you-may-sleep-better/)
 - [nose cones for snoring](https://love.allwomenstalk.com/ways-to-help-your-guy-stop-snoring/)
+- [How to Prevent a Nightmare from Happening ...](https://allwomenstalk.com/how-to-prevent-a-nightmare-from-happening-2/)
+- [How Sleep Apnea Can Hurt a Relationship.](https://allwomenstalk.com/how-sleep-apnea-can-hurt-a-relationship/)
+- [ADHD and Sleep ...](https://allwomenstalk.com/3-14/)
+- [couple goals sleep](https://allwomenstalk.com/quick-tip-allot-ample-sleep-time/)
+- [tune bed](https://allwomenstalk.com/tune-in-bed-for-pre-sleep-music/)
 - [7 Tips to Stop Bedwetting ...](https://parenting.allwomenstalk.com/tips-to-stop-bedwetting/)
 - [11 Tips to Help You Sleep Better ...](https://allwomenstalk.com/6-natural-remedies-to-help-you-sleep-better/)
 

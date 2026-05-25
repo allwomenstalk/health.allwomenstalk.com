@@ -56,16 +56,16 @@ When looking to improve your brain function, don’t ignore the power of these h
 
 ## Related Posts
 
+- [should kids go vegetarian](https://parenting.allwomenstalk.com/benefits-of-a-vegetarian-diet-for-children/)
 - [bulgur benefits for skin](https://food.allwomenstalk.com/reasons-you-should-eat-bulgur-the-whole-grain-more-often/)
 - [hot showers dry skin](https://skincare.allwomenstalk.com/pros-and-cons-of-taking-a-hot-shower/)
-- [can you eat hummus on candida diet](https://food.allwomenstalk.com/healthy-benefits-of-hummus-that-may-surprise-you/)
-- [beauty benefits of quitting smoking](https://beauty.allwomenstalk.com/beauty-benefits-of-quitting-smoking/)
-- [health benefits of turnips](https://food.allwomenstalk.com/lesser-known-health-benefits-of-turnips/)
-- [how to eat eggplant for weight loss](https://food.allwomenstalk.com/awesome-benefits-of-eggplant-that-will-turn-it-into-a-regular-guest-on-your-plate/)
+- [castrol oil cooking](https://diy.allwomenstalk.com/uses-for-castor-oil-you-may-not-have-thought-of/)
 - [is acorn squash healthy](https://food.allwomenstalk.com/important-health-benefits-you-can-get-from-acorn-squash/)
 - [how to look beautiful in party naturally](https://makeup.allwomenstalk.com/benefits-of-the-natural-look/)
-- [should kids go vegetarian](https://parenting.allwomenstalk.com/benefits-of-a-vegetarian-diet-for-children/)
-- [castrol oil cooking](https://diy.allwomenstalk.com/uses-for-castor-oil-you-may-not-have-thought-of/)
+- [health benefits of turnips](https://food.allwomenstalk.com/lesser-known-health-benefits-of-turnips/)
+- [how to eat eggplant for weight loss](https://food.allwomenstalk.com/awesome-benefits-of-eggplant-that-will-turn-it-into-a-regular-guest-on-your-plate/)
+- [can you eat hummus on candida diet](https://food.allwomenstalk.com/healthy-benefits-of-hummus-that-may-surprise-you/)
+- [beauty benefits of quitting smoking](https://beauty.allwomenstalk.com/beauty-benefits-of-quitting-smoking/)
 - [7 Best Foods for Stress Relief ...](https://allwomenstalk.com/7-best-foods-for-stress-relief/)
 - [7 Foods to Make You Smarter ...](https://allwomenstalk.com/7-foods-to-make-you-smarter/)
 

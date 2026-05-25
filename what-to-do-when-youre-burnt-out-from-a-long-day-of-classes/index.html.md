@@ -44,16 +44,16 @@ What are other ways to minimize stress while in school?
 
 ## Related Posts
 
-- [Challenge Yourself to Avoid These Negative Thought...](https://inspiration.allwomenstalk.com/challenge-yourself-to-avoid-these-negative-thoughts-for-hours/)
-- [Cheer Yourself up with These 7 Rut Ruiners ...](https://inspiration.allwomenstalk.com/cheer-yourself-up-with-these-rut-ruiners/)
-- [What to do when Youre Sad but Dont Know Why ...](https://inspiration.allwomenstalk.com/what-to-do-when-youre-sad-but-dont-know-why/)
-- [7 Ways Stress Actually HELPS You for the Girl Stre...](https://health.allwomenstalk.com/why-stress-can-be-good-for-you/)
 - [agoraphobia tips](https://health.allwomenstalk.com/tips-for-coping-with-agoraphobia/)
-- [Here Are 7 Cheap Ways to Beat Stress ...](https://health.allwomenstalk.com/here-are-cheap-ways-to-beat-stress/)
-- [The Best Strategies for Developing Mental Toughnes...](https://inspiration.allwomenstalk.com/the-best-strategies-for-developing-mental-toughness/)
+- [What to do when Youre Sad but Dont Know Why ...](https://inspiration.allwomenstalk.com/what-to-do-when-youre-sad-but-dont-know-why/)
 - [Destructive Habits That Can Cause You to Feel Exha...](https://health.allwomenstalk.com/feeling-exhausted-all-the-time-heres-why/)
+- [The Best Strategies for Developing Mental Toughnes...](https://inspiration.allwomenstalk.com/the-best-strategies-for-developing-mental-toughness/)
 - [How to Calm and Declutter Your Mind in under 30 Mi...](https://inspiration.allwomenstalk.com/how-to-calm-and-declutter-your-mind-in-under-minutes/)
 - [7 Stretches Thatll Slaughter Your Anxiety ...](https://health.allwomenstalk.com/stretches-thatll-slaughter-your-anxiety/)
+- [Cheer Yourself up with These 7 Rut Ruiners ...](https://inspiration.allwomenstalk.com/cheer-yourself-up-with-these-rut-ruiners/)
+- [7 Ways Stress Actually HELPS You for the Girl Stre...](https://health.allwomenstalk.com/why-stress-can-be-good-for-you/)
+- [Challenge Yourself to Avoid These Negative Thought...](https://inspiration.allwomenstalk.com/challenge-yourself-to-avoid-these-negative-thoughts-for-hours/)
+- [Here Are 7 Cheap Ways to Beat Stress ...](https://health.allwomenstalk.com/here-are-cheap-ways-to-beat-stress/)
 - [How to Get through a Stressful Time ...](https://allwomenstalk.com/how-to-get-through-a-stressful-time-2/)
 - [How to Reduce Stress ...](https://allwomenstalk.com/how-to-reduce-stress/)
 

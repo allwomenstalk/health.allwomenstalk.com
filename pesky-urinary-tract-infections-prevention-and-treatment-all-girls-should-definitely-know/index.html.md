@@ -42,16 +42,16 @@ Have you ever had a UTI? What did you do to feel better?
 
 ## Related Posts
 
-- [The Link between Drugs and  Depression  Anxiety .....](https://health.allwomenstalk.com/the-link-between-drugs-and-depression/)
-- [Causes of Common Allergies  and First-Aid Treatmen...](https://health.allwomenstalk.com/causes-of-common-allergies/)
-- [The Gross Truth of What Your Earwax Says about You...](https://health.allwomenstalk.com/the-gross-truth-of-what-your-earwax-says-about-your-health/)
-- [5 QuestionsEvery Woman in Her 20s Should Be Able t...](https://health.allwomenstalk.com/questions-every-woman-in-her-20s-should-be-able-to-answer-about-her-health/)
-- [Everything You Need to Know about Lip Fillers befo...](https://beauty.allwomenstalk.com/everything-you-need-to-know-about-lip-fillers-before-getting-them/)
-- [7 Shocking Things I Discovered when I Stopped Shav...](https://skincare.allwomenstalk.com/shocking-things-i-discovered-when-i-stopped-shaving-for-a-month/)
 - [Common Hygiene Mistakes   You Might Not Know  Your...](https://health.allwomenstalk.com/common-hygiene-mistakes-you-might-not-know-youre-making/)
+- [Everything You Need to Know about Lip Fillers befo...](https://beauty.allwomenstalk.com/everything-you-need-to-know-about-lip-fillers-before-getting-them/)
+- [The Link between Drugs and  Depression  Anxiety .....](https://health.allwomenstalk.com/the-link-between-drugs-and-depression/)
 - [Everything You Should Know about Trauma Bonding .....](https://health.allwomenstalk.com/what-is-trauma-bonding/)
-- [Important Need to Know Facts for Women Starting th...](https://diet.allwomenstalk.com/important-need-to-know-facts-for-women-starting-the-alkaline-diet/)
+- [Causes of Common Allergies  and First-Aid Treatmen...](https://health.allwomenstalk.com/causes-of-common-allergies/)
+- [7 Shocking Things I Discovered when I Stopped Shav...](https://skincare.allwomenstalk.com/shocking-things-i-discovered-when-i-stopped-shaving-for-a-month/)
 - [The Wonders of Magnesium Every Woman Should Know a...](https://health.allwomenstalk.com/the-wonders-of-magnesium-every-women-should-know-about/)
+- [The Gross Truth of What Your Earwax Says about You...](https://health.allwomenstalk.com/the-gross-truth-of-what-your-earwax-says-about-your-health/)
+- [Important Need to Know Facts for Women Starting th...](https://diet.allwomenstalk.com/important-need-to-know-facts-for-women-starting-the-alkaline-diet/)
+- [5 QuestionsEvery Woman in Her 20s Should Be Able t...](https://health.allwomenstalk.com/questions-every-woman-in-her-20s-should-be-able-to-answer-about-her-health/)
 - [6 Incredibly Important Health Issues You Must Know...](https://health.allwomenstalk.com/incredibly-important-health-issues-you-must-know-about/)
 - [10 Things about Your Period You Should Know ...](https://allwomenstalk.com/10-things-about-your-period-you-should-know/)
 

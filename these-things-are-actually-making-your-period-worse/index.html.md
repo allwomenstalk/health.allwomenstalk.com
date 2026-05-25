@@ -43,16 +43,16 @@ What else has made your periods worse in the past?
 
 ## Related Posts
 
-- [What to Expect during Your Very First Gynecologica...](https://health.allwomenstalk.com/what-to-expect-during-your-very-first-gynecological-visit/)
-- [The Answers to All of Your Embarrassing Period Que...](https://health.allwomenstalk.com/the-answers-to-all-of-your-embarrassing-period-questions/)
-- [Health Tests You Need to Schedule for Sometime  in...](https://health.allwomenstalk.com/schedule-these-health-tests-for-some-time-in/)
-- [These Shocking Things Are Triggering Your Anxiety ...](https://health.allwomenstalk.com/these-shocking-things-are-triggering-your-anxiety-watch-out/)
-- [Do These Things to Reduce Risk of Breast Cancer .....](https://health.allwomenstalk.com/do-these-things-to-reduce-risk-of-breast-cancer/)
-- [7 Life Events That Can Lead to a Heart Attack ...](https://health.allwomenstalk.com/life-events-that-can-lead-to-a-heart-attack/)
 - [10 Facts That Could End up Saving Your Life ...](https://lifestyle.allwomenstalk.com/facts-that-could-end-up-saving-your-life/)
-- [le stylo eye always pink](https://health.allwomenstalk.com/things-you-should-do-when-you-get-pink-eye/)
+- [What to Expect during Your Very First Gynecologica...](https://health.allwomenstalk.com/what-to-expect-during-your-very-first-gynecological-visit/)
+- [Do These Things to Reduce Risk of Breast Cancer .....](https://health.allwomenstalk.com/do-these-things-to-reduce-risk-of-breast-cancer/)
 - [10 Things Most Women Dont Know about Their Bodies ...](https://health.allwomenstalk.com/things-most-women-dont-know-about-their-bodies/)
 - [Your M.D. Must Know These 7 Things about You ...](https://health.allwomenstalk.com/your-m-d-must-know-these-things-about-you/)
+- [The Answers to All of Your Embarrassing Period Que...](https://health.allwomenstalk.com/the-answers-to-all-of-your-embarrassing-period-questions/)
+- [These Shocking Things Are Triggering Your Anxiety ...](https://health.allwomenstalk.com/these-shocking-things-are-triggering-your-anxiety-watch-out/)
+- [le stylo eye always pink](https://health.allwomenstalk.com/things-you-should-do-when-you-get-pink-eye/)
+- [7 Life Events That Can Lead to a Heart Attack ...](https://health.allwomenstalk.com/life-events-that-can-lead-to-a-heart-attack/)
+- [Health Tests You Need to Schedule for Sometime  in...](https://health.allwomenstalk.com/schedule-these-health-tests-for-some-time-in/)
 - [10 Things about Your Period You Should Know ...](https://allwomenstalk.com/10-things-about-your-period-you-should-know/)
 - [12 Things about PMS You Should Know ...](https://allwomenstalk.com/12-things-about-pms-you-should-know-plus-four-bonus-facts-for-you/)
 

@@ -74,16 +74,16 @@ So go ahead and look up at the beautiful sky, feel the beauty of each day and ma
 
 ## Related Posts
 
-- [setting the mood for romance](https://love.allwomenstalk.com/captivating-ways-to-set-the-mood-after-a-long-day/)
-- [ways to set the mood](https://love.allwomenstalk.com/paris-in-a-handbasket-quick-tricks-to-help-you-set-the-mood/)
-- [things to do to unwind](https://health.allwomenstalk.com/ways-to-unwind-and-relax/)
-- [best movies when youre stressed](https://movies.allwomenstalk.com/tv-shows-to-watch-on-netflix-when-youre-feeling-stressed-af/)
-- [after christmas blues](https://inspiration.allwomenstalk.com/tips-for-getting-over-the-post-christmas-blues/)
-- [adult coloring book target](https://lifestyle.allwomenstalk.com/relaxing-activities-to-try-if-coloring-isnt-your-thing/)
 - [how to cheer someone up after a bad day](https://inspiration.allwomenstalk.com/ways-to-cheer-up-on-a-bad-day/)
-- [bengal spice tea weight loss](https://health.allwomenstalk.com/herbal-teas-for-people-who-feel-constantly-stressed/)
+- [setting the mood for romance](https://love.allwomenstalk.com/captivating-ways-to-set-the-mood-after-a-long-day/)
+- [things to do to unwind](https://health.allwomenstalk.com/ways-to-unwind-and-relax/)
+- [ways to set the mood](https://love.allwomenstalk.com/paris-in-a-handbasket-quick-tricks-to-help-you-set-the-mood/)
 - [how to get your sanity back](https://health.allwomenstalk.com/steps-to-get-your-sanity-back/)
+- [best movies when youre stressed](https://movies.allwomenstalk.com/tv-shows-to-watch-on-netflix-when-youre-feeling-stressed-af/)
+- [adult coloring book target](https://lifestyle.allwomenstalk.com/relaxing-activities-to-try-if-coloring-isnt-your-thing/)
+- [bengal spice tea weight loss](https://health.allwomenstalk.com/herbal-teas-for-people-who-feel-constantly-stressed/)
 - [successful digital detox](https://health.allwomenstalk.com/tips-for-success-when-doing-a-digital-detox/)
+- [after christmas blues](https://inspiration.allwomenstalk.com/tips-for-getting-over-the-post-christmas-blues/)
 - [10 Ways to Stop Stress ...](https://allwomenstalk.com/10-ways-to-stop-stress/)
 - [10 Easy Ways to Relieve Anxiety ...](https://allwomenstalk.com/10-easy-ways-to-relieve-anxiety/)
 

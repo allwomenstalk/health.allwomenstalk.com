@@ -42,16 +42,16 @@ So, there you have it my seven things to help you sleep better, that I have actu
 
 ## Related Posts
 
-- [reasons why i cant sleep at night](https://health.allwomenstalk.com/good-reasons-that-you-cant-sleep-at-night/)
-- [flight accessories for sleeping](https://travel.allwomenstalk.com/tips-for-sleeping-on-a-plane/)
-- [freefaller sleeping position](https://health.allwomenstalk.com/sleeping-positions-and-what-they-say-about-you/)
-- [funsummer10](https://lifestyle.allwomenstalk.com/ways-to-become-a-morning-person/)
-- [what fruits to eat before bed](https://diet.allwomenstalk.com/worst-things-to-eat-before-bed/)
-- [best app for going to sleep](https://apps.allwomenstalk.com/apps-that-help-you-sleep-better/)
-- [how to sleep in high temperature](https://health.allwomenstalk.com/steps-to-help-you-sleep-in-high-temperatures/)
 - [how to wake up on time for work](https://lifestyle.allwomenstalk.com/time-management-tips-to-get-you-to-work-on-time-in-the-morning/)
+- [freefaller sleeping position](https://health.allwomenstalk.com/sleeping-positions-and-what-they-say-about-you/)
+- [best app for going to sleep](https://apps.allwomenstalk.com/apps-that-help-you-sleep-better/)
 - [what do i do if im bored in class](https://lifestyle.allwomenstalk.com/ways-to-stay-awake-during-a-boring-class/)
+- [funsummer10](https://lifestyle.allwomenstalk.com/ways-to-become-a-morning-person/)
 - [awake sentence for class 7](https://lifestyle.allwomenstalk.com/tips-on-staying-awake-during-class-that-will-work/)
+- [flight accessories for sleeping](https://travel.allwomenstalk.com/tips-for-sleeping-on-a-plane/)
+- [how to sleep in high temperature](https://health.allwomenstalk.com/steps-to-help-you-sleep-in-high-temperatures/)
+- [reasons why i cant sleep at night](https://health.allwomenstalk.com/good-reasons-that-you-cant-sleep-at-night/)
+- [what fruits to eat before bed](https://diet.allwomenstalk.com/worst-things-to-eat-before-bed/)
 - [10 Ways to Sleep Better ...](https://health.allwomenstalk.com/ways-to-sleep-better/)
 - [11 Tips to Help You Sleep Better ...](https://allwomenstalk.com/6-natural-remedies-to-help-you-sleep-better/)
 

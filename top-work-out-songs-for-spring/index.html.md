@@ -48,16 +48,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/11657551)
 
 ## Related Posts
 
+- [songs with shake in it](https://lifestyle.allwomenstalk.com/energizing-songs-that-are-assured-to-make-you-shake-your-stuff/)
+- [where do you typically go to discover new music](https://lifestyle.allwomenstalk.com/tips-on-how-to-discover-new-music/)
+- [loreal paris petite palette blinged and brilliant](https://lifestyle.allwomenstalk.com/up-and-coming-singers-you-should-know-about/)
+- [modern love songs](https://love.allwomenstalk.com/modern-day-love-songs-that-will-melt-your-heart/)
 - [most famous singers today](https://lifestyle.allwomenstalk.com/most-popular-singers-of-today/)
 - [fun night songs](https://lifestyle.allwomenstalk.com/fun-songs-to-get-you-pumped-for-a-night-out/)
-- [songs with shake in it](https://lifestyle.allwomenstalk.com/energizing-songs-that-are-assured-to-make-you-shake-your-stuff/)
 - [terrible love songs](https://love.allwomenstalk.com/worst-love-songs-of-all-time/)
-- [sport day outfits](https://celebs.allwomenstalk.com/most-amazing-girl-bands/)
 - [brand nubian greatest hits](https://movies.allwomenstalk.com/best-rap-songs-ever/)
-- [loreal paris petite palette blinged and brilliant](https://lifestyle.allwomenstalk.com/up-and-coming-singers-you-should-know-about/)
+- [sport day outfits](https://celebs.allwomenstalk.com/most-amazing-girl-bands/)
 - [songs about fighting with someone you love](https://love.allwomenstalk.com/love-songs-to-listen-to-when-you-are-in-a-fight/)
-- [modern love songs](https://love.allwomenstalk.com/modern-day-love-songs-that-will-melt-your-heart/)
-- [where do you typically go to discover new music](https://lifestyle.allwomenstalk.com/tips-on-how-to-discover-new-music/)
 - [7 Ways to Get in Shape for Summer ...](https://weightloss.allwomenstalk.com/ways-to-get-in-shape-for-summer/)
 - [8 Fun Ways to Exercise This Summer ...](https://weightloss.allwomenstalk.com/fun-ways-to-exercise-this-summer/)
 

@@ -44,16 +44,16 @@ Ingrown toenails are a pain to deal with. However, if you avoid as many of the c
 
 ## Related Posts
 
-- [does hairspray dry nails](https://nails.allwomenstalk.com/things-that-will-instantly-ruin-your-manicure/)
 - [nail polish chipped](https://nails.allwomenstalk.com/incredibly-simple-ways-to-hide-a-chipped-manicure/)
-- [how to tip at nail salon](https://nails.allwomenstalk.com/points-of-etiquette-for-the-nail-salon/)
-- [How to Keep Your Next Mani Chip-Free ...](https://nails.allwomenstalk.com/tips-for-keeping-your-nails-chip-free/)
-- [epic nails](https://nails.allwomenstalk.com/nail-osophy-winterize-now-to-avoid-an-epic-nail-fail/)
-- [steps in manicure](https://nails.allwomenstalk.com/steps-for-a-super-fast-manicure/)
 - [how to keep cuticles healthy](https://nails.allwomenstalk.com/essential-tips-for-caring-for-your-cuticles/)
-- [how to get perfect nails in 7 ways](https://lifestyle.allwomenstalk.com/ways-to-achieve-the-perfect-manicure/)
+- [how to tip at nail salon](https://nails.allwomenstalk.com/points-of-etiquette-for-the-nail-salon/)
 - [why does my nail polish bubble after it dries](https://nails.allwomenstalk.com/things-you-should-know-about-cheap-vs-expensive-nail-polish/)
+- [how to get perfect nails in 7 ways](https://lifestyle.allwomenstalk.com/ways-to-achieve-the-perfect-manicure/)
+- [epic nails](https://nails.allwomenstalk.com/nail-osophy-winterize-now-to-avoid-an-epic-nail-fail/)
+- [does hairspray dry nails](https://nails.allwomenstalk.com/things-that-will-instantly-ruin-your-manicure/)
 - [how to get rid of nail polish on clothes](https://nails.allwomenstalk.com/ways-to-clean-up-nail-polish-without-remover/)
+- [How to Keep Your Next Mani Chip-Free ...](https://nails.allwomenstalk.com/tips-for-keeping-your-nails-chip-free/)
+- [steps in manicure](https://nails.allwomenstalk.com/steps-for-a-super-fast-manicure/)
 - [7 Reasons Why You Must Floss ...](https://health.allwomenstalk.com/7-reasons-why-you-must-floss/)
 - [Feet Care Tips ...](https://allwomenstalk.com/feet-care-tips/)
 

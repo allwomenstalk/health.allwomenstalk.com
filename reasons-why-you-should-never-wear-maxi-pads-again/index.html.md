@@ -66,16 +66,16 @@ Don’t be afraid to try tampons or soft cups - maxi pads are not the only optio
 
 ## Related Posts
 
-- [facebook fights](https://lifestyle.allwomenstalk.com/silly-things-that-cause-ridiculous-facebook-fights/)
-- [different types of passengers](https://travel.allwomenstalk.com/types-of-airplane-passengers-youd-do-well-to-avoid/)
 - [romantic killer cat name](https://love.allwomenstalk.com/top-romance-killers-to-avoid-at-all-costs/)
-- [reliable ticket websites](https://lifestyle.allwomenstalk.com/things-to-avoid-doing-at-a-standing-concert/)
-- [what not to say in an argument](https://love.allwomenstalk.com/things-you-shouldnt-say-in-an-argument/)
 - [stuff to buy at the grocery store](https://lifestyle.allwomenstalk.com/things-you-should-never-buy-at-the-grocery-store/)
 - [avoiding social media](https://lifestyle.allwomenstalk.com/things-to-avoid-in-social-media/)
 - [is it ok to not tell your partner everything](https://love.allwomenstalk.com/things-not-to-tell-your-friends-about-your-relationship/)
-- [what not to talk about on first date](https://love.allwomenstalk.com/things-not-to-talk-about-on-a-first-date/)
+- [what not to say in an argument](https://love.allwomenstalk.com/things-you-shouldnt-say-in-an-argument/)
+- [reliable ticket websites](https://lifestyle.allwomenstalk.com/things-to-avoid-doing-at-a-standing-concert/)
+- [different types of passengers](https://travel.allwomenstalk.com/types-of-airplane-passengers-youd-do-well-to-avoid/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/communication-mistakes-to-avoid/)
+- [facebook fights](https://lifestyle.allwomenstalk.com/silly-things-that-cause-ridiculous-facebook-fights/)
+- [what not to talk about on first date](https://love.allwomenstalk.com/things-not-to-talk-about-on-a-first-date/)
 - [7 Signs of an Ill-fitting Bra ...](https://allwomenstalk.com/7-signs-of-an-ill-fitting-bra/)
 - [10 Things Not to Wear when Traveling ...](https://travel.allwomenstalk.com/things-not-to-wear-when-traveling/)
 

@@ -46,14 +46,14 @@ Top Photo Credit: [extremefitnesscanada](https://www.flickr.com/photos/extremefi
 
 - [figleaves free shipping](https://allwomenstalk.com/figleaves-a-rant/)
 - [Find the Right Bra ...](https://allwomenstalk.com/find-the-right-bra-2/)
-- [strap on strap off](https://allwomenstalk.com/strap-onstrap-off/)
-- [bodymetrics](https://allwomenstalk.com/bodymetrics-a-quest-for-the-perfect-jean/)
 - [site:love.allwomenstalk.com](https://love.allwomenstalk.com/sexiest-lingerie-garments/)
-- [Figleaves Fixes up](https://allwomenstalk.com/figleaves-fixes-up/)
 - [look 10 pounds thinner bathing suit](https://allwomenstalk.com/humor-for-women-buying-bathing-suits/)
 - [diane von furstenberg swimsuits](https://fashion.allwomenstalk.com/stylish-one-piece-swimsuits/)
-- [boobieday](https://allwomenstalk.com/its-a-boobie-dayim-a-huge-fan-of-burgers-i/)
+- [strap on strap off](https://allwomenstalk.com/strap-onstrap-off/)
+- [Figleaves Fixes up](https://allwomenstalk.com/figleaves-fixes-up/)
+- [bodymetrics](https://allwomenstalk.com/bodymetrics-a-quest-for-the-perfect-jean/)
 - [Corsets ...](https://allwomenstalk.com/corsets/)
+- [boobieday](https://allwomenstalk.com/its-a-boobie-dayim-a-huge-fan-of-burgers-i/)
 - [7 Ways to Wear Frills ...](https://allwomenstalk.com/7-ways-to-wear-frills/)
 - [7 Ways to Wear Polka Dots ...](https://allwomenstalk.com/7-ways-to-wear-polka-dots/)
 

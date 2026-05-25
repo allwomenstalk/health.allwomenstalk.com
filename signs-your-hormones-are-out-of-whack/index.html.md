@@ -42,14 +42,14 @@ Having hormones out of whack isn’t a fun time. Luckily, you are now aware of t
 
 ## Related Posts
 
-- [struggling to isolate lashes](https://lifestyle.allwomenstalk.com/alarming-signs-you-are-struggling-with-addiction/)
 - [how to tell if someone is wearing makeup](https://makeup.allwomenstalk.com/signs-that-you-wear-too-much-makeup/)
-- [signs of a jealous insecure friend](https://lifestyle.allwomenstalk.com/sure-signs-of-insecurity-you-should-be-aware-of/)
+- [signs your addicted to your phone](https://lifestyle.allwomenstalk.com/tell-tale-signs-that-youre-addicted-to-you-phone/)
 - [whats my hair color](https://hair.allwomenstalk.com/signs-that-you-need-a-hair-color-change/)
 - [best modern dancers](https://lifestyle.allwomenstalk.com/ways-you-know-youre-a-dancer/)
-- [am i rude](https://health.allwomenstalk.com/alarming-signs-you-are-being-rude/)
-- [signs your addicted to your phone](https://lifestyle.allwomenstalk.com/tell-tale-signs-that-youre-addicted-to-you-phone/)
+- [struggling to isolate lashes](https://lifestyle.allwomenstalk.com/alarming-signs-you-are-struggling-with-addiction/)
 - [i need time for myself](https://lifestyle.allwomenstalk.com/signs-you-need-some-alone-time-that-you-should-give-in-to/)
+- [signs of a jealous insecure friend](https://lifestyle.allwomenstalk.com/sure-signs-of-insecurity-you-should-be-aware-of/)
+- [am i rude](https://health.allwomenstalk.com/alarming-signs-you-are-being-rude/)
 - [im a 90s chick](https://lifestyle.allwomenstalk.com/sure-signs-that-youre-a-90s-chick/)
 - [signs of being a workaholic](https://lifestyle.allwomenstalk.com/obvious-signs-you-are-a-workaholic/)
 - [7 Signs Youre in Good Health ...](https://health.allwomenstalk.com/7-signs-youre-in-good-health/)

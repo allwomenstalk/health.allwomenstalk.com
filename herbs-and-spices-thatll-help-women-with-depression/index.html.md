@@ -74,16 +74,16 @@ What do you for your depression? Would you be willing to try any of these herbs 
 
 ## Related Posts
 
+- [home remedies for fluid retention](https://health.allwomenstalk.com/fool-proof-home-remedies-for-water-retention/)
+- [camgirl](https://health.allwomenstalk.com/one-ingredient-detox-bath/)
+- [home remedies for freckles](https://skincare.allwomenstalk.com/effective-home-remedies-for-acne-2/)
+- [what can i use for stretch marks](https://skincare.allwomenstalk.com/easy-home-remedies-for-stretch-marks/)
 - [natural remedies for autism](https://health.allwomenstalk.com/herbal-supplements-for-autism/)
-- [breath247](https://health.allwomenstalk.com/tips-for-sweet-smelling-breath/)
 - [savvy deodorant](https://skincare.allwomenstalk.com/super-savvy-ways-to-give-up-your-deodorant-and-go-all-natural/)
+- [apple cider vinegar and fibroids](https://health.allwomenstalk.com/natural-remedies-for-fibroids/)
+- [breath247](https://health.allwomenstalk.com/tips-for-sweet-smelling-breath/)
 - [something to sweeten your day](https://inspiration.allwomenstalk.com/ways-to-sweeten-up-a-sour-day/)
 - [herb similar foods](https://food.allwomenstalk.com/herbs-and-spices-to-use-instead-of-salt/)
-- [home remedies for freckles](https://skincare.allwomenstalk.com/effective-home-remedies-for-acne-2/)
-- [camgirl](https://health.allwomenstalk.com/one-ingredient-detox-bath/)
-- [apple cider vinegar and fibroids](https://health.allwomenstalk.com/natural-remedies-for-fibroids/)
-- [what can i use for stretch marks](https://skincare.allwomenstalk.com/easy-home-remedies-for-stretch-marks/)
-- [home remedies for fluid retention](https://health.allwomenstalk.com/fool-proof-home-remedies-for-water-retention/)
 - [5 Healing Herbs ...](https://gardening.allwomenstalk.com/5-healing-herbs/)
 - [10 Super Foods That Help Fight Illness ...](https://health.allwomenstalk.com/10-super-foods-that-help-fight-illness/)
 

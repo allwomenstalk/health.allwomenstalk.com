@@ -76,16 +76,16 @@ Top Photo Credit: [SyncHealth](https://www.flickr.com/photos/54320589@N04/520622
 
 ## Related Posts
 
-- [nap time for adults](https://allwomenstalk.com/why-dont-adults-have-nap-time-2/)
-- [is sleeping early good](https://health.allwomenstalk.com/reasons-why-sleeping-early-is-good-for-you/)
-- [bad effects of oversleeping](https://health.allwomenstalk.com/7-side-effects-of-over-sleeping/)
-- [Sleep Apnea ...](https://allwomenstalk.com/sleep-apnea/)
-- [7 Tips on Dealing with Recurring Nightmares ...](https://health.allwomenstalk.com/tips-on-dealing-with-recurring-nightmares/)
-- [9 Tips to Avoid Fatigue in the Afternoon ...](https://health.allwomenstalk.com/tips-to-avoid-fatigue-in-the-afternoon/)
 - [nose cones for snoring](https://love.allwomenstalk.com/ways-to-help-your-guy-stop-snoring/)
 - [How to Prevent a Nightmare from Happening ...](https://allwomenstalk.com/how-to-prevent-a-nightmare-from-happening-2/)
+- [Sleep Apnea ...](https://allwomenstalk.com/sleep-apnea/)
+- [is sleeping early good](https://health.allwomenstalk.com/reasons-why-sleeping-early-is-good-for-you/)
 - [ADHD and Sleep ...](https://allwomenstalk.com/3-14/)
+- [9 Tips to Avoid Fatigue in the Afternoon ...](https://health.allwomenstalk.com/tips-to-avoid-fatigue-in-the-afternoon/)
 - [gf bf sleeping pic](https://allwomenstalk.com/you-may-sleep-better/)
+- [7 Tips on Dealing with Recurring Nightmares ...](https://health.allwomenstalk.com/tips-on-dealing-with-recurring-nightmares/)
+- [nap time for adults](https://allwomenstalk.com/why-dont-adults-have-nap-time-2/)
+- [bad effects of oversleeping](https://health.allwomenstalk.com/7-side-effects-of-over-sleeping/)
 - [11 Tips to Help You Sleep Better ...](https://allwomenstalk.com/6-natural-remedies-to-help-you-sleep-better/)
 - [10 Ways to Cure Insomnia ...](https://allwomenstalk.com/10-ways-to-cure-insomnia/)
 

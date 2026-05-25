@@ -42,16 +42,16 @@ The next time you have an upset stomach, I hope you can use one of these easy re
 
 ## Related Posts
 
-- [ideas to drink more water](https://health.allwomenstalk.com/ways-to-drink-more-water/)
+- [how to deal with a bad tattoo](https://beauty.allwomenstalk.com/ways-to-get-rid-of-a-bad-tattoo/)
 - [baking soda itchy scalp](https://skincare.allwomenstalk.com/helpful-home-remedies-for-an-itchy-scalp/)
 - [seaweed baths for weight loss](https://health.allwomenstalk.com/incredible-natural-ways-to-fight-cellulite/)
-- [how to deal with a bad tattoo](https://beauty.allwomenstalk.com/ways-to-get-rid-of-a-bad-tattoo/)
-- [witch hazel for cleaning piercings](https://jewelry.allwomenstalk.com/ways-to-care-for-body-piercings/)
-- [bath salt blends](https://diy.allwomenstalk.com/bath-salts-to-make-yourself/)
-- [what can make your teeth whiter](https://beauty.allwomenstalk.com/natural-ways-to-whiten-your-teeth/)
-- [vaseline eyeshadow](https://beauty.allwomenstalk.com/uses-of-vaseline/)
 - [pregnant women candle](https://parenting.allwomenstalk.com/remedies-for-morning-sickness/)
+- [ideas to drink more water](https://health.allwomenstalk.com/ways-to-drink-more-water/)
+- [vaseline eyeshadow](https://beauty.allwomenstalk.com/uses-of-vaseline/)
+- [bath salt blends](https://diy.allwomenstalk.com/bath-salts-to-make-yourself/)
 - [lemon and baking soda for acne](https://beauty.allwomenstalk.com/home-remedies-for-acne/)
+- [witch hazel for cleaning piercings](https://jewelry.allwomenstalk.com/ways-to-care-for-body-piercings/)
+- [what can make your teeth whiter](https://beauty.allwomenstalk.com/natural-ways-to-whiten-your-teeth/)
 - [7 Foods That Help Ease Pain Naturally ...](https://food.allwomenstalk.com/foods-that-help-ease-pain-naturally/)
 - [7 Remedies for an Aching Stomach ...](https://health.allwomenstalk.com/7-remedies-for-an-aching-stomach/)
 

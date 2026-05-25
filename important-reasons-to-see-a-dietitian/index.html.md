@@ -44,16 +44,16 @@ Increasingly, people are becoming aware of how food can affect health. Seeing a 
 
 ## Related Posts
 
-- [beliefs about food](https://food.allwomenstalk.com/eating-beliefs-we-grew-up-learning-wrong/)
-- [how to cook oats](https://diet.allwomenstalk.com/weight-loss-opportunities-in-your-diet-you-might-be-missing-out-on/)
-- [how to choose a nutritionist](https://health.allwomenstalk.com/things-to-consider-before-choosing-a-nutritionist/)
-- [is mcdonalds food unhealthy](https://food.allwomenstalk.com/reasons-to-avoid-fast-food-like-its-the-plague/)
-- [yo-yo dieting effects](https://diet.allwomenstalk.com/harmful-effects-of-yoyo-dieting/)
-- [diet makeover](https://diet.allwomenstalk.com/signs-your-diet-desperately-needs-a-makeover/)
 - [signs of bad diet](https://diet.allwomenstalk.com/signs-your-diet-is-unhealthy-and-might-be-too-extreme/)
 - [just eat healthy](https://diet.allwomenstalk.com/reasons-to-ditch-your-diet-and-just-eat-healthy/)
+- [beliefs about food](https://food.allwomenstalk.com/eating-beliefs-we-grew-up-learning-wrong/)
+- [diet makeover](https://diet.allwomenstalk.com/signs-your-diet-desperately-needs-a-makeover/)
+- [yo-yo dieting effects](https://diet.allwomenstalk.com/harmful-effects-of-yoyo-dieting/)
+- [how to choose a nutritionist](https://health.allwomenstalk.com/things-to-consider-before-choosing-a-nutritionist/)
 - [how to stop binge eating at night](https://health.allwomenstalk.com/reasons-you-crave-nut-butter-and-cant-stop-binging-on-it/)
 - [what causes hunger pangs](https://health.allwomenstalk.com/shocking-reasons-for-your-hunger-pangs/)
+- [how to cook oats](https://diet.allwomenstalk.com/weight-loss-opportunities-in-your-diet-you-might-be-missing-out-on/)
+- [is mcdonalds food unhealthy](https://food.allwomenstalk.com/reasons-to-avoid-fast-food-like-its-the-plague/)
 - [9 Reasons to Go to the Dentist ...](https://health.allwomenstalk.com/9-reasons-to-go-to-the-dentist/)
 - [7 Reasons to Go on a Detox Diet ...](https://health.allwomenstalk.com/reasons-to-go-on-a-detox-diet/)
 

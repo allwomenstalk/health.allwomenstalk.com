@@ -42,16 +42,16 @@ Be smarter than your phone and follow these tips to get rid of text neck and fee
 
 ## Related Posts
 
+- [francis bacon tattoo](https://beauty.allwomenstalk.com/the-best-meaningful-tattoos-to-get-for-girls-craving-some-ink/)
+- [le stylo amber rush](https://inspiration.allwomenstalk.com/how-to-increase-your-self-worth-for-women-feeling-insecure/)
+- [dating girls app](https://apps.allwomenstalk.com/dating-app-hacks-all-girls-who-swipe-should-know/)
 - [modern princesses](https://inspiration.allwomenstalk.com/the-rules-all-modern-day-princesses-follow/)
 - [the budget queen](https://money.allwomenstalk.com/a-girls-guide-to-living-like-a-queen-on-a-peasants-budget/)
-- [wantab](https://diet.allwomenstalk.com/healthy-habits-for-girls-who-want-ab-definition/)
-- [double standerd](https://lifestyle.allwomenstalk.com/double-standards-you-didnt-know-women-experience-every-day/)
-- [le stylo amber rush](https://inspiration.allwomenstalk.com/how-to-increase-your-self-worth-for-women-feeling-insecure/)
 - [sabrina purtill](https://books.allwomenstalk.com/great-inspirational-fiction-for-girls-struggling-with-accepting-themselves/)
-- [be body smart](https://health.allwomenstalk.com/things-women-need-to-know-to-be-body-smart/)
-- [dating girls app](https://apps.allwomenstalk.com/dating-app-hacks-all-girls-who-swipe-should-know/)
-- [francis bacon tattoo](https://beauty.allwomenstalk.com/the-best-meaningful-tattoos-to-get-for-girls-craving-some-ink/)
+- [double standerd](https://lifestyle.allwomenstalk.com/double-standards-you-didnt-know-women-experience-every-day/)
 - [how to be less shy and more confident](https://inspiration.allwomenstalk.com/perfect-strategies-for-shy-girls-to-gain-more-confidence/)
+- [wantab](https://diet.allwomenstalk.com/healthy-habits-for-girls-who-want-ab-definition/)
+- [be body smart](https://health.allwomenstalk.com/things-women-need-to-know-to-be-body-smart/)
 - [Life-Saving Style Hacks for Girls Who Hate Their N...](https://hair.allwomenstalk.com/style-hacks-when-you-hate-your-haircut/)
 - [7 Easy Delightful Tips for Girls Who Are Bored wit...](https://diy.allwomenstalk.com/delightful-ways-to-give-boring-clipboards-a-makeover/)
 

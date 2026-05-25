@@ -42,16 +42,16 @@ I do suggest shying away from sugar and refined foods, since they can mess with 
 
 ## Related Posts
 
-- [how to forgive yourself after a binge](https://mindfulness.allwomenstalk.com/ways-to-deal-with-binge-eating-that-dont-include-dieting/)
-- [7 Ways to Break the Snacking Habit before It Kills...](https://diet.allwomenstalk.com/ways-to-break-the-snacking-habit-before-it-kills-your-diet/)
-- [7 Foolproof Tips That Will Help You Cut Portions a...](https://diet.allwomenstalk.com/foolproof-tips-that-will-help-you-cut-portions-and-feel-full/)
-- [tumblr diet plan](https://diet.allwomenstalk.com/tips-for-women-learning-how-to-meal-plan/)
-- [7 Sure Tricks to Beating the Sugar Habit ...](https://diet.allwomenstalk.com/sure-tricks-to-beating-the-sugar-habit/)
-- [nutrition for improved recovery](https://fitness.allwomenstalk.com/things-to-keep-in-mind-regarding-recovery-nutrition/)
-- [7 Foods to Fight Sugar Addiction for a Healthier Y...](https://vityle.com/foods-that-fight-sugar-addiction-in-the-body/)
-- [7 Easy Ways to Cut 500 Calories out of Your Diet ....](https://weightloss.allwomenstalk.com/easy-ways-to-cut-500-calories-out-of-your-diet/)
-- [7 Tips for Vegan Athletes for Maximum Performance ...](https://eatial.com/tips-for-vegan-athletes-for-maximum-performance/)
 - [9 Steps to a Whole Foods Lifestyle Anyone Can Take...](https://eatial.com/steps-to-a-whole-foods-diet-anyone-can-do/)
+- [how to forgive yourself after a binge](https://mindfulness.allwomenstalk.com/ways-to-deal-with-binge-eating-that-dont-include-dieting/)
+- [tumblr diet plan](https://diet.allwomenstalk.com/tips-for-women-learning-how-to-meal-plan/)
+- [7 Easy Ways to Cut 500 Calories out of Your Diet ....](https://weightloss.allwomenstalk.com/easy-ways-to-cut-500-calories-out-of-your-diet/)
+- [nutrition for improved recovery](https://fitness.allwomenstalk.com/things-to-keep-in-mind-regarding-recovery-nutrition/)
+- [7 Sure Tricks to Beating the Sugar Habit ...](https://diet.allwomenstalk.com/sure-tricks-to-beating-the-sugar-habit/)
+- [7 Ways to Break the Snacking Habit before It Kills...](https://diet.allwomenstalk.com/ways-to-break-the-snacking-habit-before-it-kills-your-diet/)
+- [7 Tips for Vegan Athletes for Maximum Performance ...](https://eatial.com/tips-for-vegan-athletes-for-maximum-performance/)
+- [7 Foods to Fight Sugar Addiction for a Healthier Y...](https://vityle.com/foods-that-fight-sugar-addiction-in-the-body/)
+- [7 Foolproof Tips That Will Help You Cut Portions a...](https://diet.allwomenstalk.com/foolproof-tips-that-will-help-you-cut-portions-and-feel-full/)
 - [7 Tips to Get Your Kids Eating Healthy ...](https://parenting.allwomenstalk.com/7-tips-to-get-your-kids-eating-healthy/)
 - [7 Ways to Increase Protein Intake ...](https://diet.allwomenstalk.com/7-ways-to-increase-protein-intake/)
 

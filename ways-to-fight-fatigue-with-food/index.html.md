@@ -47,16 +47,16 @@ Of course, if your symptoms are extreme and changes to your diet do not make any
 
 ## Related Posts
 
-- [new year health tips](https://health.allwomenstalk.com/health-tips-for-the-new-year/)
-- [9 Diet Choices to Make if You Suffer from High Blo...](https://food.allwomenstalk.com/diet-choices-to-make-if-you-suffer-high-blood-pressure/)
-- [7 Tips for Cooking Healthier in the New Year ...](https://food.allwomenstalk.com/tips-for-cooking-healthier-in-the-new-year/)
-- [7 Simple Ways to Reboot Your Eating Habits for a H...](https://health.allwomenstalk.com/simple-ways-to-reboot-your-eating-habits-for-a-healthier-you/)
 - [7 Ways to Enjoy Chocolate without Blowing Your Cal...](https://diet.allwomenstalk.com/ways-to-enjoy-chocolate-without-blowing-your-calories-for-the-day/)
-- [eating at a wedding...](https://food.allwomenstalk.com/tips-on-eating-healthy-at-weddings-that-work/)
-- [7 Ways to Eat Healthy when You Are Too Tired to Co...](https://health.allwomenstalk.com/ways-to-eat-healthy-when-your-are-too-tired-to-cook/)
 - [7 Important Reasons to Improve Your Diet and Eatin...](https://diet.allwomenstalk.com/important-reasons-to-improve-your-diet-and-eating-habits/)
+- [7 Simple Ways to Reboot Your Eating Habits for a H...](https://health.allwomenstalk.com/simple-ways-to-reboot-your-eating-habits-for-a-healthier-you/)
+- [7 Tips for Cooking Healthier in the New Year ...](https://food.allwomenstalk.com/tips-for-cooking-healthier-in-the-new-year/)
+- [9 Diet Choices to Make if You Suffer from High Blo...](https://food.allwomenstalk.com/diet-choices-to-make-if-you-suffer-high-blood-pressure/)
 - [avoiding negativity](https://diet.allwomenstalk.com/tips-for-avoiding-negativity-from-your-friends-about-your-diet/)
+- [new year health tips](https://health.allwomenstalk.com/health-tips-for-the-new-year/)
+- [7 Ways to Eat Healthy when You Are Too Tired to Co...](https://health.allwomenstalk.com/ways-to-eat-healthy-when-your-are-too-tired-to-cook/)
 - [11 Ways to Know if Your Diet is Healthy or Not ...](https://diet.allwomenstalk.com/ways-to-know-if-your-diet-is-healthy-or-not/)
+- [eating at a wedding...](https://food.allwomenstalk.com/tips-on-eating-healthy-at-weddings-that-work/)
 - [6 Tips on Beating Stress with Food ...](https://allwomenstalk.com/tips-to-beat-stress-with-food/)
 - [7 Steps to Fight Your Cravings ...](https://allwomenstalk.com/7-steps-to-fight-your-cravings/)
 

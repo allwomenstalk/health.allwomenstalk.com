@@ -56,16 +56,16 @@ My sister actually hand picked and presented me an assortment of teas for my las
 
 ## Related Posts
 
-- [yard work as exercise](https://health.allwomenstalk.com/health-benefits-of-doing-yard-work/)
-- [elaichi benefits for female](https://food.allwomenstalk.com/sweet-benefits-of-using-cardamom-in-your-foods/)
-- [muller kefir smoothie](https://food.allwomenstalk.com/benefits-of-using-kefir-in-your-smoothies/)
-- [camu camu extract benefits](https://food.allwomenstalk.com/amazing-benefits-of-camu-camu-that-you-should-know/)
-- [chromium vitamins benefits](https://health.allwomenstalk.com/reasons-to-use-chromium-as-a-supplement/)
-- [yoghurt for digestion](https://food.allwomenstalk.com/reasons-kefir-is-better-than-yogurt-sometimes/)
 - [why do i need music all the time](https://music.allwomenstalk.com/amazing-benefits-of-listening-to-music-everyday/)
-- [seeds for healthy skin](https://beauty.allwomenstalk.com/skin-benefits-of-chia-seeds-to-help-you-look-your-best/)
+- [chromium vitamins benefits](https://health.allwomenstalk.com/reasons-to-use-chromium-as-a-supplement/)
 - [minerals for healthy bones](https://health.allwomenstalk.com/essential-vitamins-and-minerals-for-healthy-bones/)
+- [muller kefir smoothie](https://food.allwomenstalk.com/benefits-of-using-kefir-in-your-smoothies/)
+- [yoghurt for digestion](https://food.allwomenstalk.com/reasons-kefir-is-better-than-yogurt-sometimes/)
+- [seeds for healthy skin](https://beauty.allwomenstalk.com/skin-benefits-of-chia-seeds-to-help-you-look-your-best/)
+- [camu camu extract benefits](https://food.allwomenstalk.com/amazing-benefits-of-camu-camu-that-you-should-know/)
 - [cacao nibs caffeine](https://food.allwomenstalk.com/reasons-to-use-cacao-nibs-in-your-next-recipe/)
+- [elaichi benefits for female](https://food.allwomenstalk.com/sweet-benefits-of-using-cardamom-in-your-foods/)
+- [yard work as exercise](https://health.allwomenstalk.com/health-benefits-of-doing-yard-work/)
 - [5 Great Herbs for Teas ...](https://gardening.allwomenstalk.com/great-herbs-for-teas/)
 - [7 Incredibly Healthy Herbal Teas ...](https://health.allwomenstalk.com/incredibly-healthy-herbal-teas/)
 

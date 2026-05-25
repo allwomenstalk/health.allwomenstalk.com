@@ -86,16 +86,16 @@ Positive affirmations are what you make them; this is only a short list of the m
 
 ## Related Posts
 
+- [how to spread happiness](https://inspiration.allwomenstalk.com/easy-ways-to-spread-happiness/)
+- [manifest destiny where your dreams are reality](https://health.allwomenstalk.com/ways-to-manifest-your-destiny/)
+- [things you should do everyday](https://lifestyle.allwomenstalk.com/things-you-should-do-everyday/)
+- [how to start over in life at 20](https://lifestyle.allwomenstalk.com/ways-to-start-your-20s-off-right/)
+- [how to save a life meaning](https://inspiration.allwomenstalk.com/ways-to-save-a-life/)
 - [lucy pinder topless](https://inspiration.allwomenstalk.com/ways-to-look-on-the-bright-side/)
 - [how to stick to new year resolutions](https://lifestyle.allwomenstalk.com/tips-on-how-to-stick-to-your-new-years-resolutions/)
-- [things you should do everyday](https://lifestyle.allwomenstalk.com/things-you-should-do-everyday/)
-- [how to spread happiness](https://inspiration.allwomenstalk.com/easy-ways-to-spread-happiness/)
-- [how to start over in life at 20](https://lifestyle.allwomenstalk.com/ways-to-start-your-20s-off-right/)
-- [live without regret](https://lifestyle.allwomenstalk.com/ways-to-live-life-without-regrets/)
 - [how do you enjoy life](https://lifestyle.allwomenstalk.com/ways-to-enjoy-life-to-the-fullest/)
-- [how to save a life meaning](https://inspiration.allwomenstalk.com/ways-to-save-a-life/)
-- [manifest destiny where your dreams are reality](https://health.allwomenstalk.com/ways-to-manifest-your-destiny/)
 - [awesome and amazing difference](https://lifestyle.allwomenstalk.com/ways-to-feel-awesome-everyday/)
+- [live without regret](https://lifestyle.allwomenstalk.com/ways-to-live-life-without-regrets/)
 - [27 Positive Self-Affirmations for 11 Aspects of Li...](https://allwomenstalk.com/27-positive-self-affirmations-for-11-aspects-of-life/)
 - [9 Ways to Be More Positive ...](https://allwomenstalk.com/ways-to-be-more-positive/)
 

@@ -56,16 +56,16 @@ Sometimes the only way you can replenish your energy and health is by detoxifyin
 
 ## Related Posts
 
-- [arctic splash iced tea](https://food.allwomenstalk.com/delectable-iced-tea-recipes-to-quench-your-thirst/)
 - [pink tropical drink](https://food.allwomenstalk.com/pink-cocktails-to-add-color-to-your-next-party/)
-- [milk alternatives with calcium](https://food.allwomenstalk.com/milk-substitutes-you-should-try-today/)
+- [arctic splash iced tea](https://food.allwomenstalk.com/delectable-iced-tea-recipes-to-quench-your-thirst/)
 - [cube of ice](https://food.allwomenstalk.com/types-of-ice-cubes-to-keep-your-drinks-ice-cold/)
 - [oldest soda brand](https://food.allwomenstalk.com/scrumptious-homegrown-soda-brands-to-indulge-in/)
-- [healthy cool drinks](https://food.allwomenstalk.com/refreshing-healthy-drinks-to-keep-you-cool-for-the-summer/)
 - [ice for ingrown hair](https://food.allwomenstalk.com/delicious-ways-to-make-a-skinny-shake/)
-- [is 7 beers a lot](https://food.allwomenstalk.com/new-england-craft-beers-you-have-to-try/)
-- [calories for lemonade](https://food.allwomenstalk.com/ways-to-make-a-low-calorie-lemonade/)
 - [england national drink](https://food.allwomenstalk.com/national-drinks-to-toast-the-world-cup/)
+- [milk alternatives with calcium](https://food.allwomenstalk.com/milk-substitutes-you-should-try-today/)
+- [calories for lemonade](https://food.allwomenstalk.com/ways-to-make-a-low-calorie-lemonade/)
+- [is 7 beers a lot](https://food.allwomenstalk.com/new-england-craft-beers-you-have-to-try/)
+- [healthy cool drinks](https://food.allwomenstalk.com/refreshing-healthy-drinks-to-keep-you-cool-for-the-summer/)
 - [3 Most Effective Healthy Ways to Detox Your Body ....](https://allwomenstalk.com/3-most-effective-healthy-ways-to-detox-your-body/)
 - [8 Foods That Detox the Body Naturally ...](https://allwomenstalk.com/foods-that-detox-the-body-naturally/)
 

@@ -74,16 +74,16 @@ Top Photo Credit: [leslieworms](https://www.flickr.com/photos/86448061@N00/29186
 
 ## Related Posts
 
-- [facts about myth](https://lifestyle.allwomenstalk.com/interesting-facts-about-mythology/)
-- [physical geography facts](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
-- [Five Things You Didnt Know about Us](https://allwomenstalk.com/five-things-you-didnt-know-about-us/)
-- [7 Facts about Coffee ...](https://lifestyle.allwomenstalk.com/7-facts-about-coffee/)
-- [cool and interesting facts about diamonds](https://jewelry.allwomenstalk.com/unique-facts-about-diamonds-you-did-not-know/)
-- [pawn shop 9 mile](https://lifestyle.allwomenstalk.com/9-things-you-might-not-know-about-pawn-shops/)
 - [harry potter book facts you didnt know](https://lifestyle.allwomenstalk.com/fun-harry-potter-facts-you-didnt-know/)
-- [brad pitt fun facts](https://allwomenstalk.com/10-things-you-didnt-know-about-brad-pitt/)
-- [facts about 911 you didnt know](https://lifestyle.allwomenstalk.com/interesting-facts-about-911/)
 - [winter solstice fun facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-the-yule-holiday/)
+- [facts about 911 you didnt know](https://lifestyle.allwomenstalk.com/interesting-facts-about-911/)
+- [brad pitt fun facts](https://allwomenstalk.com/10-things-you-didnt-know-about-brad-pitt/)
+- [cool and interesting facts about diamonds](https://jewelry.allwomenstalk.com/unique-facts-about-diamonds-you-did-not-know/)
+- [facts about myth](https://lifestyle.allwomenstalk.com/interesting-facts-about-mythology/)
+- [7 Facts about Coffee ...](https://lifestyle.allwomenstalk.com/7-facts-about-coffee/)
+- [pawn shop 9 mile](https://lifestyle.allwomenstalk.com/9-things-you-might-not-know-about-pawn-shops/)
+- [Five Things You Didnt Know about Us](https://allwomenstalk.com/five-things-you-didnt-know-about-us/)
+- [physical geography facts](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
 - [5 Things You Should Know about Vampires ...](https://twilight.allwomenstalk.com/5-things-you-should-know-about-vampires/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 

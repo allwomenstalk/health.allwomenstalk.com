@@ -51,16 +51,16 @@ Using these healthy ways to get energy instead of turning to energy drinks or co
 
 ## Related Posts
 
-- [how to stick to healthy eating](https://weightloss.allwomenstalk.com/ways-to-stick-to-a-healthy-eating-plan/)
-- [healthy food app](https://diet.allwomenstalk.com/apps-for-healthy-eating/)
-- [how to have healthy relationship with food](https://food.allwomenstalk.com/healthy-rules-to-make-you-love-food/)
-- [how to start eating clean](https://health.allwomenstalk.com/ways-to-start-eating-clean/)
 - [how to sneak veggies into meals for picky eaters](https://food.allwomenstalk.com/ways-to-sneak-veggies-into-your-picky-eaters-meals/)
-- [fast food cravings](https://food.allwomenstalk.com/ways-to-fight-fast-food-cravings/)
-- [are goldfish bad for weight loss](https://food.allwomenstalk.com/ways-to-avoid-late-night-snacking/)
+- [healthy food app](https://diet.allwomenstalk.com/apps-for-healthy-eating/)
 - [nutrition savvy](https://health.allwomenstalk.com/ways-to-become-nutrition-savvy/)
+- [are goldfish bad for weight loss](https://food.allwomenstalk.com/ways-to-avoid-late-night-snacking/)
+- [how to stick to healthy eating](https://weightloss.allwomenstalk.com/ways-to-stick-to-a-healthy-eating-plan/)
 - [avocado ways to eat](https://food.allwomenstalk.com/mouth-watering-ways-to-eat-avocado/)
 - [eat body](https://diet.allwomenstalk.com/ways-to-eat-for-the-body-you-want/)
+- [fast food cravings](https://food.allwomenstalk.com/ways-to-fight-fast-food-cravings/)
+- [how to start eating clean](https://health.allwomenstalk.com/ways-to-start-eating-clean/)
+- [how to have healthy relationship with food](https://food.allwomenstalk.com/healthy-rules-to-make-you-love-food/)
 - [7 Foods That Give You Energy ...](https://food.allwomenstalk.com/foods-that-give-you-energy/)
 - [7 All-Natural Snacks to Boost Your Energy Levels ....](https://health.allwomenstalk.com/7-all-natural-snacks-to-boost-your-energy-levels/)
 

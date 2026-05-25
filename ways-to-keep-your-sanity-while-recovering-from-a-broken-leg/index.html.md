@@ -42,15 +42,15 @@ I would love to hear other people's experience in a cast. How did you manage to 
 
 ## Related Posts
 
-- [7 Ways to Wind down after Finals ...](https://lifestyle.allwomenstalk.com/ways-to-wind-down-after-finals/)
 - [ways to fight depression](https://health.allwomenstalk.com/ways-to-fight-depression-naturally/)
-- [cure boredom](https://lifestyle.allwomenstalk.com/simple-ways-to-cure-your-boredom-and-make-your-day-exciting-again/)
 - [at ease uncomfortable](https://lifestyle.allwomenstalk.com/things-you-can-do-to-ease-uncomfortable-situations/)
-- [mantras to stop binge eating](https://inspiration.allwomenstalk.com/positive-mantras-to-overcome-stress-that-work-like-a-charm/)
-- [a case of the mondays](https://inspiration.allwomenstalk.com/tips-on-how-to-cure-a-case-of-the-mondays/)
-- [de stressing after work](https://lifestyle.allwomenstalk.com/ways-to-de-stress-after-work/)
+- [cure boredom](https://lifestyle.allwomenstalk.com/simple-ways-to-cure-your-boredom-and-make-your-day-exciting-again/)
 - [how to beat monday morning blues](https://lifestyle.allwomenstalk.com/ways-to-beat-the-monday-blues/)
+- [de stressing after work](https://lifestyle.allwomenstalk.com/ways-to-de-stress-after-work/)
+- [7 Ways to Wind down after Finals ...](https://lifestyle.allwomenstalk.com/ways-to-wind-down-after-finals/)
+- [a case of the mondays](https://inspiration.allwomenstalk.com/tips-on-how-to-cure-a-case-of-the-mondays/)
 - [dale carnegie anxiety](https://inspiration.allwomenstalk.com/ways-to-stop-worrying-based-on-dale-carnegies-top-tips/)
+- [mantras to stop binge eating](https://inspiration.allwomenstalk.com/positive-mantras-to-overcome-stress-that-work-like-a-charm/)
 - [natural way to calm nerves](https://health.allwomenstalk.com/natural-and-easy-ways-to-calm-your-nerves/)
 - [7 Ways to Move past a Breakup ...](https://love.allwomenstalk.com/ways-to-move-past-a-breakup/)
 - [7 Ways to Feel Better ...](https://health.allwomenstalk.com/ways-to-feel-better/)

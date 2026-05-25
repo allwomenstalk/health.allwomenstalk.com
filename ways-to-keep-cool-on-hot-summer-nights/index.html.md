@@ -58,16 +58,16 @@ If you’ve been frustrated by being unable to sleep when the temperature soars,
 
 ## Related Posts
 
-- [free things to do on staten island](https://travel.allwomenstalk.com/make-your-holiday-dollar-go-further-the-best-free-things-to-do-in-summer-in-new-york/)
-- [san francisco free things to do](https://travel.allwomenstalk.com/best-free-things-to-do-in-san-francisco-in-the-summer/)
 - [diy shell decor](https://diy.allwomenstalk.com/shell-crafts-to-do-when-summers-over/)
-- [best time to tan in florida](https://travel.allwomenstalk.com/best-islands-in-florida-for-getting-a-tan-this-summer/)
-- [how to be smarter in school](https://teen.allwomenstalk.com/ways-to-get-smarter-during-summer-break/)
 - [bath and body works land of sweets](https://baking.allwomenstalk.com/sweet-cherry-recipes-to-try-this-summer/)
+- [how to be smarter in school](https://teen.allwomenstalk.com/ways-to-get-smarter-during-summer-break/)
 - [watermelon shaved ice](https://food.allwomenstalk.com/refreshing-ways-to-eat-watermelon-this-summer/)
 - [how to use a food bank](https://food.allwomenstalk.com/easy-tips-for-making-the-most-of-your-summer-produce/)
 - [well your world corn chowder](https://food.allwomenstalk.com/end-of-summer-corn-recipes-that-taste-garden-fresh/)
+- [best time to tan in florida](https://travel.allwomenstalk.com/best-islands-in-florida-for-getting-a-tan-this-summer/)
+- [free things to do on staten island](https://travel.allwomenstalk.com/make-your-holiday-dollar-go-further-the-best-free-things-to-do-in-summer-in-new-york/)
 - [beautiful sandcastles](https://lifestyle.allwomenstalk.com/stunning-sandcastles-to-say-farewell-to-summer/)
+- [san francisco free things to do](https://travel.allwomenstalk.com/best-free-things-to-do-in-san-francisco-in-the-summer/)
 - [5 Garden Tips for Summer ...](https://gardening.allwomenstalk.com/5-garden-tips-for-summer/)
 - [10 Ways to Sleep Better ...](https://health.allwomenstalk.com/ways-to-sleep-better/)
 

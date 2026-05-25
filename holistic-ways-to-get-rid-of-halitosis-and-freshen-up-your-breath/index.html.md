@@ -80,16 +80,16 @@ Have you ever had halitosis? If you have, share any tips that you have!
 
 ## Related Posts
 
-- [9 Natural Remedies for Common Travel Ailments ...](https://travel.allwomenstalk.com/natural-remedies-for-common-travel-ailments/)
-- [7 Plant Remedies That Can Help Keep Your Body Heal...](https://health.allwomenstalk.com/plant-remedies-that-can-help-keep-your-body-healthy/)
-- [9 Herbal Teas the Next Time You Catch a Cold or Ju...](https://health.allwomenstalk.com/herbal-teas-the-next-time-you-catch-a-cold-or-just-feel-a-little-blue/)
-- [7 Ways You Can Help in the Fight against Cancer .....](https://lifestyle.allwomenstalk.com/ways-you-can-help-in-the-fight-against-cancer/)
-- [7 Ways to Fight Pesky Christmas Bloat ...](https://health.allwomenstalk.com/ways-to-fight-pesky-christmas-bloat/)
 - [7 Drug-Free Ways to Control Your Blood Pressure .....](https://health.allwomenstalk.com/drug-free-ways-to-control-your-blood-pressure/)
+- [7 Ways to Fight Pesky Christmas Bloat ...](https://health.allwomenstalk.com/ways-to-fight-pesky-christmas-bloat/)
+- [9 Herbal Teas the Next Time You Catch a Cold or Ju...](https://health.allwomenstalk.com/herbal-teas-the-next-time-you-catch-a-cold-or-just-feel-a-little-blue/)
 - [8 Tips for Treating Yourself to a Home Spa ...](https://health.allwomenstalk.com/tips-for-treating-yourself-to-a-home-spa/)
-- [9 Ways to Embrace Natures Healing Powers ...](https://health.allwomenstalk.com/ways-to-embrace-natures-healing-powers/)
+- [7 Plant Remedies That Can Help Keep Your Body Heal...](https://health.allwomenstalk.com/plant-remedies-that-can-help-keep-your-body-healthy/)
 - [7 Incredible Uses for Witch Hazel You Havent Tried...](https://health.allwomenstalk.com/incredible-uses-for-witch-hazel-you-havent-tried/)
+- [7 Ways You Can Help in the Fight against Cancer .....](https://lifestyle.allwomenstalk.com/ways-you-can-help-in-the-fight-against-cancer/)
+- [9 Natural Remedies for Common Travel Ailments ...](https://travel.allwomenstalk.com/natural-remedies-for-common-travel-ailments/)
 - [11 Ways to Reduce Toxins in All Aspects of Your Li...](https://health.allwomenstalk.com/ways-to-reduce-toxins-in-all-aspects-of-your-life/)
+- [9 Ways to Embrace Natures Healing Powers ...](https://health.allwomenstalk.com/ways-to-embrace-natures-healing-powers/)
 - [5 Tips for Whiter Teeth ...](https://allwomenstalk.com/5-tips-for-whiter-teeth/)
 - [Top 13 Bad Breath Treatments ...](https://allwomenstalk.com/top-13-bad-breath-treatments/)
 

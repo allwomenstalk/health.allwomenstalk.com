@@ -42,16 +42,16 @@ Calling exam week hard is an understatement. It causes a lot of anxiety and stre
 
 ## Related Posts
 
-- [11 Steps to Rid Yourself of Social Anxiety ...](https://health.allwomenstalk.com/steps-to-rid-yourself-of-social-anxiety/)
 - [life changing stressors](https://inspiration.allwomenstalk.com/life-changing-ways-to-deal-with-stress/)
 - [7 Effective Ways to Handle Stressful Family Situat...](https://lifestyle.allwomenstalk.com/effective-ways-to-handle-stressful-family-situations-at-home/)
-- [7 Ways to Deal with Stress from School ...](https://lifestyle.allwomenstalk.com/ways-to-deal-with-stress-from-school/)
-- [7 Ways to Deal with Nerves for Any Occasion ...](https://health.allwomenstalk.com/ways-to-deal-with-nerves-for-any-occasion/)
-- [7 Calming Methods to Deal with Social Anxiety ...](https://health.allwomenstalk.com/calming-methods-to-deal-with-social-anxiety/)
-- [stop feeling lonely](https://lifestyle.allwomenstalk.com/ways-to-stop-feeling-so-lonely/)
 - [7 Wonderful and Effective Tips on How to Overcome ...](https://inspiration.allwomenstalk.com/wonderful-and-effective-tips-on-how-to-overcome-negative-thoughts/)
-- [7 Ways to Be Happy Being Alone ...](https://love.allwomenstalk.com/ways-to-be-happy-being-alone-2/)
+- [stop feeling lonely](https://lifestyle.allwomenstalk.com/ways-to-stop-feeling-so-lonely/)
+- [7 Ways to Deal with Nerves for Any Occasion ...](https://health.allwomenstalk.com/ways-to-deal-with-nerves-for-any-occasion/)
 - [step away from the phone](https://lifestyle.allwomenstalk.com/ways-to-step-back-from-over-using-your-smartphone/)
+- [7 Ways to Deal with Stress from School ...](https://lifestyle.allwomenstalk.com/ways-to-deal-with-stress-from-school/)
+- [7 Ways to Be Happy Being Alone ...](https://love.allwomenstalk.com/ways-to-be-happy-being-alone-2/)
+- [7 Calming Methods to Deal with Social Anxiety ...](https://health.allwomenstalk.com/calming-methods-to-deal-with-social-anxiety/)
+- [11 Steps to Rid Yourself of Social Anxiety ...](https://health.allwomenstalk.com/steps-to-rid-yourself-of-social-anxiety/)
 - [7 Ways to Be More Confident ...](https://health.allwomenstalk.com/ways-to-be-more-confident/)
 - [7 Ways to Improve Your Confidence ...](https://allwomenstalk.com/7-ways-to-improve-your-confidence/)
 

@@ -44,16 +44,16 @@ As you can see, I'm a big fan of the hemp plant and all it has to offer. Is anyo
 
 ## Related Posts
 
-- [healthy meals from restaurants](https://food.allwomenstalk.com/healthy-meals-to-order-at-restaurants/)
-- [healthy snacks to pack for lunch](https://food.allwomenstalk.com/healthy-snacks-to-pack-in-your-lunch/)
-- [best fruits for snacking](https://health.allwomenstalk.com/the-top-fruits-you-should-be-snacking-on-for-better-health/)
-- [sushi andamar](https://food.allwomenstalk.com/tempting-bowls-of-oatmeal-to-start-your-morning-right/)
-- [food for a dorm room](https://food.allwomenstalk.com/essential-items-for-your-dorm-room-food-store/)
-- [foods to have on hand](https://food.allwomenstalk.com/healthy-foods-to-have-on-hand-if-you-are-a-busy-person/)
 - [alternatives to spaghetti](https://food.allwomenstalk.com/healthy-alternatives-to-spaghetti-to-try/)
+- [healthy meals from restaurants](https://food.allwomenstalk.com/healthy-meals-to-order-at-restaurants/)
+- [foods to have on hand](https://food.allwomenstalk.com/healthy-foods-to-have-on-hand-if-you-are-a-busy-person/)
+- [food for a dorm room](https://food.allwomenstalk.com/essential-items-for-your-dorm-room-food-store/)
+- [healthy snacks to pack for lunch](https://food.allwomenstalk.com/healthy-snacks-to-pack-in-your-lunch/)
 - [best fast food for vegetarians](https://food.allwomenstalk.com/healthy-vegetarian-fast-food-options/)
-- [egos fruit](https://food.allwomenstalk.com/nutrient-rich-foods-to-indulge-in-this-fall/)
 - [tomato minerals](https://food.allwomenstalk.com/important-nutrients-in-tomatoes/)
+- [sushi andamar](https://food.allwomenstalk.com/tempting-bowls-of-oatmeal-to-start-your-morning-right/)
+- [best fruits for snacking](https://health.allwomenstalk.com/the-top-fruits-you-should-be-snacking-on-for-better-health/)
+- [egos fruit](https://food.allwomenstalk.com/nutrient-rich-foods-to-indulge-in-this-fall/)
 - [Can Hemp Be a Cure for Endometriosis and Other Rep...](https://allwomenstalk.com/hemp-cure-for-endometriosis/)
 - [Suck It up Get Instant Chocolate Milk from a Straw...](https://allwomenstalk.com/suck-it-up-get-instant-chocolate-milk-from-a-straw/)
 

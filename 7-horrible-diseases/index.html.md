@@ -46,15 +46,15 @@ Top Photo Credit: [Norse_Graphics](https://www.flickr.com/photos/norse_graphics/
 
 ## Related Posts
 
-- [6 Incredibly Important Health Issues You Must Know...](https://health.allwomenstalk.com/incredibly-important-health-issues-you-must-know-about/)
-- [most important womens vitamins](https://health.allwomenstalk.com/highly-important-vitamins-for-women/)
 - [7 Prescription Drugs with Strange Side Effects ...](https://health.allwomenstalk.com/prescription-drugs-with-strange-side-effects/)
+- [6 Incredibly Important Health Issues You Must Know...](https://health.allwomenstalk.com/incredibly-important-health-issues-you-must-know-about/)
+- [8 Things to Know about Antioxidants ...](https://health.allwomenstalk.com/8-things-to-know-about-antioxidants/)
+- [most important womens vitamins](https://health.allwomenstalk.com/highly-important-vitamins-for-women/)
+- [7 Essential Points for Contact Lens Wearers ...](https://health.allwomenstalk.com/essential-points-for-contact-lens-wearers/)
+- [7 Pertinent Laser Eye Surgery Points to Consider ....](https://health.allwomenstalk.com/pertinent-laser-eye-surgery-points-to-consider/)
+- [10 Reasons to Get Regular Checkups ...](https://health.allwomenstalk.com/10-reasons-to-get-regular-checkups/)
 - [7 Unusual Medical Disorders ...](https://health.allwomenstalk.com/unusual-medical-disorders/)
 - [7 Tips for Coping with Long-Term Health Conditions...](https://health.allwomenstalk.com/7-tips-for-coping-with-long-term-health-conditions/)
-- [8 Things to Know about Antioxidants ...](https://health.allwomenstalk.com/8-things-to-know-about-antioxidants/)
-- [10 Reasons to Get Regular Checkups ...](https://health.allwomenstalk.com/10-reasons-to-get-regular-checkups/)
-- [7 Pertinent Laser Eye Surgery Points to Consider ....](https://health.allwomenstalk.com/pertinent-laser-eye-surgery-points-to-consider/)
-- [7 Essential Points for Contact Lens Wearers ...](https://health.allwomenstalk.com/essential-points-for-contact-lens-wearers/)
 - [7 Helpful Hints for Dealing with Medical Condition...](https://health.allwomenstalk.com/helpful-hints-for-dealing-with-medical-conditions/)
 - [Top 7 Scary Creatures](https://paranormal.allwomenstalk.com/top-7-scary-creatures/)
 - [7 Terrible Man-Made Disasters ...](https://allwomenstalk.com/7-worst-man-made-disasters/)

@@ -58,16 +58,16 @@ Top Photo Credit: [weheartit.com](https://weheartit.com/entry/5126401)
 
 ## Related Posts
 
-- [uses of coffee mug](https://lifestyle.allwomenstalk.com/uses-of-a-coffee-mug/)
 - [Warm up with Some Frozzzen Hot Chocolate.](https://allwomenstalk.com/warm-up-with-some-frozzzen-hot-chocolate-2/)
-- [Drinks up ...](https://allwomenstalk.com/drinks-up/)
+- [makers mark holiday cocktails](https://lifestyle.allwomenstalk.com/holiday-cocktails-that-will-keep-you-cozy/)
+- [One Cup to 12 Cup Coffee Solution by Back to Basic...](https://allwomenstalk.com/one-cup-to-12-cup-coffee-solution-by-back-to-basics/)
 - [girls night cocktails](https://lifestyle.allwomenstalk.com/best-cocktails-for-girls-night-out/)
+- [uses of coffee mug](https://lifestyle.allwomenstalk.com/uses-of-a-coffee-mug/)
+- [Drinks up ...](https://allwomenstalk.com/drinks-up/)
+- [couples oasis](https://lifestyle.allwomenstalk.com/ways-inward-oasis-helps-couples-find-their-blended-spirit/)
+- [7 Incredibly Healthy Herbal Teas ...](https://health.allwomenstalk.com/incredibly-healthy-herbal-teas/)
 - [Drinking Coffee Elsewhere  Folgers Gourmet Blends ...](https://allwomenstalk.com/drinking-coffee-elsewhere-folgers-gourmet-blends-so-what/)
 - [healthiest green teas](https://lifestyle.allwomenstalk.com/great-and-amazingly-healthy-green-teas-i-love/)
-- [One Cup to 12 Cup Coffee Solution by Back to Basic...](https://allwomenstalk.com/one-cup-to-12-cup-coffee-solution-by-back-to-basics/)
-- [7 Incredibly Healthy Herbal Teas ...](https://health.allwomenstalk.com/incredibly-healthy-herbal-teas/)
-- [couples oasis](https://lifestyle.allwomenstalk.com/ways-inward-oasis-helps-couples-find-their-blended-spirit/)
-- [makers mark holiday cocktails](https://lifestyle.allwomenstalk.com/holiday-cocktails-that-will-keep-you-cozy/)
 - [7 Unbelievably Simple but Highly Effective Tips on...](https://beauty.allwomenstalk.com/unbelievably-simple-but-highly-effective-tips-on-how-to-be-party-ready-in-a-flash/)
 - [7 Sure Ways to Have Fun without Drinking ...](https://allwomenstalk.com/8-sure-ways-to-have-fun-without-drinking/)
 

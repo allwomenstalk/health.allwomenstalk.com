@@ -44,16 +44,16 @@ These are all things that I found helpful when recovering from an eating disorde
 
 ## Related Posts
 
-- [tips for eating dairy](https://diet.allwomenstalk.com/smart-tips-for-eating-dairy-if-youre-on-a-diet/)
-- [sushi bloating](https://food.allwomenstalk.com/ways-to-make-sushi-healthier/)
-- [7 Ways to Avoid Unwanted Calories Daily ...](https://diet.allwomenstalk.com/ways-to-avoid-unwanted-calories-daily/)
-- [Little Yet Smart Ways to Reduce Bloating after Eac...](https://diet.allwomenstalk.com/smart-little-ways-to-reduce-bloating-after-each-meal/)
-- [7 Ways to Improve Your Bone Health ...](https://health.allwomenstalk.com/ways-to-improve-your-bone-health/)
 - [7 Smart Ways to Maximize Your Calories Each and Ev...](https://diet.allwomenstalk.com/smart-ways-to-maximize-your-calories-each-and-every-day/)
-- [7 Simple Strategies to Make Changes to Your Diet ....](https://diet.allwomenstalk.com/simple-strategies-to-make-changes-to-your-diet/)
+- [Little Yet Smart Ways to Reduce Bloating after Eac...](https://diet.allwomenstalk.com/smart-little-ways-to-reduce-bloating-after-each-meal/)
 - [sneak eating](https://diet.allwomenstalk.com/ways-to-sneak-in-healthy-eating/)
+- [7 Simple Strategies to Make Changes to Your Diet ....](https://diet.allwomenstalk.com/simple-strategies-to-make-changes-to-your-diet/)
 - [7 Tips for Success when Eating out on a Diet ...](https://diet.allwomenstalk.com/tips-for-success-when-eating-out-on-a-diet/)
+- [tips for eating dairy](https://diet.allwomenstalk.com/smart-tips-for-eating-dairy-if-youre-on-a-diet/)
+- [7 Ways to Avoid Unwanted Calories Daily ...](https://diet.allwomenstalk.com/ways-to-avoid-unwanted-calories-daily/)
+- [7 Ways to Improve Your Bone Health ...](https://health.allwomenstalk.com/ways-to-improve-your-bone-health/)
 - [7 Ways Fitness Can Make You Eat Healthier ...](https://fitness.allwomenstalk.com/ways-fitness-can-make-you-eat-healthier/)
+- [sushi bloating](https://food.allwomenstalk.com/ways-to-make-sushi-healthier/)
 - [7 Ways to Repair Your Relationship with Food ...](https://diet.allwomenstalk.com/ways-to-repair-your-relationship-with-food/)
 - [10 Ways to Beat Dysfunctional Eating Habits ...](https://diet.allwomenstalk.com/ways-to-beat-dysfunctional-eating-habits/)
 

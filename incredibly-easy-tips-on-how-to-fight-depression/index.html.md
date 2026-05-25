@@ -50,14 +50,14 @@ Sadly, now days depression is one of the most frequent affective disorders and t
 
 ## Related Posts
 
-- [7 Ways to Tame Your Anxiety That Dont Involve Medi...](https://vityle.com/ways-to-tame-your-anxiety-that-dont-involve-medication/)
 - [7 Helpful Tips on How to Decrease Your Anxiety ...](https://health.allwomenstalk.com/helpful-tips-on-how-to-decrease-your-anxiety/)
-- [8 STRESS BUSTERS to HELP YOU RECLAIM BALANCE ...](https://mindfulness.allwomenstalk.com/stress-busters-to-help-you-reclaim-balance/)
-- [11 Easy and Effective Ways to Deal with Anger ...](https://health.allwomenstalk.com/easy-and-effective-ways-to-deal-with-anger/)
-- [7 Easy Ways to Improve Your Mood ...](https://inspiration.allwomenstalk.com/easy-ways-to-improve-your-mood/)
 - [7 Ways to Handle Stress and Remain Calm Always ...](https://mindfulness.allwomenstalk.com/ways-to-handle-stress-and-remain-calm-always/)
-- [7 Effective Ways to Ease Headaches and Move on wit...](https://health.allwomenstalk.com/effective-ways-to-ease-headaches-and-move-on-with-your-day/)
+- [8 STRESS BUSTERS to HELP YOU RECLAIM BALANCE ...](https://mindfulness.allwomenstalk.com/stress-busters-to-help-you-reclaim-balance/)
+- [7 Easy Ways to Improve Your Mood ...](https://inspiration.allwomenstalk.com/easy-ways-to-improve-your-mood/)
 - [7 Sure-Fire Ways to Shake up Your Chakras ...](https://health.allwomenstalk.com/sure-fire-ways-to-shake-up-your-chakras/)
+- [7 Effective Ways to Ease Headaches and Move on wit...](https://health.allwomenstalk.com/effective-ways-to-ease-headaches-and-move-on-with-your-day/)
+- [11 Easy and Effective Ways to Deal with Anger ...](https://health.allwomenstalk.com/easy-and-effective-ways-to-deal-with-anger/)
+- [7 Ways to Tame Your Anxiety That Dont Involve Medi...](https://vityle.com/ways-to-tame-your-anxiety-that-dont-involve-medication/)
 - [paris riche stylo smoky timeless blue spark](https://lifestyle.allwomenstalk.com/ways-to-deal-with-your-emotions-by-writing/)
 - [9 anti-stress Products to Help You Unwind after a ...](https://health.allwomenstalk.com/anti-stress-products-to-help-you-unwind-after-a-stressful-day/)
 - [9 Ways to Beat the Winter Blues ...](https://lifestyle.allwomenstalk.com/ways-to-beat-the-winter-blues/)

@@ -39,16 +39,16 @@ Combine kale, dandelion greens, sweet potatoes, quinoa, and garlic. Cook on high
 
 ## Related Posts
 
-- [healthy food for women](https://food.allwomenstalk.com/healthy-foods-every-woman-should-eat/)
-- [women health food](https://diet.allwomenstalk.com/best-foods-for-womens-health/)
-- [does horlicks stain teeth](https://beauty.allwomenstalk.com/the-worst-foods-for-staining-your-teeth/)
-- [anxiety relief food](https://food.allwomenstalk.com/foods-that-reduce-anxiety/)
-- [fitness breas](https://diet.allwomenstalk.com/what-is-fitness-bread/)
-- [healthiest spreads for toast](https://food.allwomenstalk.com/healthy-toppings-for-toast/)
-- [foods that are natural appetite suppressants](https://weightloss.allwomenstalk.com/foods-that-are-the-best-natural-appetite-suppressants/)
 - [banana flower how to eat](https://food.allwomenstalk.com/reasons-to-eat-banana-flowers/)
 - [foods with lots of energy](https://food.allwomenstalk.com/foods-to-give-you-energy-all-day/)
 - [clean eating breakfast recipes for weight loss](https://diet.allwomenstalk.com/clean-eating-breakfast-ideas/)
+- [foods that are natural appetite suppressants](https://weightloss.allwomenstalk.com/foods-that-are-the-best-natural-appetite-suppressants/)
+- [anxiety relief food](https://food.allwomenstalk.com/foods-that-reduce-anxiety/)
+- [women health food](https://diet.allwomenstalk.com/best-foods-for-womens-health/)
+- [fitness breas](https://diet.allwomenstalk.com/what-is-fitness-bread/)
+- [healthiest spreads for toast](https://food.allwomenstalk.com/healthy-toppings-for-toast/)
+- [healthy food for women](https://food.allwomenstalk.com/healthy-foods-every-woman-should-eat/)
+- [does horlicks stain teeth](https://beauty.allwomenstalk.com/the-worst-foods-for-staining-your-teeth/)
 - [10 Delicious Detox Smoothies for Health and Beauty...](https://health.allwomenstalk.com/delicious-detox-smoothies-for-health-and-beauty/)
 - [10 Green Smoothie Recipes for a Spring Detox ...](https://diet.allwomenstalk.com/green-smoothie-recipes-for-a-spring-detox/)
 

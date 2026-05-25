@@ -43,15 +43,15 @@ Now that you have tips to go grocery shopping in a healthier way, are you ready 
 ## Related Posts
 
 - [fall into healthy habits](https://health.allwomenstalk.com/healthy-habits-to-get-into-this-fall/)
-- [Top Tips for a Happy Healthy Thanksgiving ...](https://diet.allwomenstalk.com/tips-for-making-thanksgiving-healthy/)
-- [7 Simple Ways to Prevent Food Poisoning ...](https://health.allwomenstalk.com/simple-ways-to-prevent-food-poisoning/)
-- [cut down on calorie intake](https://weightloss.allwomenstalk.com/ways-to-reduce-your-calorie-intake-over-christmas/)
+- [sticking to diet](https://diet.allwomenstalk.com/tips-for-sticking-to-your-diet-this-year/)
 - [How to Avoid Chowing down when Youre Bored ...](https://diet.allwomenstalk.com/tips-on-how-to-avoid-eating-when-you-are-bored/)
-- [How to Prevent Overeating after Working out ...](https://diet.allwomenstalk.com/tips-to-prevent-overeating-after-working-out/)
+- [7 Healthy Meal Ideas to Start off 2019 ...](https://food.allwomenstalk.com/healthy-meal-ideas-to-start-off/)
+- [cut down on calorie intake](https://weightloss.allwomenstalk.com/ways-to-reduce-your-calorie-intake-over-christmas/)
 - [7 Tips for Vegans Going to Christmas Parties ...](https://lifestyle.allwomenstalk.com/tips-for-vegans-going-to-christmas-parties/)
 - [7 Tips on Hosting a Healthy Holiday Party ...](https://health.allwomenstalk.com/tips-on-hosting-a-healthy-holiday-party/)
-- [7 Healthy Meal Ideas to Start off 2019 ...](https://food.allwomenstalk.com/healthy-meal-ideas-to-start-off/)
-- [sticking to diet](https://diet.allwomenstalk.com/tips-for-sticking-to-your-diet-this-year/)
+- [7 Simple Ways to Prevent Food Poisoning ...](https://health.allwomenstalk.com/simple-ways-to-prevent-food-poisoning/)
+- [Top Tips for a Happy Healthy Thanksgiving ...](https://diet.allwomenstalk.com/tips-for-making-thanksgiving-healthy/)
+- [How to Prevent Overeating after Working out ...](https://diet.allwomenstalk.com/tips-to-prevent-overeating-after-working-out/)
 - [8 Healthy Cooking Habits to Follow ...](https://cooking.allwomenstalk.com/8-healthy-cooking-habits-to-follow/)
 - [7 Tips to Maintain Good Health ...](https://health.allwomenstalk.com/tips-to-maintain-good-health/)
 

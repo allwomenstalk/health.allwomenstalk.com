@@ -75,15 +75,15 @@ Follow these tips and your period shouldn't last as long as it usually does. Wha
 ## Related Posts
 
 - [single girl bucket list](https://lifestyle.allwomenstalk.com/a-realistic-bucket-list-for-college-girls/)
-- [ladies big](https://lifestyle.allwomenstalk.com/problems-women-with-big-butts-have/)
+- [clever responses](https://funny.allwomenstalk.com/clever-responses-for-girls-who-dont-want-kids/)
+- [what are a mans obligations in life](https://inspiration.allwomenstalk.com/obligations-every-woman-has/)
+- [things only girls know](https://hair.allwomenstalk.com/things-only-girls-with-curly-hair-can-understand/)
 - [thankful woman](https://inspiration.allwomenstalk.com/things-every-woman-should-be-thankful-for/)
 - [why are girls always tired](https://funny.allwomenstalk.com/things-girls-who-are-always-tired-can-relate-to/)
-- [rest face](https://lifestyle.allwomenstalk.com/moments-every-woman-with-resting-bitch-face-has-experienced/)
 - [what is the cleaning spell in harry potter](https://funny.allwomenstalk.com/modern-harry-potter-spells-that-would-make-a-womans-life-easier/)
-- [what are a mans obligations in life](https://inspiration.allwomenstalk.com/obligations-every-woman-has/)
+- [rest face](https://lifestyle.allwomenstalk.com/moments-every-woman-with-resting-bitch-face-has-experienced/)
 - [how to be a better feminist](https://lifestyle.allwomenstalk.com/want-to-be-a-better-feminist-heres-what-you-need-to-do/)
-- [clever responses](https://funny.allwomenstalk.com/clever-responses-for-girls-who-dont-want-kids/)
-- [things only girls know](https://hair.allwomenstalk.com/things-only-girls-with-curly-hair-can-understand/)
+- [ladies big](https://lifestyle.allwomenstalk.com/problems-women-with-big-butts-have/)
 - [Easy Ways for Busy Girls to Find Time for the Thin...](https://inspiration.allwomenstalk.com/ways-to-make-time-for-your-passion/)
 - [Sly Tricks for Keeping Your Period a Secret ...](https://health.allwomenstalk.com/ways-to-keep-your-period-a-secret/)
 

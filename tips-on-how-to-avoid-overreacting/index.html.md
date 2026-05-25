@@ -47,15 +47,15 @@ Learning how to stay calm and avoid overreacting requires practice. I suggest yo
 ## Related Posts
 
 - [acseting](https://lifestyle.allwomenstalk.com/ways-to-be-more-accepting-of-others/)
-- [how do you cope with bullying](https://lifestyle.allwomenstalk.com/ways-to-cope-with-bullying/)
-- [steps to forgive](https://health.allwomenstalk.com/steps-to-forgive-others/)
-- [how to get better at comebacks](https://lifestyle.allwomenstalk.com/effective-ways-to-deal-with-haters/)
-- [how to earn respect in a relationship](https://lifestyle.allwomenstalk.com/ways-to-get-more-respect/)
-- [how to make someones day better](https://lifestyle.allwomenstalk.com/ways-to-brighten-someones-day/)
-- [how to care for your introvert friend](https://lifestyle.allwomenstalk.com/ways-to-care-for-an-introvert/)
-- [ways to prevent bullying](https://lifestyle.allwomenstalk.com/ways-to-prevent-bullying/)
 - [maintaining long distance friendships](https://lifestyle.allwomenstalk.com/ways-to-maintain-long-distance-friendships/)
 - [how to win in arguments](https://lifestyle.allwomenstalk.com/tips-for-winning-an-argument/)
+- [how to care for your introvert friend](https://lifestyle.allwomenstalk.com/ways-to-care-for-an-introvert/)
+- [how to make someones day better](https://lifestyle.allwomenstalk.com/ways-to-brighten-someones-day/)
+- [how to get better at comebacks](https://lifestyle.allwomenstalk.com/effective-ways-to-deal-with-haters/)
+- [steps to forgive](https://health.allwomenstalk.com/steps-to-forgive-others/)
+- [how do you cope with bullying](https://lifestyle.allwomenstalk.com/ways-to-cope-with-bullying/)
+- [how to earn respect in a relationship](https://lifestyle.allwomenstalk.com/ways-to-get-more-respect/)
+- [ways to prevent bullying](https://lifestyle.allwomenstalk.com/ways-to-prevent-bullying/)
 - [7 Ways to Deal with Anger ...](https://allwomenstalk.com/7-ways-to-deal-with-anger/)
 - [7 Tips on Controlling Your Attitude ...](https://allwomenstalk.com/7-tips-on-controlling-your-attitude/)
 

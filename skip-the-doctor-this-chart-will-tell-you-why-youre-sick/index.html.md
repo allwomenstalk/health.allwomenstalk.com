@@ -20,15 +20,15 @@ Now you shouldn't have a problem figuring out what type of infection has gotten 
 
 ## Related Posts
 
-- [Your M.D. Must Know These 7 Things about You ...](https://health.allwomenstalk.com/your-m-d-must-know-these-things-about-you/)
 - [The Answers to All of Your Embarrassing Period Que...](https://health.allwomenstalk.com/the-answers-to-all-of-your-embarrassing-period-questions/)
-- [7 Life Events That Can Lead to a Heart Attack ...](https://health.allwomenstalk.com/life-events-that-can-lead-to-a-heart-attack/)
-- [These Shocking Things Are Triggering Your Anxiety ...](https://health.allwomenstalk.com/these-shocking-things-are-triggering-your-anxiety-watch-out/)
-- [10 Facts That Could End up Saving Your Life ...](https://lifestyle.allwomenstalk.com/facts-that-could-end-up-saving-your-life/)
 - [What to Expect during Your Very First Gynecologica...](https://health.allwomenstalk.com/what-to-expect-during-your-very-first-gynecological-visit/)
-- [Do These Things to Reduce Risk of Breast Cancer .....](https://health.allwomenstalk.com/do-these-things-to-reduce-risk-of-breast-cancer/)
+- [Your M.D. Must Know These 7 Things about You ...](https://health.allwomenstalk.com/your-m-d-must-know-these-things-about-you/)
+- [10 Facts That Could End up Saving Your Life ...](https://lifestyle.allwomenstalk.com/facts-that-could-end-up-saving-your-life/)
 - [le stylo eye always pink](https://health.allwomenstalk.com/things-you-should-do-when-you-get-pink-eye/)
+- [Do These Things to Reduce Risk of Breast Cancer .....](https://health.allwomenstalk.com/do-these-things-to-reduce-risk-of-breast-cancer/)
 - [Health Tests You Need to Schedule for Sometime  in...](https://health.allwomenstalk.com/schedule-these-health-tests-for-some-time-in/)
+- [These Shocking Things Are Triggering Your Anxiety ...](https://health.allwomenstalk.com/these-shocking-things-are-triggering-your-anxiety-watch-out/)
+- [7 Life Events That Can Lead to a Heart Attack ...](https://health.allwomenstalk.com/life-events-that-can-lead-to-a-heart-attack/)
 - [These Things Are Actually Making Your Period Worse...](https://health.allwomenstalk.com/these-things-are-actually-making-your-period-worse/)
 - [Healthy You - Get Your Flu Shot](https://allwomenstalk.com/get-your-flu-shot-theres-plenty-to-go-around/)
 - [7 Reasons to Eat when Your Eating Disorder Tells Y...](https://health.allwomenstalk.com/reasons-to-eat-when-your-eating-disorder-tells-you-not-to/)

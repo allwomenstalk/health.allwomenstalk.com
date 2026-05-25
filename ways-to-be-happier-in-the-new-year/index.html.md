@@ -56,16 +56,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/20279409)
 
 ## Related Posts
 
-- [10 Ways to save a Life ...](https://health.allwomenstalk.com/ways-to-save-a-life-2/)
-- [8 Ways to Start Your Day Fresh and Focused ...](https://health.allwomenstalk.com/ways-to-start-your-day-fresh-and-focused/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/ways-to-be-more-energetic/)
-- [7 Ways to Be More Confident ...](https://health.allwomenstalk.com/ways-to-be-more-confident/)
 - [7 Good Habits for New Year ...](https://health.allwomenstalk.com/good-habits-for/)
-- [8 Wicked Ways to Be More Active ...](https://health.allwomenstalk.com/wicked-ways-to-be-more-active/)
-- [taking control of your life](https://health.allwomenstalk.com/top-ways-to-take-control-of-your-life/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/ways-to-be-more-energetic/)
+- [8 Ways to Start Your Day Fresh and Focused ...](https://health.allwomenstalk.com/ways-to-start-your-day-fresh-and-focused/)
+- [7 Ways to Be More Confident ...](https://health.allwomenstalk.com/ways-to-be-more-confident/)
 - [7 Ways to Increase Your Brain Power ...](https://health.allwomenstalk.com/ways-to-increase-your-brain-power/)
-- [7 Shortcuts to Better Health ...](https://health.allwomenstalk.com/7-shortcuts-to-better-health/)
 - [8 Cleverly Efficient Tips on How to Start Your Day...](https://health.allwomenstalk.com/cleverly-efficient-tips-on-how-to-start-your-day/)
+- [taking control of your life](https://health.allwomenstalk.com/top-ways-to-take-control-of-your-life/)
+- [7 Shortcuts to Better Health ...](https://health.allwomenstalk.com/7-shortcuts-to-better-health/)
+- [10 Ways to save a Life ...](https://health.allwomenstalk.com/ways-to-save-a-life-2/)
+- [8 Wicked Ways to Be More Active ...](https://health.allwomenstalk.com/wicked-ways-to-be-more-active/)
 - [9 Classic New Years Resolutions You Should Conside...](https://lifestyle.allwomenstalk.com/classic-new-years-resolutions-you-should-consider/)
 - [13 Best Ways to Start a New Year ...](https://lifestyle.allwomenstalk.com/best-ways-to-start-a-new-year/)
 

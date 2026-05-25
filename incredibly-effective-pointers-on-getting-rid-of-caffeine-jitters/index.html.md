@@ -82,16 +82,16 @@ This article written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
-- [how to forget bad memories in a relationship](https://inspiration.allwomenstalk.com/ways-to-let-go-of-bad-memories/)
-- [how to release anger](https://lifestyle.allwomenstalk.com/ways-to-release-your-anger-in-a-positive-way-3/)
-- [forget your troubles come on get happy](https://inspiration.allwomenstalk.com/ways-to-forget-your-troubles-and-get-happy-every-day/)
 - [how to restrain yourself](https://inspiration.allwomenstalk.com/useful-tips-on-how-to-restrain-yourself-from-an-outburst/)
+- [how to release anger](https://lifestyle.allwomenstalk.com/ways-to-release-your-anger-in-a-positive-way-3/)
 - [how to relieve anger](https://lifestyle.allwomenstalk.com/ways-to-release-your-anger-in-a-positive-way-2/)
-- [avoid big cities](https://travel.allwomenstalk.com/tips-for-surviving-big-cities-when-they-feel-overwhelming/)
 - [horrible day at work](https://lifestyle.allwomenstalk.com/wonderful-ways-to-get-through-a-bad-day-at-work/)
-- [escape the grind](https://health.allwomenstalk.com/great-ways-to-escape-the-daily-grind/)
-- [using anger in a positive way](https://lifestyle.allwomenstalk.com/ways-to-release-your-anger-in-a-positive-way/)
+- [how to forget bad memories in a relationship](https://inspiration.allwomenstalk.com/ways-to-let-go-of-bad-memories/)
+- [avoid big cities](https://travel.allwomenstalk.com/tips-for-surviving-big-cities-when-they-feel-overwhelming/)
 - [joyous way to break out](https://lifestyle.allwomenstalk.com/joyful-ways-to-take-a-break-from-the-real-world/)
+- [escape the grind](https://health.allwomenstalk.com/great-ways-to-escape-the-daily-grind/)
+- [forget your troubles come on get happy](https://inspiration.allwomenstalk.com/ways-to-forget-your-troubles-and-get-happy-every-day/)
+- [using anger in a positive way](https://lifestyle.allwomenstalk.com/ways-to-release-your-anger-in-a-positive-way/)
 - [7 Tips to Get over a Caffeine Addiction ...](https://health.allwomenstalk.com/tips-to-get-over-a-caffeine-addiction/)
 - [11 Tips to Help You Sleep Better ...](https://allwomenstalk.com/6-natural-remedies-to-help-you-sleep-better/)
 

@@ -42,16 +42,16 @@ A lot of these types of games can be found online and downloaded for free! Not t
 
 ## Related Posts
 
-- [7 of the Funniest and Strangest Things Teachers Ar...](https://funny.allwomenstalk.com/of-the-funniest-and-strangest-things-teachers-are-asked-by-highschool-kids/)
 - [People Who Lack Confidence Use These Words - do Yo...](https://lifestyle.allwomenstalk.com/words-people-who-are-not-confident-always-use/)
-- [7 Ridiculous Words Added to the 2014 Websters Dict...](https://funny.allwomenstalk.com/ridiculous-words-added-to-the-websters-dictionary/)
 - [17 Baby Names That I Wouldnt Be Surprised to Hear ...](https://funny.allwomenstalk.com/baby-names-that-i-wouldnt-be-surprised-to-hear-in-the-future/)
+- [7 Ridiculous Words Added to the 2014 Websters Dict...](https://funny.allwomenstalk.com/ridiculous-words-added-to-the-websters-dictionary/)
 - [what to say in awkward silence](https://inspiration.allwomenstalk.com/things-to-say-in-awkward-silences/)
 - [haert tattoo](https://bodyart.allwomenstalk.com/frustrating-comments-people-with-tattoos-have-heard-at-some-point/)
 - [9 Funny Chat up Lines for Women ...](https://love.allwomenstalk.com/funny-chat-up-lines-for-women/)
-- [9 Hilarious Memes Taking over the Net ...](https://7fun.net/hilarious-memes-taking-over-the-net/)
 - [7 Things Vegetarians Hear All the Time ...](https://funny.allwomenstalk.com/things-vegetarians-hear-all-the-time/)
+- [9 Hilarious Memes Taking over the Net ...](https://7fun.net/hilarious-memes-taking-over-the-net/)
 - [9 Funny One-liners to Make You Laugh ...](https://funny.allwomenstalk.com/funny-one-liners-to-make-you-laugh/)
+- [7 of the Funniest and Strangest Things Teachers Ar...](https://funny.allwomenstalk.com/of-the-funniest-and-strangest-things-teachers-are-asked-by-highschool-kids/)
 - [7 Ways to Increase Your Brain Power ...](https://health.allwomenstalk.com/ways-to-increase-your-brain-power/)
 - [7 Games to Keep Your Children Active ...](https://allwomenstalk.com/7-games-to-keep-your-children-active/)
 

@@ -50,16 +50,16 @@ I hope the truth about colds and flu helps you avoid the worst of the sniffles t
 
 ## Related Posts
 
-- [7 Medical Problems You Dont Need to Go to the Emer...](https://health.allwomenstalk.com/medical-problems-you-dont-need-to-go-to-the-emergency-room-for/)
 - [7 Things You Should Know about Your Tap Water ...](https://health.allwomenstalk.com/things-you-should-know-about-your-tap-water/)
-- [7 Important Things to Know about Your Melanoma Ris...](https://skincare.allwomenstalk.com/important-things-to-know-about-your-melanoma-risk/)
 - [7 Risks to Take before You Die ...](https://inspiration.allwomenstalk.com/risks-to-take-before-you-die/)
-- [7 Things to Know about Invisalign Braces ...](https://beauty.allwomenstalk.com/things-to-know-about-invisalign-braces/)
-- [7 Things to Know before Having Neck Enhancement Tr...](https://beauty.allwomenstalk.com/things-to-know-before-having-neck-enhancement-treatments/)
-- [12 Ways to Mark World Cancer Day  Feb 4th 2015 ...](https://health.allwomenstalk.com/ways-to-mark-world-cancer-day-feb-th/)
-- [7 Ways Youre Sabotaging Your Immune System ...](https://health.allwomenstalk.com/ways-youre-sabotaging-your-immune-system/)
 - [8 Online Privacy Concerns Any Internet User Needs ...](https://lifestyle.allwomenstalk.com/online-privacy-concerns-any-internet-user-needs-to-know-about/)
 - [7 Positive Things about Your Period to Make You Ha...](https://health.allwomenstalk.com/positive-things-about-your-period-to-make-you-hate-it-less/)
+- [12 Ways to Mark World Cancer Day  Feb 4th 2015 ...](https://health.allwomenstalk.com/ways-to-mark-world-cancer-day-feb-th/)
+- [7 Things to Know before Having Neck Enhancement Tr...](https://beauty.allwomenstalk.com/things-to-know-before-having-neck-enhancement-treatments/)
+- [7 Important Things to Know about Your Melanoma Ris...](https://skincare.allwomenstalk.com/important-things-to-know-about-your-melanoma-risk/)
+- [7 Ways Youre Sabotaging Your Immune System ...](https://health.allwomenstalk.com/ways-youre-sabotaging-your-immune-system/)
+- [7 Medical Problems You Dont Need to Go to the Emer...](https://health.allwomenstalk.com/medical-problems-you-dont-need-to-go-to-the-emergency-room-for/)
+- [7 Things to Know about Invisalign Braces ...](https://beauty.allwomenstalk.com/things-to-know-about-invisalign-braces/)
 - [7 Tips for Kicking Fall Colds ...](https://health.allwomenstalk.com/tips-for-kicking-fall-colds/)
 - [8 Healthy and Medically Sound Ways to Avoid a Cold...](https://health.allwomenstalk.com/healthy-and-medically-sound-ways-to-avoid-a-cold/)
 

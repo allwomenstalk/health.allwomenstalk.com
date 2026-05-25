@@ -56,16 +56,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/2731715336180787
 
 ## Related Posts
 
-- [7 Things to Remember over Break ...](https://lifestyle.allwomenstalk.com/things-to-remember-over-break/)
-- [9 Ways to Have a Better School Year ...](https://lifestyle.allwomenstalk.com/ways-to-have-a-better-school-year/)
-- [why am i so bad at university](https://lifestyle.allwomenstalk.com/reasons-why-life-after-university-isnt-so-bad/)
 - [8 Tips for Staying Fit at School ...](https://weightloss.allwomenstalk.com/tips-for-staying-fit-at-school/)
-- [10 Things to Check before Choosing an Online Colle...](https://lifestyle.allwomenstalk.com/things-to-check-before-choosing-an-online-college/)
-- [7 Retailers That Offer Student Discounts ...](https://fashion.allwomenstalk.com/retailers-that-offer-student-discounts/)
-- [7 Ways to Get a Free Education ...](https://lifestyle.allwomenstalk.com/ways-to-get-a-free-education/)
 - [7 Great College Classes to Try out ...](https://lifestyle.allwomenstalk.com/great-college-classes-to-try-out/)
+- [7 Ways to Get a Free Education ...](https://lifestyle.allwomenstalk.com/ways-to-get-a-free-education/)
+- [10 Things to Check before Choosing an Online Colle...](https://lifestyle.allwomenstalk.com/things-to-check-before-choosing-an-online-college/)
 - [7 Classes to Take before You Graduate ...](https://lifestyle.allwomenstalk.com/classes-to-take-before-you-graduate/)
+- [7 Retailers That Offer Student Discounts ...](https://fashion.allwomenstalk.com/retailers-that-offer-student-discounts/)
+- [why am i so bad at university](https://lifestyle.allwomenstalk.com/reasons-why-life-after-university-isnt-so-bad/)
+- [7 Things to Remember over Break ...](https://lifestyle.allwomenstalk.com/things-to-remember-over-break/)
 - [10 Ways Students Waste Money in College ...](https://money.allwomenstalk.com/ways-students-waste-money-in-college/)
+- [9 Ways to Have a Better School Year ...](https://lifestyle.allwomenstalk.com/ways-to-have-a-better-school-year/)
 - [10 Tips to Stay Healthy in Your Twenties ...](https://health.allwomenstalk.com/10-tips-to-stay-healthy-in-your-twenties/)
 - [7 Tips to Maintain Good Health ...](https://health.allwomenstalk.com/tips-to-maintain-good-health/)
 

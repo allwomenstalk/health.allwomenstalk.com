@@ -62,16 +62,16 @@ I hope these techniques can help you figure out how to cure panic attacks. Disco
 
 ## Related Posts
 
-- [7 Tips to Cope with Asthma at the Workplace ...](https://health.allwomenstalk.com/tips-to-cope-with-asthma-at-the-workplace/)
-- [9 Healthy  Fun Ways to Relax ...](https://health.allwomenstalk.com/healthy-fun-ways-to-relax/)
-- [8 Quick Stress Busters ...](https://health.allwomenstalk.com/8-quick-stress-busters/)
-- [7 Tips to Get over a Caffeine Addiction ...](https://health.allwomenstalk.com/tips-to-get-over-a-caffeine-addiction/)
-- [How to Reduce Stress ...](https://allwomenstalk.com/how-to-reduce-stress/)
-- [8 Ways of Dealing with Stress at School ...](https://lifestyle.allwomenstalk.com/ways-of-dealing-with-stress-at-school/)
 - [9 Ways to Release Pent up Emotions ...](https://health.allwomenstalk.com/9-ways-to-release-pent-up-emotions/)
 - [New Years Resolution - Less Stress](https://allwomenstalk.com/new-years-resolution-less-stress/)
-- [how to get over an obsession](https://lifestyle.allwomenstalk.com/ways-to-stop-being-obsessive/)
+- [7 Tips to Cope with Asthma at the Workplace ...](https://health.allwomenstalk.com/tips-to-cope-with-asthma-at-the-workplace/)
+- [7 Tips to Get over a Caffeine Addiction ...](https://health.allwomenstalk.com/tips-to-get-over-a-caffeine-addiction/)
+- [8 Ways of Dealing with Stress at School ...](https://lifestyle.allwomenstalk.com/ways-of-dealing-with-stress-at-school/)
 - [7 Ways to Handle Holiday Stress ...](https://health.allwomenstalk.com/ways-to-handle-holiday-stress/)
+- [9 Healthy  Fun Ways to Relax ...](https://health.allwomenstalk.com/healthy-fun-ways-to-relax/)
+- [8 Quick Stress Busters ...](https://health.allwomenstalk.com/8-quick-stress-busters/)
+- [How to Reduce Stress ...](https://allwomenstalk.com/how-to-reduce-stress/)
+- [how to get over an obsession](https://lifestyle.allwomenstalk.com/ways-to-stop-being-obsessive/)
 - [Overcoming Panic Attacks ...](https://allwomenstalk.com/overcoming-panic-attacks/)
 - [10 Easy Ways to Relieve Anxiety ...](https://allwomenstalk.com/10-easy-ways-to-relieve-anxiety/)
 

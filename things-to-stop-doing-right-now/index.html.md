@@ -56,16 +56,16 @@ There are a lot of things to stop doing, aren't there? Which of these bad habits
 
 ## Related Posts
 
-- [le stylo timeless spark](https://lifestyle.allwomenstalk.com/table-manners-you-dont-want-to-forget/)
-- [7 things you should always keep secret](https://lifestyle.allwomenstalk.com/things-you-should-keep-secret/)
-- [stop saying if you will](https://lifestyle.allwomenstalk.com/negative-things-you-should-stop-saying/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/worst-interview-mistakes/)
-- [stylo primped previous](https://hair.allwomenstalk.com/things-that-wont-help-grow-your-hair-faster/)
-- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
-- [lgbt sterotypes](https://lifestyle.allwomenstalk.com/common-gay-stereotypes-you-should-avoid/)
 - [8 Habits That Are Bad for Your Heart ...](https://health.allwomenstalk.com/8-habits-that-are-bad-for-your-heart/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/annoying-things-about-supermarkets/)
+- [lgbt sterotypes](https://lifestyle.allwomenstalk.com/common-gay-stereotypes-you-should-avoid/)
+- [stop saying if you will](https://lifestyle.allwomenstalk.com/negative-things-you-should-stop-saying/)
 - [topics to talk with friends](https://lifestyle.allwomenstalk.com/conversation-topics-you-dont-want-to-bring-up-too-soon/)
+- [le stylo timeless spark](https://lifestyle.allwomenstalk.com/table-manners-you-dont-want-to-forget/)
+- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
+- [7 things you should always keep secret](https://lifestyle.allwomenstalk.com/things-you-should-keep-secret/)
+- [stylo primped previous](https://hair.allwomenstalk.com/things-that-wont-help-grow-your-hair-faster/)
 - [8 Things to Give up Today ...](https://lifestyle.allwomenstalk.com/8-things-to-give-up-today/)
 - [12 Bad Habits You Should Break Right Now ...](https://allwomenstalk.com/12-bad-habits-you-should-break-right-now/)
 

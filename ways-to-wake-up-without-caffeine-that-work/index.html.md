@@ -51,15 +51,15 @@ If you’re still unsure about how to wake up without caffeine, there are still 
 ## Related Posts
 
 - [best app for going to sleep](https://apps.allwomenstalk.com/apps-that-help-you-sleep-better/)
+- [flight accessories for sleeping](https://travel.allwomenstalk.com/tips-for-sleeping-on-a-plane/)
+- [freefaller sleeping position](https://health.allwomenstalk.com/sleeping-positions-and-what-they-say-about-you/)
+- [10 benefits of sleep](https://beauty.allwomenstalk.com/beauty-benefits-of-a-good-nights-sleep/)
+- [reasons why i cant sleep at night](https://health.allwomenstalk.com/good-reasons-that-you-cant-sleep-at-night/)
+- [awake sentence for class 7](https://lifestyle.allwomenstalk.com/tips-on-staying-awake-during-class-that-will-work/)
+- [how to sleep in high temperature](https://health.allwomenstalk.com/steps-to-help-you-sleep-in-high-temperatures/)
+- [what fruits to eat before bed](https://diet.allwomenstalk.com/worst-things-to-eat-before-bed/)
 - [what do i do if im bored in class](https://lifestyle.allwomenstalk.com/ways-to-stay-awake-during-a-boring-class/)
 - [things that help sleep](https://health.allwomenstalk.com/things-to-help-you-sleep-better/)
-- [flight accessories for sleeping](https://travel.allwomenstalk.com/tips-for-sleeping-on-a-plane/)
-- [10 benefits of sleep](https://beauty.allwomenstalk.com/beauty-benefits-of-a-good-nights-sleep/)
-- [what fruits to eat before bed](https://diet.allwomenstalk.com/worst-things-to-eat-before-bed/)
-- [reasons why i cant sleep at night](https://health.allwomenstalk.com/good-reasons-that-you-cant-sleep-at-night/)
-- [how to sleep in high temperature](https://health.allwomenstalk.com/steps-to-help-you-sleep-in-high-temperatures/)
-- [freefaller sleeping position](https://health.allwomenstalk.com/sleeping-positions-and-what-they-say-about-you/)
-- [awake sentence for class 7](https://lifestyle.allwomenstalk.com/tips-on-staying-awake-during-class-that-will-work/)
 - [7 Tips to Get over a Caffeine Addiction ...](https://health.allwomenstalk.com/tips-to-get-over-a-caffeine-addiction/)
 - [8 Tricks to Fall Asleep You Should Try ...](https://health.allwomenstalk.com/tricks-to-fall-asleep-you-should-try/)
 

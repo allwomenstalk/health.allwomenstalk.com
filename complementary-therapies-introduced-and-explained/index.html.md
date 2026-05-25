@@ -50,15 +50,15 @@ The complementary therapies do not replace conventional medicine, but they have 
 
 ## Related Posts
 
-- [7 Types of Anxiety Disorders That You Should Know ...](https://health.allwomenstalk.com/types-of-anxiety-disorders-that-you-should-know-about/)
-- [7 Crucial Things to Know about Adrenal Fatigue ...](https://health.allwomenstalk.com/crucial-things-to-know-about-adrenal-fatigue/)
-- [13 Things You Need to Know about the FODMAP Diet f...](https://health.allwomenstalk.com/things-you-need-to-know-about-the-fodmap-diet-for-ibs/)
 - [7 Things You Should Know about Color Therapy ...](https://health.allwomenstalk.com/things-you-should-know-about-color-therapy/)
-- [9 Incredible Facts about the Health Hazards of Smo...](https://health.allwomenstalk.com/incredible-facts-about-the-health-hazards-of-smoking-cigarettes/)
+- [7 Crucial Things to Know about Adrenal Fatigue ...](https://health.allwomenstalk.com/crucial-things-to-know-about-adrenal-fatigue/)
 - [cold pack in first aid kit](https://lifestyle.allwomenstalk.com/important-things-you-should-have-in-your-home-first-aid-kit/)
-- [7 Things You Should Know about Being an Organ Dono...](https://health.allwomenstalk.com/things-you-should-know-about-being-an-organ-donor/)
-- [coffee estrogen levels](https://health.allwomenstalk.com/tips-on-how-to-tell-if-your-estrogen-levels-are-imbalanced/)
 - [7 Vital Things Every Woman Should Know about Breas...](https://health.allwomenstalk.com/vital-things-every-woman-should-know-about-breast-cancer/)
+- [9 Incredible Facts about the Health Hazards of Smo...](https://health.allwomenstalk.com/incredible-facts-about-the-health-hazards-of-smoking-cigarettes/)
+- [7 Types of Anxiety Disorders That You Should Know ...](https://health.allwomenstalk.com/types-of-anxiety-disorders-that-you-should-know-about/)
+- [coffee estrogen levels](https://health.allwomenstalk.com/tips-on-how-to-tell-if-your-estrogen-levels-are-imbalanced/)
+- [7 Things You Should Know about Being an Organ Dono...](https://health.allwomenstalk.com/things-you-should-know-about-being-an-organ-donor/)
+- [13 Things You Need to Know about the FODMAP Diet f...](https://health.allwomenstalk.com/things-you-need-to-know-about-the-fodmap-diet-for-ibs/)
 - [7 Crucial Things Every Woman Should Know about Men...](https://health.allwomenstalk.com/crucial-things-every-woman-should-know-about-menopause/)
 - [9 Uncommon Facts about the Human Body ...](https://health.allwomenstalk.com/uncommon-facts-about-the-human-body/)
 - [8 Great Alternative Therapies ...](https://allwomenstalk.com/8-great-alternative-therapies/)

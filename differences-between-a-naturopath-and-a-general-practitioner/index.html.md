@@ -52,16 +52,16 @@ I appreciate that we’re allowed to have both naturopaths and general practitio
 
 ## Related Posts
 
+- [7 Important Things You Need to Know about Iodine ....](https://health.allwomenstalk.com/important-things-you-need-to-know-about-iodine/)
 - [9 Important Facts about Fertility That You Should ...](https://health.allwomenstalk.com/important-facts-about-fertility-that-you-should-know/)
+- [9 Symptoms and Facts about Leaky Gut to Look out f...](https://health.allwomenstalk.com/symptoms-and-facts-about-leaky-gut-to-look-out-for/)
+- [7 Important Things You Need to Know about Antibiot...](https://vityle.com/important-things-you-need-to-know-about-antibiotics/)
+- [face mapping for health](https://health.allwomenstalk.com/things-face-mapping-can-tell-you-about-your-health/)
 - [7 Ways PMS Affects Your Digestion and What to do a...](https://health.allwomenstalk.com/ways-pms-affects-your-digestion-and-what-to-do-about-it/)
 - [15 Milestones in the History of Menstruation ...](https://health.allwomenstalk.com/milestones-in-the-history-of-menstruation/)
-- [face mapping for health](https://health.allwomenstalk.com/things-face-mapping-can-tell-you-about-your-health/)
-- [9 Symptoms and Facts about Leaky Gut to Look out f...](https://health.allwomenstalk.com/symptoms-and-facts-about-leaky-gut-to-look-out-for/)
-- [7 Essential Facts You Need to Know about Estrogen ...](https://health.allwomenstalk.com/essential-facts-you-need-to-know-about-estrogen-dominance/)
-- [7 Important Things You Need to Know about Iodine ....](https://health.allwomenstalk.com/important-things-you-need-to-know-about-iodine/)
 - [7 Health Warnings You Can Stop Listening to and sa...](https://vityle.com/health-warnings-you-can-stop-listening-to-and-save-your-sanity/)
+- [7 Essential Facts You Need to Know about Estrogen ...](https://health.allwomenstalk.com/essential-facts-you-need-to-know-about-estrogen-dominance/)
 - [7 Causes  Triggers of Eczema in Children to Be Awa...](https://health.allwomenstalk.com/causes-triggers-of-eczema-in-children-to-be-aware-of/)
-- [7 Important Things You Need to Know about Antibiot...](https://vityle.com/important-things-you-need-to-know-about-antibiotics/)
 - [7 Things to Remember when Going to Your OB Doc ...](https://parenting.allwomenstalk.com/7-things-to-remember-when-going-to-your-ob-doc/)
 - [9 Things to Ask Your Doctor ...](https://health.allwomenstalk.com/9-things-to-ask-your-doctor/)
 

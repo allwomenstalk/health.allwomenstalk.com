@@ -36,16 +36,16 @@ While carbs are a necessary part of our diet and help with energy in small doses
 
 ## Related Posts
 
-- [Lifesaving Ways to Treat Morning Sickness ...](https://parenting.allwomenstalk.com/ways-to-treat-morning-sickness/)
-- [6 Natural Ways to Balance Your Hormones ...](https://health.allwomenstalk.com/natural-ways-to-balance-hormones/)
+- [is castor oil good for sunburn](https://skincare.allwomenstalk.com/unusual-but-natural-ways-to-soothe-your-sunburn/)
 - [5 Natural Remedies for Living with Diabetes ...](https://health.allwomenstalk.com/natural-remedies-for-diabetes/)
+- [detox foot soak diy](https://health.allwomenstalk.com/diy-detoxing-foot-soak/)
+- [Lifesaving Ways to Treat Morning Sickness ...](https://parenting.allwomenstalk.com/ways-to-treat-morning-sickness/)
 - [Natural Ways to Get Rid of Cellulite ...](https://skincare.allwomenstalk.com/natural-ways-to-get-rid-of-cellulite/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/aromatherapy-for-common-ailments/)
+- [6 Natural Ways to Balance Your Hormones ...](https://health.allwomenstalk.com/natural-ways-to-balance-hormones/)
 - [20 Helpful Ways to Get over a Cold  Quickly  ...](https://health.allwomenstalk.com/ways-to-get-over-a-cold-quickly/)
 - [4 Easy Ways to Mask Bug Bites ...](https://skincare.allwomenstalk.com/easy-ways-to-mask-bug-bites/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/aromatherapy-for-common-ailments/)
 - [5 Easy Ways to Get Rid of Annoying Stomach Bloatin...](https://health.allwomenstalk.com/ways-to-get-rid-of-stomach-bloat/)
-- [detox foot soak diy](https://health.allwomenstalk.com/diy-detoxing-foot-soak/)
-- [is castor oil good for sunburn](https://skincare.allwomenstalk.com/unusual-but-natural-ways-to-soothe-your-sunburn/)
 - [8 Ways to Boost Your Immune System ...](https://health.allwomenstalk.com/ways-to-boost-your-immune-system/)
 - [8 Tips on How to Boost Energy Instantly ...](https://allwomenstalk.com/tips-on-how-to-boost-energy-instantly/)
 

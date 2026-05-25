@@ -50,16 +50,16 @@ You don’t have to give up Netflix. Just remember there’s more to life!
 
 ## Related Posts
 
-- [Once upon a Time is Back and Heres Why You Need to...](https://movies.allwomenstalk.com/once-upon-a-time-is-back-and-heres-why-you-need-to-watch-it/)
-- [Dont Miss the New Seasons of These Addictive TV Sh...](https://movies.allwomenstalk.com/dont-miss-the-new-seasons-of-these-addictive-tv-shows/)
-- [OMG Making a Murderer is Coming to Netflix and Her...](https://movies.allwomenstalk.com/omg-making-a-murderer-is-coming-to-netflix-and-heres-why-you-need-to-watch-it/)
-- [This New Alzheimers Treatment Fully Restores Memor...](https://health.allwomenstalk.com/this-new-alzheimers-treatment-fully-restores-memory-function/)
-- [This is Why a Harry Potter Version of Pokmon Go Wo...](https://apps.allwomenstalk.com/this-is-why-a-harry-potter-version-of-pokemon-go-would-be-even-better/)
-- [8 Hilarious Things to Watch on YouTube that Happen...](https://funny.allwomenstalk.com/hilarious-things-to-watch-on-youtube-that-happened-irl/)
 - [18 Times Our Crushes Made Us Act a Little Crazy .....](https://love.allwomenstalk.com/times-our-crushes-made-us-act-a-little-crazy/)
-- [Here Are the 8 Superhumans Who Just Made the U.S. ...](https://celebs.allwomenstalk.com/here-are-the-goddesses-who-just-made-the-u-s-olympic-gymnastics-team/)
+- [OMG Making a Murderer is Coming to Netflix and Her...](https://movies.allwomenstalk.com/omg-making-a-murderer-is-coming-to-netflix-and-heres-why-you-need-to-watch-it/)
 - [From Africa with Love ...](https://lifestyle.allwomenstalk.com/from-africa-with-love/)
 - [This Russian Artists Sketches Will Have You Search...](https://lifestyle.allwomenstalk.com/this-russian-artists-sketches-will-have-you-searching-for-your-pencils-stat/)
+- [8 Hilarious Things to Watch on YouTube that Happen...](https://funny.allwomenstalk.com/hilarious-things-to-watch-on-youtube-that-happened-irl/)
+- [Here Are the 8 Superhumans Who Just Made the U.S. ...](https://celebs.allwomenstalk.com/here-are-the-goddesses-who-just-made-the-u-s-olympic-gymnastics-team/)
+- [This New Alzheimers Treatment Fully Restores Memor...](https://health.allwomenstalk.com/this-new-alzheimers-treatment-fully-restores-memory-function/)
+- [This is Why a Harry Potter Version of Pokmon Go Wo...](https://apps.allwomenstalk.com/this-is-why-a-harry-potter-version-of-pokemon-go-would-be-even-better/)
+- [Once upon a Time is Back and Heres Why You Need to...](https://movies.allwomenstalk.com/once-upon-a-time-is-back-and-heres-why-you-need-to-watch-it/)
+- [Dont Miss the New Seasons of These Addictive TV Sh...](https://movies.allwomenstalk.com/dont-miss-the-new-seasons-of-these-addictive-tv-shows/)
 - [How TV Disrupts Your Life](https://allwomenstalk.com/how-tv-disrupts-your-life/)
 - [8 Reasons to Quit Your Day Job ...](https://allwomenstalk.com/8-reasons-to-quit-your-day-job/)
 

@@ -58,16 +58,16 @@ Next time you’re low on energy, don’t use artificially flavored energy drink
 
 ## Related Posts
 
-- [good smoothie combinations](https://food.allwomenstalk.com/smoothie-combinations-you-cant-help-but-love/)
-- [tea-based cocktails](https://food.allwomenstalk.com/fabulous-cocktails-made-with-herbal-teas/)
-- [how much tea is drank in the world](https://travel.allwomenstalk.com/places-to-drink-tea-around-the-world-and-how/)
-- [drink chic](https://food.allwomenstalk.com/chic-cocktails-for-girlie-lunches/)
-- [7 best starbucks drinks that wont ruin your diet](https://food.allwomenstalk.com/flavorful-twists-to-your-favorite-starbucks-drinks/)
-- [best recovery drink](https://health.allwomenstalk.com/best-workout-recovery-drinks-to-try/)
-- [gingerbread smoothie](https://food.allwomenstalk.com/healthy-and-festive-holiday-smoothies/)
-- [soothing tea](https://food.allwomenstalk.com/soothing-tea-blends-you-have-to-try/)
 - [comforting foods and beverage](https://food.allwomenstalk.com/hot-and-cozy-beverages-to-warm-up-to-this-year-that-wont-hurt-your-waistline-one-little-bit/)
+- [7 best starbucks drinks that wont ruin your diet](https://food.allwomenstalk.com/flavorful-twists-to-your-favorite-starbucks-drinks/)
+- [tea-based cocktails](https://food.allwomenstalk.com/fabulous-cocktails-made-with-herbal-teas/)
 - [southern baptist drink](https://food.allwomenstalk.com/warming-ginger-based-cocktails-perfect-for-winter/)
+- [soothing tea](https://food.allwomenstalk.com/soothing-tea-blends-you-have-to-try/)
+- [how much tea is drank in the world](https://travel.allwomenstalk.com/places-to-drink-tea-around-the-world-and-how/)
+- [best recovery drink](https://health.allwomenstalk.com/best-workout-recovery-drinks-to-try/)
+- [good smoothie combinations](https://food.allwomenstalk.com/smoothie-combinations-you-cant-help-but-love/)
+- [gingerbread smoothie](https://food.allwomenstalk.com/healthy-and-festive-holiday-smoothies/)
+- [drink chic](https://food.allwomenstalk.com/chic-cocktails-for-girlie-lunches/)
 - [7 Drinks That do Not Substitute for Water ...](https://weightloss.allwomenstalk.com/7-drinks-that-do-not-substitute-for-water/)
 - [9 Best Energy Drinks ...](https://weightloss.allwomenstalk.com/best-energy-drinks/)
 

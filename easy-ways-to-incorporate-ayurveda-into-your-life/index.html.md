@@ -32,16 +32,16 @@ Ayurveda is very much rooted in mindfulness, which is the idea that nothing has 
 
 ## Related Posts
 
-- [5 Simple Ways to Be Happier in Life ...](https://inspiration.allwomenstalk.com/simple-ways-to-be-happier-2/)
-- [Exceptional Tips on How to Forgive Yourself ...](https://inspiration.allwomenstalk.com/exceptional-tips-on-how-to-forgive-yourself/)
-- [jocelyn peck wipeout](https://inspiration.allwomenstalk.com/get-up-and-keep-going/)
+- [Brilliant Ideas on Causes of Low Self-Esteem and H...](https://inspiration.allwomenstalk.com/causes-of-low-self-esteem/)
+- [Interesting Ways a Personality Test Can Help You ....](https://inspiration.allwomenstalk.com/ways-a-personality-test-can-help-you/)
 - [Awesome Ways to Keep Your Creative Juices Flowing ...](https://inspiration.allwomenstalk.com/ways-to-keep-your-creative-juices-flowing/)
+- [Intentions to Set for Yourself ...](https://inspiration.allwomenstalk.com/intentions-to-set-yourself/)
+- [5 Simple Ways to Be Happier in Life ...](https://inspiration.allwomenstalk.com/simple-ways-to-be-happier-2/)
 - [How to Build Confidence from a Base of Zero 0 ...](https://inspiration.allwomenstalk.com/how-to-build-confidence-from-a-base-of-zero-0/)
 - [Tried and True Ways to Stop Being so Self-Judgment...](https://inspiration.allwomenstalk.com/tried-and-true-ways-to-stop-being-so-self-judgmental/)
-- [Intentions to Set for Yourself ...](https://inspiration.allwomenstalk.com/intentions-to-set-yourself/)
 - [habit of thinking](https://inspiration.allwomenstalk.com/how-to-build-the-thinking-habit/)
-- [Interesting Ways a Personality Test Can Help You ....](https://inspiration.allwomenstalk.com/ways-a-personality-test-can-help-you/)
-- [Brilliant Ideas on Causes of Low Self-Esteem and H...](https://inspiration.allwomenstalk.com/causes-of-low-self-esteem/)
+- [jocelyn peck wipeout](https://inspiration.allwomenstalk.com/get-up-and-keep-going/)
+- [Exceptional Tips on How to Forgive Yourself ...](https://inspiration.allwomenstalk.com/exceptional-tips-on-how-to-forgive-yourself/)
 - [Youthful Vigor: Easy Lifestyle Changes to Counter ...](https://allwomenstalk.com/easy-lifestyle-changes-to-counter-premature-aging/)
 - [Beauty Tips: Yoga ...](https://allwomenstalk.com/beauty-tips-yoga/)
 

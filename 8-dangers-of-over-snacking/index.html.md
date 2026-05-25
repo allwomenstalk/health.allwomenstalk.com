@@ -48,16 +48,16 @@ Top image source: [55secretstreet.typepad.com](https://55secretstreet.typepad.co
 
 ## Related Posts
 
-- [Diet Pills: a Respite for Obese People ...](https://allwomenstalk.com/3-15/)
-- [7 Reasons to Go on a Detox Diet ...](https://health.allwomenstalk.com/reasons-to-go-on-a-detox-diet/)
 - [CAUTION Things That Increase Your Appetite](https://allwomenstalk.com/caution-things-that-increase-your-appetite/)
-- [What Prevents You from Growing Thin](https://allwomenstalk.com/what-prevents-you-from-growing-thin/)
+- [Obesity  Gateway to Death](https://allwomenstalk.com/obesity-gateway-to-death/)
+- [10 Diet Myths ...](https://allwomenstalk.com/10-diet-myths/)
+- [7 Reasons to Go on a Detox Diet ...](https://health.allwomenstalk.com/reasons-to-go-on-a-detox-diet/)
 - [7 Ways to Blow Your Diet without Even Realizing It...](https://lifestyle.allwomenstalk.com/ways-to-blow-your-diet-without-even-realizing-it/)
 - [how does dieting work](https://allwomenstalk.com/everything-about-dieting-1-how-dieting-works/)
-- [10 Diet Myths ...](https://allwomenstalk.com/10-diet-myths/)
-- [The Idea behind Dieting - Real Facts ...](https://allwomenstalk.com/the-idea-behind-dieting-real-facts/)
 - [Health: the Hunger Scale](https://allwomenstalk.com/health-the-hunger-scale/)
-- [Obesity  Gateway to Death](https://allwomenstalk.com/obesity-gateway-to-death/)
+- [Diet Pills: a Respite for Obese People ...](https://allwomenstalk.com/3-15/)
+- [What Prevents You from Growing Thin](https://allwomenstalk.com/what-prevents-you-from-growing-thin/)
+- [The Idea behind Dieting - Real Facts ...](https://allwomenstalk.com/the-idea-behind-dieting-real-facts/)
 - [10 Foods to Avoid While Dieting ...](https://diet.allwomenstalk.com/foods-to-avoid-while-dieting/)
 - [8 Signs You Have an Overeating Problem ...](https://allwomenstalk.com/8-signs-you-have-an-overeating-problem/)
 

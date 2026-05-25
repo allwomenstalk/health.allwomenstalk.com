@@ -42,14 +42,14 @@ What’s causing your iceberg stress? Do you think any of these ideas could help
 
 ## Related Posts
 
-- [10 Tips to Take Care of You when Life Gets Too Cra...](https://health.allwomenstalk.com/tips-for-taking-care-of-yourself-when-life-gets-crazy/)
-- [depressed on holiday](https://inspiration.allwomenstalk.com/how-to-stop-being-so-depressed-around-the-holidays/)
-- [letting go of negative energy](https://health.allwomenstalk.com/easy-ways-to-meditate-and-let-go-of-the-negative-energy/)
-- [bengal spice tea weight loss](https://health.allwomenstalk.com/herbal-teas-for-people-who-feel-constantly-stressed/)
-- [adult coloring book target](https://lifestyle.allwomenstalk.com/relaxing-activities-to-try-if-coloring-isnt-your-thing/)
-- [cure for homesickness](https://lifestyle.allwomenstalk.com/comforting-things-thatll-cure-your-homesickness/)
-- [best movies when youre stressed](https://movies.allwomenstalk.com/tv-shows-to-watch-on-netflix-when-youre-feeling-stressed-af/)
 - [crazy life quotes](https://inspiration.allwomenstalk.com/how-to-handle-unexpected-changes-in-your-life/)
+- [letting go of negative energy](https://health.allwomenstalk.com/easy-ways-to-meditate-and-let-go-of-the-negative-energy/)
+- [depressed on holiday](https://inspiration.allwomenstalk.com/how-to-stop-being-so-depressed-around-the-holidays/)
+- [adult coloring book target](https://lifestyle.allwomenstalk.com/relaxing-activities-to-try-if-coloring-isnt-your-thing/)
+- [10 Tips to Take Care of You when Life Gets Too Cra...](https://health.allwomenstalk.com/tips-for-taking-care-of-yourself-when-life-gets-crazy/)
+- [best movies when youre stressed](https://movies.allwomenstalk.com/tv-shows-to-watch-on-netflix-when-youre-feeling-stressed-af/)
+- [bengal spice tea weight loss](https://health.allwomenstalk.com/herbal-teas-for-people-who-feel-constantly-stressed/)
+- [cure for homesickness](https://lifestyle.allwomenstalk.com/comforting-things-thatll-cure-your-homesickness/)
 - [setting the mood for romance](https://love.allwomenstalk.com/captivating-ways-to-set-the-mood-after-a-long-day/)
 - [lifehackable](https://lifestyle.allwomenstalk.com/awesome-current-hacks-thatll-make-your-life-stress-free/)
 - [How to Get through a Stressful Time ...](https://allwomenstalk.com/how-to-get-through-a-stressful-time-2/)

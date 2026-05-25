@@ -42,16 +42,16 @@ In an ideal world, everyone who was contagious would just stay at home until the
 
 ## Related Posts
 
-- [5 Genius Ways to Fix Rough Winter Skin ...](https://skincare.allwomenstalk.com/ways-to-treat-rough-winter-skin/)
-- [8 Foods You Should Eat More of in the Winter ...](https://diet.allwomenstalk.com/foods-you-should-eat-more-of-in-winter/)
-- [10 Great Ways to Warm up on a Cold Day ...](https://health.allwomenstalk.com/great-ways-to-warm-up-on-a-cold-day/)
 - [Video Guide to Winter Survival when You Dont like ...](https://health.allwomenstalk.com/video-guide-to-winter-survival-when-you-dont-like-the-cold/)
-- [Fight SAD with These Easy Ways to Stay Happy in a ...](https://health.allwomenstalk.com/fight-sad-with-these-easy-ways-to-stay-happy-in-a-dark-cold-winter/)
 - [grmmm](https://skincare.allwomenstalk.com/how-to-have-a-summer-glow-even-in-winter/)
-- [5 Remedies to Beat Colds and Flu in Cold Weather ....](https://health.allwomenstalk.com/remedies-to-beat-colds-and-flu-in-cold-weather/)
-- [How to Avoid Emotional Eating in the Winter ...](https://diet.allwomenstalk.com/how-to-avoid-emotional-eating-in-the-winter/)
-- [10 Perfect Ways to Stay Motivated through the End ...](https://inspiration.allwomenstalk.com/ways-to-stay-motivated-in-winter/)
 - [These Wintertime Health Habits Will Add Years to Y...](https://health.allwomenstalk.com/these-wintertime-health-habits-will-add-years-to-your-life/)
+- [8 Foods You Should Eat More of in the Winter ...](https://diet.allwomenstalk.com/foods-you-should-eat-more-of-in-winter/)
+- [10 Perfect Ways to Stay Motivated through the End ...](https://inspiration.allwomenstalk.com/ways-to-stay-motivated-in-winter/)
+- [5 Genius Ways to Fix Rough Winter Skin ...](https://skincare.allwomenstalk.com/ways-to-treat-rough-winter-skin/)
+- [How to Avoid Emotional Eating in the Winter ...](https://diet.allwomenstalk.com/how-to-avoid-emotional-eating-in-the-winter/)
+- [5 Remedies to Beat Colds and Flu in Cold Weather ....](https://health.allwomenstalk.com/remedies-to-beat-colds-and-flu-in-cold-weather/)
+- [Fight SAD with These Easy Ways to Stay Happy in a ...](https://health.allwomenstalk.com/fight-sad-with-these-easy-ways-to-stay-happy-in-a-dark-cold-winter/)
+- [10 Great Ways to Warm up on a Cold Day ...](https://health.allwomenstalk.com/great-ways-to-warm-up-on-a-cold-day/)
 - [8 Healthy and Medically Sound Ways to Avoid a Cold...](https://health.allwomenstalk.com/healthy-and-medically-sound-ways-to-avoid-a-cold/)
 - [4 Ways to Prevent Getting a Cold ...](https://allwomenstalk.com/4-ways-to-prevent-getting-a-cold/)
 

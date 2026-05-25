@@ -44,16 +44,16 @@ Top Photo Credit: [Gyp.sy](https://www.flickr.com/photos/gyp_sy/5067049066/)
 
 ## Related Posts
 
-- [cool and interesting facts about diamonds](https://jewelry.allwomenstalk.com/unique-facts-about-diamonds-you-did-not-know/)
-- [pawn shop 9 mile](https://lifestyle.allwomenstalk.com/9-things-you-might-not-know-about-pawn-shops/)
-- [7 Things You Didnt Know about Parasites ...](https://health.allwomenstalk.com/7-things-you-didnt-know-about-parasites/)
-- [harry potter book facts you didnt know](https://lifestyle.allwomenstalk.com/fun-harry-potter-facts-you-didnt-know/)
-- [7 Facts about Coffee ...](https://lifestyle.allwomenstalk.com/7-facts-about-coffee/)
 - [who is tiffany from tiffany and co](https://jewelry.allwomenstalk.com/7-interesting-facts-about-tiffany-co-you-may-not-know/)
 - [9 Uncommon Facts about the Human Body ...](https://health.allwomenstalk.com/uncommon-facts-about-the-human-body/)
-- [7 Amazing Facts about Your Sense of Smell ...](https://health.allwomenstalk.com/amazing-facts-about-your-sense-of-smell/)
-- [facts about 911 you didnt know](https://lifestyle.allwomenstalk.com/interesting-facts-about-911/)
 - [facts about myth](https://lifestyle.allwomenstalk.com/interesting-facts-about-mythology/)
+- [facts about 911 you didnt know](https://lifestyle.allwomenstalk.com/interesting-facts-about-911/)
+- [cool and interesting facts about diamonds](https://jewelry.allwomenstalk.com/unique-facts-about-diamonds-you-did-not-know/)
+- [7 Things You Didnt Know about Parasites ...](https://health.allwomenstalk.com/7-things-you-didnt-know-about-parasites/)
+- [7 Amazing Facts about Your Sense of Smell ...](https://health.allwomenstalk.com/amazing-facts-about-your-sense-of-smell/)
+- [pawn shop 9 mile](https://lifestyle.allwomenstalk.com/9-things-you-might-not-know-about-pawn-shops/)
+- [harry potter book facts you didnt know](https://lifestyle.allwomenstalk.com/fun-harry-potter-facts-you-didnt-know/)
+- [7 Facts about Coffee ...](https://lifestyle.allwomenstalk.com/7-facts-about-coffee/)
 - [7 Facts about Cats ...](https://paranormal.allwomenstalk.com/7-facts-about-cats/)
 - [7 Pregnancy Facts You Should Know ...](https://parenting.allwomenstalk.com/pregnancy-facts-you-should-know/)
 

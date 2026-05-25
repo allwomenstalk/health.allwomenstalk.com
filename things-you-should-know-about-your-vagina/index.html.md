@@ -126,16 +126,16 @@ I hope you’ve found these facts about vaginas educational. Do you have any oth
 
 ## Related Posts
 
-- [how to educate yourself on politics](https://lifestyle.allwomenstalk.com/important-political-issues-you-need-to-educate-yourself-on/)
-- [myths about stds](https://health.allwomenstalk.com/common-myths-about-sexually-transmitted-diseases-and-infections/)
-- [men and anorexia](https://health.allwomenstalk.com/facts-about-male-anorexia-that-you-probably-dont-know-but-should/)
-- [smartphone negative effects](https://health.allwomenstalk.com/negative-effects-of-your-smart-phone-on-your-health/)
-- [the skin book tattoo](https://lifestyle.allwomenstalk.com/things-you-didnt-know-about-getting-a-tattoo/)
-- [bad things for your heart](https://health.allwomenstalk.com/bad-habits-that-could-damage-your-heart/)
-- [multivitamin without titanium dioxide](https://health.allwomenstalk.com/toxic-ingredients-to-avoid-when-buying-supplements/)
-- [does hot yoga tone your body](https://lifestyle.allwomenstalk.com/pros-and-cons-of-hot-yoga-that-you-should-know/)
 - [tired all the time blood test](https://health.allwomenstalk.com/blood-tests-for-fatigue-to-have-your-doctor-do-if-youre-always-tired/)
+- [the skin book tattoo](https://lifestyle.allwomenstalk.com/things-you-didnt-know-about-getting-a-tattoo/)
+- [how to educate yourself on politics](https://lifestyle.allwomenstalk.com/important-political-issues-you-need-to-educate-yourself-on/)
+- [bad things for your heart](https://health.allwomenstalk.com/bad-habits-that-could-damage-your-heart/)
+- [does hot yoga tone your body](https://lifestyle.allwomenstalk.com/pros-and-cons-of-hot-yoga-that-you-should-know/)
+- [men and anorexia](https://health.allwomenstalk.com/facts-about-male-anorexia-that-you-probably-dont-know-but-should/)
 - [what to look for in a juicer](https://health.allwomenstalk.com/essential-things-to-consider-when-buying-a-juicer/)
+- [multivitamin without titanium dioxide](https://health.allwomenstalk.com/toxic-ingredients-to-avoid-when-buying-supplements/)
+- [myths about stds](https://health.allwomenstalk.com/common-myths-about-sexually-transmitted-diseases-and-infections/)
+- [smartphone negative effects](https://health.allwomenstalk.com/negative-effects-of-your-smart-phone-on-your-health/)
 - [7 Pregnancy Facts You Should Know ...](https://parenting.allwomenstalk.com/pregnancy-facts-you-should-know/)
 - [8 Things You Should Know before You Get Pregnant ....](https://parenting.allwomenstalk.com/things-you-should-know-before-you-get-pregnant/)
 

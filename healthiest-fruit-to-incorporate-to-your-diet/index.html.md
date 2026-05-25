@@ -56,16 +56,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/22242161)
 
 ## Related Posts
 
-- [healthiest salty snacks](https://diet.allwomenstalk.com/healthy-snacks-for-your-salt-craving/)
-- [bad reps](https://food.allwomenstalk.com/foods-with-bad-reps-that-are-good-for-you/)
-- [how much calories are in a salad](https://food.allwomenstalk.com/fresh-salads-under-100-calories/)
+- [healthies grains](https://food.allwomenstalk.com/healthiest-whole-grains-to-enjoy/)
 - [tastiest exotic fruits](https://food.allwomenstalk.com/awesome-exotic-fruits-to-try/)
 - [what happened to fantastic foods](https://beauty.allwomenstalk.com/fantastic-foods-for-flawless-skin/)
+- [bad reps](https://food.allwomenstalk.com/foods-with-bad-reps-that-are-good-for-you/)
 - [fast food desserts under 300 calories](https://diet.allwomenstalk.com/fast-food-favorites-under-400-calories-to-have-occasionally/)
-- [healthies grains](https://food.allwomenstalk.com/healthiest-whole-grains-to-enjoy/)
-- [smoothies for liver detox](https://health.allwomenstalk.com/detox-smoothies-to-add-to-your-diet/)
+- [healthiest salty snacks](https://diet.allwomenstalk.com/healthy-snacks-for-your-salt-craving/)
 - [worst thing to eat before bed](https://diet.allwomenstalk.com/worst-foods-to-eat-before-bed/)
+- [smoothies for liver detox](https://health.allwomenstalk.com/detox-smoothies-to-add-to-your-diet/)
 - [filling healthy lunches for work](https://food.allwomenstalk.com/healthy-and-delicious-lunch-ideas-for-work/)
+- [how much calories are in a salad](https://food.allwomenstalk.com/fresh-salads-under-100-calories/)
 - [20 Healthiest Diet Foods for You ...](https://eatial.com/healthiest-diet-foods-for-you/)
 - [10 Interesting Fruit Facts to Know ...](https://diet.allwomenstalk.com/interesting-fruit-facts-to-know/)
 

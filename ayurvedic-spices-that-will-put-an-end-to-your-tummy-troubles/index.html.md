@@ -56,16 +56,16 @@ Having digestive problems is quite miserable. However, these spices can ease you
 
 ## Related Posts
 
-- [fruits and vegetables highest in vitamin c](https://food.allwomenstalk.com/sources-of-vitamin-c-to-help-you-cope-with-stress/)
-- [poses that help with period cramps](https://fitness.allwomenstalk.com/great-yoga-poses-to-relieve-menstrual-cramps/)
 - [neem oil benefits](https://diy.allwomenstalk.com/great-ways-to-use-neem-oil/)
+- [poses that help with period cramps](https://fitness.allwomenstalk.com/great-yoga-poses-to-relieve-menstrual-cramps/)
 - [honey for warts](https://health.allwomenstalk.com/homemade-remedies-for-warts/)
-- [home remedies with honey](https://diy.allwomenstalk.com/homemade-remedies-using-honey/)
-- [oils for gum health](https://health.allwomenstalk.com/essential-oils-that-you-can-use-for-healthy-teeth-and-gums/)
 - [ear pain in-flight remedies](https://travel.allwomenstalk.com/ways-to-cope-with-airplane-ear-pain/)
+- [home remedies with honey](https://diy.allwomenstalk.com/homemade-remedies-using-honey/)
+- [combating water retention](https://health.allwomenstalk.com/ways-to-fight-water-retention/)
+- [fruits and vegetables highest in vitamin c](https://food.allwomenstalk.com/sources-of-vitamin-c-to-help-you-cope-with-stress/)
+- [oils for gum health](https://health.allwomenstalk.com/essential-oils-that-you-can-use-for-healthy-teeth-and-gums/)
 - [how to properly use vicks](https://diy.allwomenstalk.com/ways-to-use-vicks-vapor-rub/)
 - [best herbs to boost immune system](https://food.allwomenstalk.com/best-herbs-to-boost-immunity/)
-- [combating water retention](https://health.allwomenstalk.com/ways-to-fight-water-retention/)
 - [7 Herbs and Spices for Healthy Cooking ...](https://food.allwomenstalk.com/herbs-and-spices-for-healthy-cooking/)
 - [7 Health Benefits of Turmeric ...](https://health.allwomenstalk.com/health-benefits-of-turmeric/)
 

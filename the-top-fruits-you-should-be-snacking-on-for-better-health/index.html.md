@@ -26,16 +26,16 @@ Are these yummy fruits part of your regular diet? If not, they should be!
 
 ## Related Posts
 
-- [tomato minerals](https://food.allwomenstalk.com/important-nutrients-in-tomatoes/)
 - [healthy snacks to pack for lunch](https://food.allwomenstalk.com/healthy-snacks-to-pack-in-your-lunch/)
-- [80s fruit snacks](https://food.allwomenstalk.com/vintage-foods-that-will-take-you-back-in-time/)
 - [healthy meals from restaurants](https://food.allwomenstalk.com/healthy-meals-to-order-at-restaurants/)
+- [80s fruit snacks](https://food.allwomenstalk.com/vintage-foods-that-will-take-you-back-in-time/)
+- [foods with minerals in them](https://food.allwomenstalk.com/purple-foods-that-are-tasty-and-full-of-nutrients/)
+- [best fast food for vegetarians](https://food.allwomenstalk.com/healthy-vegetarian-fast-food-options/)
+- [tomato minerals](https://food.allwomenstalk.com/important-nutrients-in-tomatoes/)
 - [food for a dorm room](https://food.allwomenstalk.com/essential-items-for-your-dorm-room-food-store/)
+- [egos fruit](https://food.allwomenstalk.com/nutrient-rich-foods-to-indulge-in-this-fall/)
 - [food movements examples](https://food.allwomenstalk.com/food-movements-that-have-grown-in-prominence-in-recent-decades/)
 - [site:food.allwomenstalk.com](https://food.allwomenstalk.com/supreme-sources-of-protein/)
-- [foods with minerals in them](https://food.allwomenstalk.com/purple-foods-that-are-tasty-and-full-of-nutrients/)
-- [egos fruit](https://food.allwomenstalk.com/nutrient-rich-foods-to-indulge-in-this-fall/)
-- [best fast food for vegetarians](https://food.allwomenstalk.com/healthy-vegetarian-fast-food-options/)
 - [7 Wonderfully Healthy Berries to Introduce to Your...](https://food.allwomenstalk.com/wonderfully-healthy-berries-to-introduce-to-your-diet/)
 - [10 Amazingly Healthy Foods to Eat ...](https://health.allwomenstalk.com/amazingly-healthy-foods-to-eat/)
 

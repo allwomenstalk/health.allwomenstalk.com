@@ -52,16 +52,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/27837395)
 
 ## Related Posts
 
-- [exercises to tone thighs](https://weightloss.allwomenstalk.com/exercises-to-tone-your-thighs/)
 - [how many calories does housework burn](https://weightloss.allwomenstalk.com/household-activities-that-burn-serious-calories/)
-- [indoor exercises that burn the most calories](https://weightloss.allwomenstalk.com/exercises-that-burn-the-most-calories/)
 - [jumper cavles](https://weightloss.allwomenstalk.com/exercises-for-perfect-calves/)
-- [workout tv show](https://weightloss.allwomenstalk.com/fun-tv-show-workout-routines/)
-- [how to tone top of thighs](https://weightloss.allwomenstalk.com/easy-ways-to-tone-upper-thighs/)
-- [curvy gym girls](https://health.allwomenstalk.com/best-exercise-for-curvy-girls/)
 - [sitting on an exercise ball while watching tv](https://weightloss.allwomenstalk.com/ways-to-exercise-while-watching-tv/)
+- [curvy gym girls](https://health.allwomenstalk.com/best-exercise-for-curvy-girls/)
+- [how to tone top of thighs](https://weightloss.allwomenstalk.com/easy-ways-to-tone-upper-thighs/)
+- [workout tv show](https://weightloss.allwomenstalk.com/fun-tv-show-workout-routines/)
 - [weird workouts](https://weightloss.allwomenstalk.com/weirdest-workouts-ever/)
+- [exercises to tone thighs](https://weightloss.allwomenstalk.com/exercises-to-tone-your-thighs/)
 - [advice for gym beginners](https://weightloss.allwomenstalk.com/fitness-tips-for-beginners/)
+- [indoor exercises that burn the most calories](https://weightloss.allwomenstalk.com/exercises-that-burn-the-most-calories/)
 - [7 Ways to Start Lifting Weights ...](https://fitene.com/ways-to-start-lifting-weights/)
 - [9 Ways to Tone Your Arms ...](https://lifestyle.allwomenstalk.com/ways-to-tone-your-arms/)
 

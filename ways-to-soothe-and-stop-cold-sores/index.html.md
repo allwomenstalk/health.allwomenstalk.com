@@ -44,14 +44,14 @@ These ways to soothe and stop cold sores work best when used early on an impendi
 
 - [7 Natural Ways to Improve Allergies ...](https://health.allwomenstalk.com/natural-ways-to-improve-allergies/)
 - [detox tips](https://health.allwomenstalk.com/detox-tips-for-beginners/)
-- [7 Steps to Proper Dental Hygiene ...](https://health.allwomenstalk.com/steps-to-proper-dental-hygiene/)
-- [8 Secrets to Whiter Teeth ...](https://beauty.allwomenstalk.com/secrets-to-whiter-teeth/)
-- [7 Natural Migraine Treatments ...](https://health.allwomenstalk.com/natural-migraine-treatments/)
 - [8 Helpful Hints and Ways to Prevent and Treat Cold...](https://skincare.allwomenstalk.com/helpful-hints-and-ways-to-prevent-and-treat-cold-sores/)
+- [7 Steps to Proper Dental Hygiene ...](https://health.allwomenstalk.com/steps-to-proper-dental-hygiene/)
 - [9 Natural Pain Relief Remedies ...](https://health.allwomenstalk.com/natural-pain-relief-remedies/)
 - [7 Natural Migraine Prevention Tips ...](https://health.allwomenstalk.com/natural-migraine-prevention-tips/)
-- [10 Top Tips for Healthy Gums ...](https://health.allwomenstalk.com/top-tips-for-healthy-gums/)
 - [10 Quick Fixes for Everyday Health Problems ...](https://vityle.com/quick-fixes-for-everyday-health-problems/)
+- [7 Natural Migraine Treatments ...](https://health.allwomenstalk.com/natural-migraine-treatments/)
+- [10 Top Tips for Healthy Gums ...](https://health.allwomenstalk.com/top-tips-for-healthy-gums/)
+- [8 Secrets to Whiter Teeth ...](https://beauty.allwomenstalk.com/secrets-to-whiter-teeth/)
 - [7 Ways to Treat a Sunburn ...](https://skincare.allwomenstalk.com/ways-to-treat-a-sunburn/)
 - [7 Ways to Deal with Dry Lips ...](https://skincare.allwomenstalk.com/ways-to-deal-with-dry-lips/)
 

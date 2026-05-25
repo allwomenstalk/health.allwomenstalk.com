@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/1078387/via/bury)
 
 ## Related Posts
 
-- [intresting fact about japan](https://travel.allwomenstalk.com/interesting-facts-about-japan/)
-- [geographical facts about africa](https://travel.allwomenstalk.com/geographical-facts-of-africa/)
+- [8 Interesting Facts about Sugar ...](https://diet.allwomenstalk.com/interesting-facts-about-sugar/)
 - [facts on pediatric cancer](https://parenting.allwomenstalk.com/facts-about-pediatric-cancer/)
+- [10 Myths and Facts about Caffeine ...](https://diet.allwomenstalk.com/myths-and-facts-about-caffeine/)
 - [5 facts about chinas geography](https://travel.allwomenstalk.com/geographical-facts-of-china/)
+- [8 Eye Opening Facts to Help You Quit Smoking ...](https://health.allwomenstalk.com/eye-opening-facts-to-help-you-quit-smoking/)
 - [facts about stress](https://health.allwomenstalk.com/facts-about-stress/)
 - [8 Cool Facts about Love ...](https://love.allwomenstalk.com/cool-facts-about-love/)
+- [intresting fact about japan](https://travel.allwomenstalk.com/interesting-facts-about-japan/)
 - [interesting facts about unsaturated fats](https://diet.allwomenstalk.com/must-read-facts-about-fats/)
-- [10 Myths and Facts about Caffeine ...](https://diet.allwomenstalk.com/myths-and-facts-about-caffeine/)
-- [8 Eye Opening Facts to Help You Quit Smoking ...](https://health.allwomenstalk.com/eye-opening-facts-to-help-you-quit-smoking/)
-- [8 Interesting Facts about Sugar ...](https://diet.allwomenstalk.com/interesting-facts-about-sugar/)
+- [geographical facts about africa](https://travel.allwomenstalk.com/geographical-facts-of-africa/)
 - [Healthy You - Get Your Flu Shot](https://allwomenstalk.com/get-your-flu-shot-theres-plenty-to-go-around/)
 - [Fight the Flu](https://allwomenstalk.com/fight-the-flu/)
 

@@ -32,16 +32,16 @@ I have anxiety and depression and around 3 years ago I went through what I like 
 
 ## Related Posts
 
-- [Use Ginseng for Its Wondrous  Health Benefits ...](https://health.allwomenstalk.com/benefits-of-ginseng/)
-- [7 Reasons to Start  Every Day with Lemon Water ...](https://health.allwomenstalk.com/reasons-to-start-every-day-with-lemon-water/)
-- [8 Extraordinary Health Uses for Basil You Probably...](https://health.allwomenstalk.com/extraordinary-health-uses-for-basil-you-probably-dont-know/)
-- [3 Important Reasons Why Every Woman Needs to Drink...](https://health.allwomenstalk.com/why-women-should-drink-a-gallon-of-water-every-day/)
-- [11 Surprising Health Benefits of a Pedicure ...](https://beauty.allwomenstalk.com/health-benefits-of-a-pedicure/)
-- [Awesome Reasons Why You Should Drink Kombucha  ...](https://health.allwomenstalk.com/why-you-should-be-drinking-kombucha/)
 - [benefits of poke bowl](https://food.allwomenstalk.com/delicious-ways-to-eat-seaweed-for-the-benefits/)
-- [13 Benefits of Drinking Hot Water ...](https://health.allwomenstalk.com/benefits-of-drinking-hot-water/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/the-health-benefits-of-crispr/)
 - [Its Time to Ditch Your Plastic Straws for the Sake...](https://lifestyle.allwomenstalk.com/its-time-to-ditch-your-plastic-straws-for-the-sake-of-your-health-and-the-environment/)
+- [Use Ginseng for Its Wondrous  Health Benefits ...](https://health.allwomenstalk.com/benefits-of-ginseng/)
+- [Awesome Reasons Why You Should Drink Kombucha  ...](https://health.allwomenstalk.com/why-you-should-be-drinking-kombucha/)
+- [7 Reasons to Start  Every Day with Lemon Water ...](https://health.allwomenstalk.com/reasons-to-start-every-day-with-lemon-water/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/the-health-benefits-of-crispr/)
+- [11 Surprising Health Benefits of a Pedicure ...](https://beauty.allwomenstalk.com/health-benefits-of-a-pedicure/)
+- [13 Benefits of Drinking Hot Water ...](https://health.allwomenstalk.com/benefits-of-drinking-hot-water/)
+- [3 Important Reasons Why Every Woman Needs to Drink...](https://health.allwomenstalk.com/why-women-should-drink-a-gallon-of-water-every-day/)
+- [8 Extraordinary Health Uses for Basil You Probably...](https://health.allwomenstalk.com/extraordinary-health-uses-for-basil-you-probably-dont-know/)
 - [5 Things That Can Help You Relax Today...](https://allwomenstalk.com/5-things-that-can-help-you-relax-today/)
 - [10 Amazing Health Benefits of Sleep ...](https://allwomenstalk.com/10-amazing-health-benefits-of-sleep/)
 

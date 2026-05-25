@@ -56,16 +56,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/18174798)
 
 ## Related Posts
 
-- [sportsyou](https://lifestyle.allwomenstalk.com/water-sports-you-should-try/)
 - [7 Things to do While You Are Sick ...](https://health.allwomenstalk.com/7-things-to-do-while-you-are-sick/)
-- [party guests](https://lifestyle.allwomenstalk.com/sure-ways-to-keep-your-party-guests-happy/)
-- [10 fun things to do at home](https://lifestyle.allwomenstalk.com/fun-things-to-do-at-home/)
 - [picnic friendly food](https://lifestyle.allwomenstalk.com/great-picnic-basket-ideas-for-a-great-day-out/)
-- [sweet 16 cards](https://lifestyle.allwomenstalk.com/ideas-for-a-sweet-16-birthday-party/)
-- [things to do on break at work](https://lifestyle.allwomenstalk.com/fun-things-to-do-on-your-lunch-break/)
-- [fun things to do in an elevator](https://lifestyle.allwomenstalk.com/fun-things-to-do-in-an-elevator/)
-- [9 Ways to Throw an Awesome Holiday Party ...](https://lifestyle.allwomenstalk.com/ways-to-throw-an-awesome-holiday-party/)
+- [10 fun things to do at home](https://lifestyle.allwomenstalk.com/fun-things-to-do-at-home/)
+- [party guests](https://lifestyle.allwomenstalk.com/sure-ways-to-keep-your-party-guests-happy/)
 - [oh what a lovely tea party](https://lifestyle.allwomenstalk.com/tea-party-ideas/)
+- [9 Ways to Throw an Awesome Holiday Party ...](https://lifestyle.allwomenstalk.com/ways-to-throw-an-awesome-holiday-party/)
+- [fun things to do in an elevator](https://lifestyle.allwomenstalk.com/fun-things-to-do-in-an-elevator/)
+- [sweet 16 cards](https://lifestyle.allwomenstalk.com/ideas-for-a-sweet-16-birthday-party/)
+- [sportsyou](https://lifestyle.allwomenstalk.com/water-sports-you-should-try/)
+- [things to do on break at work](https://lifestyle.allwomenstalk.com/fun-things-to-do-on-your-lunch-break/)
 - [8 Ways to Exercise despite the Heat ...](https://weightloss.allwomenstalk.com/ways-to-exercise-despite-the-heat/)
 - [10 Best Ways to Beat a Hangover ...](https://allwomenstalk.com/10-best-ways-to-beat-a-hangover/)
 

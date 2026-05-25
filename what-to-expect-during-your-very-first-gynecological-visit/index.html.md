@@ -42,16 +42,16 @@ Have you had your first gynecologist visit? How did it go?
 
 ## Related Posts
 
-- [These Shocking Things Are Triggering Your Anxiety ...](https://health.allwomenstalk.com/these-shocking-things-are-triggering-your-anxiety-watch-out/)
-- [le stylo eye always pink](https://health.allwomenstalk.com/things-you-should-do-when-you-get-pink-eye/)
+- [10 Facts That Could End up Saving Your Life ...](https://lifestyle.allwomenstalk.com/facts-that-could-end-up-saving-your-life/)
+- [Do These Things to Reduce Risk of Breast Cancer .....](https://health.allwomenstalk.com/do-these-things-to-reduce-risk-of-breast-cancer/)
+- [Health Tests You Need to Schedule for Sometime  in...](https://health.allwomenstalk.com/schedule-these-health-tests-for-some-time-in/)
 - [7 Life Events That Can Lead to a Heart Attack ...](https://health.allwomenstalk.com/life-events-that-can-lead-to-a-heart-attack/)
 - [what are ten misconceptions about drinking](https://lifestyle.allwomenstalk.com/dangerous-misconceptions-about-alcohol/)
+- [le stylo eye always pink](https://health.allwomenstalk.com/things-you-should-do-when-you-get-pink-eye/)
+- [Your M.D. Must Know These 7 Things about You ...](https://health.allwomenstalk.com/your-m-d-must-know-these-things-about-you/)
+- [These Shocking Things Are Triggering Your Anxiety ...](https://health.allwomenstalk.com/these-shocking-things-are-triggering-your-anxiety-watch-out/)
 - [10 Things Most Women Dont Know about Their Bodies ...](https://health.allwomenstalk.com/things-most-women-dont-know-about-their-bodies/)
 - [The Answers to All of Your Embarrassing Period Que...](https://health.allwomenstalk.com/the-answers-to-all-of-your-embarrassing-period-questions/)
-- [Health Tests You Need to Schedule for Sometime  in...](https://health.allwomenstalk.com/schedule-these-health-tests-for-some-time-in/)
-- [Do These Things to Reduce Risk of Breast Cancer .....](https://health.allwomenstalk.com/do-these-things-to-reduce-risk-of-breast-cancer/)
-- [10 Facts That Could End up Saving Your Life ...](https://lifestyle.allwomenstalk.com/facts-that-could-end-up-saving-your-life/)
-- [Your M.D. Must Know These 7 Things about You ...](https://health.allwomenstalk.com/your-m-d-must-know-these-things-about-you/)
 - [5 Tips on Finding the Male G-Spot ...](https://allwomenstalk.com/finding-the-male-g-spot/)
 - [Top 10 Tips for Your First Period ...](https://allwomenstalk.com/top-10-tips-for-your-first-period/)
 

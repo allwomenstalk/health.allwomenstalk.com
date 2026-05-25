@@ -43,17 +43,17 @@ With the rise of the sober curious and a new generation of non-drinkers emerging
 ## Related Posts
 
 - [If I Only Knew then What I Know Now ...](https://allwomenstalk.com/if-i-only-knew-then-what-i-know-now/)
-- [Things That Make Me Go Mmm - and Think ...](https://allwomenstalk.com/things-that-make-me-go-mmm-and-think/)
-- [riche le stylo smoky eye blinged and brilliant](https://allwomenstalk.com/no-need-to-steal/)
-- [You Can Handle It ...](https://allwomenstalk.com/you-can-handle-it/)
-- [7 Things about Me](https://allwomenstalk.com/7-things-about-me/)
 - [What Really Matters ...](https://allwomenstalk.com/what-really-matters/)
 - [Jessica Faces Her Fears...and so Should You ...](https://allwomenstalk.com/jessica-faces-her-fearsand-so-should-you/)
+- [Things That Make Me Go Mmm - and Think ...](https://allwomenstalk.com/things-that-make-me-go-mmm-and-think/)
+- [ANOTHER 7 - Things about Me](https://allwomenstalk.com/another-7-things-about-me/)
 - [Obsession Can Change the World ...](https://allwomenstalk.com/obsession-can-change-the-world/)
+- [7 Things about Me](https://allwomenstalk.com/7-things-about-me/)
 - [Things That Are Not Wrong with Me 1-3.
 
 1. Head L....](https://allwomenstalk.com/things-that-are-not-wrong-with-me-1-31-head-l/)
-- [ANOTHER 7 - Things about Me](https://allwomenstalk.com/another-7-things-about-me/)
+- [You Can Handle It ...](https://allwomenstalk.com/you-can-handle-it/)
+- [riche le stylo smoky eye blinged and brilliant](https://allwomenstalk.com/no-need-to-steal/)
 - [7 Reasons Why Not Drinking is Just as Much Fun as ...](https://health.allwomenstalk.com/reasons-why-not-drinking-is-just-as-much-fun-as-drinking/)
 - [7 Reasons to Lay off Alcohol for Good ...](https://health.allwomenstalk.com/reasons-to-lay-off-alcohol-for-good/)
 

@@ -58,16 +58,16 @@ Social anxiety is still something that I struggle with and I'm often shy when it
 
 ## Related Posts
 
-- [7 Simple Yet Surprising Ways to Relieve Stress ...](https://health.allwomenstalk.com/simple-yet-surprising-ways-to-relieve-stress/)
-- [7 Ways to Handle Stress as an Online Student ...](https://lifestyle.allwomenstalk.com/ways-to-handle-stress-as-an-online-student/)
-- [7 Ways to Beat the Post-Holiday Blues ...](https://lifestyle.allwomenstalk.com/ways-to-beat-the-post-holiday-blues/)
-- [7 Awesome Tips on Dealing with Chronic Pain ...](https://health.allwomenstalk.com/awesome-tips-on-dealing-with-chronic-pain/)
-- [7 Ways to Cope with Perfectionism ...](https://inspiration.allwomenstalk.com/ways-to-cope-with-perfectionism/)
-- [7 Coping Skills to Combat Self-Harm ...](https://health.allwomenstalk.com/coping-skills-to-combat-self-harm/)
-- [7 Ways Stress is Hurting Your Health ...](https://health.allwomenstalk.com/ways-stress-is-hurting-your-health/)
-- [8 Ways to Beat Loneliness ...](https://lifestyle.allwomenstalk.com/ways-to-beat-loneliness/)
-- [tea that relieves stress](https://health.allwomenstalk.com/types-of-teas-for-stress-relief/)
 - [7 Reasons Exercising outside Can Help Prevent Depr...](https://fitness.allwomenstalk.com/reasons-exercising-outside-can-help-prevent-depression/)
+- [7 Simple Yet Surprising Ways to Relieve Stress ...](https://health.allwomenstalk.com/simple-yet-surprising-ways-to-relieve-stress/)
+- [7 Awesome Tips on Dealing with Chronic Pain ...](https://health.allwomenstalk.com/awesome-tips-on-dealing-with-chronic-pain/)
+- [7 Ways Stress is Hurting Your Health ...](https://health.allwomenstalk.com/ways-stress-is-hurting-your-health/)
+- [7 Ways to Beat the Post-Holiday Blues ...](https://lifestyle.allwomenstalk.com/ways-to-beat-the-post-holiday-blues/)
+- [tea that relieves stress](https://health.allwomenstalk.com/types-of-teas-for-stress-relief/)
+- [8 Ways to Beat Loneliness ...](https://lifestyle.allwomenstalk.com/ways-to-beat-loneliness/)
+- [7 Ways to Handle Stress as an Online Student ...](https://lifestyle.allwomenstalk.com/ways-to-handle-stress-as-an-online-student/)
+- [7 Coping Skills to Combat Self-Harm ...](https://health.allwomenstalk.com/coping-skills-to-combat-self-harm/)
+- [7 Ways to Cope with Perfectionism ...](https://inspiration.allwomenstalk.com/ways-to-cope-with-perfectionism/)
 - [5 Secrets to Overcome Fear ...](https://twilight.allwomenstalk.com/5-secrets-to-overcome-fear/)
 - [9 Easy Ways to Overcome Your Shyness ...](https://lifestyle.allwomenstalk.com/easy-ways-to-overcome-your-shyness/)
 

@@ -69,15 +69,15 @@ What makes you anxious? How do you fight it off?
 ## Related Posts
 
 - [le stylo eye always pink](https://health.allwomenstalk.com/things-you-should-do-when-you-get-pink-eye/)
-- [Your M.D. Must Know These 7 Things about You ...](https://health.allwomenstalk.com/your-m-d-must-know-these-things-about-you/)
-- [10 Facts That Could End up Saving Your Life ...](https://lifestyle.allwomenstalk.com/facts-that-could-end-up-saving-your-life/)
-- [Do These Things to Reduce Risk of Breast Cancer .....](https://health.allwomenstalk.com/do-these-things-to-reduce-risk-of-breast-cancer/)
-- [What is Your Stomach Pain Saying about Your Health](https://health.allwomenstalk.com/what-is-your-stomach-pain-saying-about-your-health/)
 - [7 Life Events That Can Lead to a Heart Attack ...](https://health.allwomenstalk.com/life-events-that-can-lead-to-a-heart-attack/)
 - [Health Tests You Need to Schedule for Sometime  in...](https://health.allwomenstalk.com/schedule-these-health-tests-for-some-time-in/)
-- [what are ten misconceptions about drinking](https://lifestyle.allwomenstalk.com/dangerous-misconceptions-about-alcohol/)
 - [7 Things You Should Know before Picking up an Egg ...](https://food.allwomenstalk.com/things-you-should-know-before-picking-up-an-egg-carton/)
+- [Do These Things to Reduce Risk of Breast Cancer .....](https://health.allwomenstalk.com/do-these-things-to-reduce-risk-of-breast-cancer/)
+- [10 Facts That Could End up Saving Your Life ...](https://lifestyle.allwomenstalk.com/facts-that-could-end-up-saving-your-life/)
+- [Your M.D. Must Know These 7 Things about You ...](https://health.allwomenstalk.com/your-m-d-must-know-these-things-about-you/)
+- [What is Your Stomach Pain Saying about Your Health](https://health.allwomenstalk.com/what-is-your-stomach-pain-saying-about-your-health/)
 - [10 Things Most Women Dont Know about Their Bodies ...](https://health.allwomenstalk.com/things-most-women-dont-know-about-their-bodies/)
+- [what are ten misconceptions about drinking](https://lifestyle.allwomenstalk.com/dangerous-misconceptions-about-alcohol/)
 - [5 Things to Fear and How to Conquer Them...](https://allwomenstalk.com/5-things-to-fear-and-how-to-conquer-them/)
 - [7 Warning Signs of Stress You Should Be Aware of ....](https://allwomenstalk.com/7-warning-signs-of-stress-you-should-be-aware-of/)
 

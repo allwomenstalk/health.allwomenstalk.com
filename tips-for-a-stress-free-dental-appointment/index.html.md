@@ -42,16 +42,16 @@ Does going to the dentist make you feel anxious? How do you deal? I’d love to 
 
 ## Related Posts
 
-- [what to do if you feel like you have depression](https://health.allwomenstalk.com/things-to-do-if-youre-feeling-depressed/)
 - [Get Silly when You Need to to De-Stress and Relax ...](https://funny.allwomenstalk.com/silly-ways-to-de-stress-and-just-relax/)
-- [7 Tips for Managing Stress during Finals Week ...](https://teen.allwomenstalk.com/tips-for-managing-stress-during-finals-week/)
-- [7 Super Easy Ways to Change How You Feel ...](https://inspiration.allwomenstalk.com/super-easy-ways-to-change-how-you-feel/)
-- [7 Ways for Students to Reduce Stress to Be Happier...](https://inspiration.allwomenstalk.com/ways-for-students-to-reduce-stress-to-be-happier/)
-- [7 Easy Ways to Deal with Christmas Depression ...](https://health.allwomenstalk.com/easy-ways-to-deal-with-christmas-depression/)
-- [7 Uncommon Activities for Stress Relief and Inner ...](https://health.allwomenstalk.com/uncommon-activities-for-stress-relief-and-inner-peace/)
-- [7 Simple Tips for Coping with Anxiety ...](https://health.allwomenstalk.com/simple-tips-for-coping-with-anxiety/)
-- [art therapy activities for self esteem](https://health.allwomenstalk.com/art-therapy-activities-you-can-try-at-home-to-de-stress/)
 - [Chill out with These Lesser Known Meditation Tips ...](https://health.allwomenstalk.com/lesser-known-tips-for-meditation/)
+- [7 Easy Ways to Deal with Christmas Depression ...](https://health.allwomenstalk.com/easy-ways-to-deal-with-christmas-depression/)
+- [7 Ways for Students to Reduce Stress to Be Happier...](https://inspiration.allwomenstalk.com/ways-for-students-to-reduce-stress-to-be-happier/)
+- [7 Simple Tips for Coping with Anxiety ...](https://health.allwomenstalk.com/simple-tips-for-coping-with-anxiety/)
+- [7 Super Easy Ways to Change How You Feel ...](https://inspiration.allwomenstalk.com/super-easy-ways-to-change-how-you-feel/)
+- [7 Uncommon Activities for Stress Relief and Inner ...](https://health.allwomenstalk.com/uncommon-activities-for-stress-relief-and-inner-peace/)
+- [what to do if you feel like you have depression](https://health.allwomenstalk.com/things-to-do-if-youre-feeling-depressed/)
+- [7 Tips for Managing Stress during Finals Week ...](https://teen.allwomenstalk.com/tips-for-managing-stress-during-finals-week/)
+- [art therapy activities for self esteem](https://health.allwomenstalk.com/art-therapy-activities-you-can-try-at-home-to-de-stress/)
 - [7 Practical Tips to Deal with Headaches ...](https://health.allwomenstalk.com/practical-tips-to-deal-with-headaches/)
 - [7 Ways to Handle Holiday Stress ...](https://health.allwomenstalk.com/ways-to-handle-holiday-stress/)
 

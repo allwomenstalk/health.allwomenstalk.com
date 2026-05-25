@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/5320645)
 
 ## Related Posts
 
+- [how to get ready in the morning faster](https://lifestyle.allwomenstalk.com/amazing-ways-to-get-ready-faster-in-the-morning/)
+- [bf gf sleeping photo](https://travel.allwomenstalk.com/ways-to-deal-with-jet-lag/)
+- [what fruits to eat before bed](https://diet.allwomenstalk.com/worst-things-to-eat-before-bed/)
+- [reasons why i cant sleep at night](https://health.allwomenstalk.com/good-reasons-that-you-cant-sleep-at-night/)
+- [awake sentence for class 7](https://lifestyle.allwomenstalk.com/tips-on-staying-awake-during-class-that-will-work/)
+- [best app for going to sleep](https://apps.allwomenstalk.com/apps-that-help-you-sleep-better/)
 - [things that help sleep](https://health.allwomenstalk.com/things-to-help-you-sleep-better/)
 - [how to wake up without caffeine](https://health.allwomenstalk.com/ways-to-wake-up-without-caffeine-that-work/)
-- [how to get ready in the morning faster](https://lifestyle.allwomenstalk.com/amazing-ways-to-get-ready-faster-in-the-morning/)
 - [10 benefits of sleep](https://beauty.allwomenstalk.com/beauty-benefits-of-a-good-nights-sleep/)
-- [awake sentence for class 7](https://lifestyle.allwomenstalk.com/tips-on-staying-awake-during-class-that-will-work/)
-- [what fruits to eat before bed](https://diet.allwomenstalk.com/worst-things-to-eat-before-bed/)
-- [bf gf sleeping photo](https://travel.allwomenstalk.com/ways-to-deal-with-jet-lag/)
 - [what do i do if im bored in class](https://lifestyle.allwomenstalk.com/ways-to-stay-awake-during-a-boring-class/)
-- [best app for going to sleep](https://apps.allwomenstalk.com/apps-that-help-you-sleep-better/)
-- [reasons why i cant sleep at night](https://health.allwomenstalk.com/good-reasons-that-you-cant-sleep-at-night/)
 - [8 Ways to Be More Energetic ...](https://health.allwomenstalk.com/ways-to-be-more-energetic/)
 - [8 Ways to Start Your Day Fresh and Focused ...](https://health.allwomenstalk.com/ways-to-start-your-day-fresh-and-focused/)
 

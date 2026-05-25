@@ -48,16 +48,16 @@ Top Photo Credit: [Ocell](https://www.flickr.com/photos/ocell/54794587/)
 
 ## Related Posts
 
-- [dwane needs to be careful about eating carbohydrat...](https://allwomenstalk.com/10-ways-to-prevent-depression/)
-- [green health acupressure services](https://health.allwomenstalk.com/spots-to-massage-your-stress-away/)
-- [8 Ways of Dealing with Stress at School ...](https://lifestyle.allwomenstalk.com/ways-of-dealing-with-stress-at-school/)
 - [8 Most Common Passion-Killers and How to Stop Them...](https://allwomenstalk.com/8-most-common-passion-killers-and-how-to-stop-them/)
-- [top 10 ways to fight depression](https://allwomenstalk.com/10-ways-to-fight-depression/)
-- [How to Reduce Stress ...](https://allwomenstalk.com/how-to-reduce-stress/)
 - [how to get over an obsession](https://lifestyle.allwomenstalk.com/ways-to-stop-being-obsessive/)
+- [8 Ways of Dealing with Stress at School ...](https://lifestyle.allwomenstalk.com/ways-of-dealing-with-stress-at-school/)
 - [Ease the Stress of Flying with a Soothing Eye Pill...](https://allwomenstalk.com/ease-the-stress-of-flying-with-a-soothing-eye-pillow/)
 - [New Years Resolution - Less Stress](https://allwomenstalk.com/new-years-resolution-less-stress/)
 - [make time for myself](https://allwomenstalk.com/how-to-make-time-for-yourself/)
+- [How to Reduce Stress ...](https://allwomenstalk.com/how-to-reduce-stress/)
+- [top 10 ways to fight depression](https://allwomenstalk.com/10-ways-to-fight-depression/)
+- [green health acupressure services](https://health.allwomenstalk.com/spots-to-massage-your-stress-away/)
+- [dwane needs to be careful about eating carbohydrat...](https://allwomenstalk.com/10-ways-to-prevent-depression/)
 - [Easy Stress-Busting Tips to Set You Free ...](https://allwomenstalk.com/easy-stress-busting-tips-to-set-you-free/)
 - [10 Ways to Eliminate Stress at Work ...](https://allwomenstalk.com/10-ways-to-eliminate-stress-at-work/)
 
