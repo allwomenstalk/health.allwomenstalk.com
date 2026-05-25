@@ -3,7 +3,7 @@ title: "7 Mentalities That Keep You from Getting Healthy and How to Fix Them ...
 description: "“I’ll Never Look like Her.”; “I Have a Slow Metabolism.”; “Diets and Exercise Never Work for Me.”; “I’m Just Naturally Big Boned.”; “I Have No Self-discipline or Self-control.”; More ..."
 url: "https://health.allwomenstalk.com/mentalities-that-keep-you-from-getting-healthy-and-how-to-fix-them/"
 category: "health"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Mentalities That Keep You from Getting Healthy and How to Fix Them ...
@@ -42,16 +42,16 @@ You’ve banished the chips and soda. But have you banished the unhealthy mental
 
 ## Related Posts
 
-- [Seeking Excitement Every Day Will Improve Your Lif...](https://inspiration.allwomenstalk.com/ways-seeking-everyday-excitement-can-improve-your-life/)
-- [7 Vital Pieces of Advice for Teens Struggling to L...](https://teen.allwomenstalk.com/vital-pieces-of-advice-for-teens-struggling-to-love-themselves/)
-- [Uplifting Ways to Feel Accomplished Every Single D...](https://inspiration.allwomenstalk.com/ways-to-feel-accomplished-every-single-day/)
-- [Want to Fly High with Health and Happiness for the...](https://health.allwomenstalk.com/want-to-fly-high-with-health-and-happiness-for-the-new-year-heres-how/)
-- [7 Habits of Productive People to Incorporate into ...](https://inspiration.allwomenstalk.com/habits-of-productive-people-to-incorporate-into-your-life/)
-- [7 Really Important Resolutions You Should Make and...](https://inspiration.allwomenstalk.com/really-important-resolutions-you-should-make-and-keep-this-year/)
 - [how can i help make the world a better place](https://inspiration.allwomenstalk.com/ways-you-can-help-make-the-world-a-better-place/)
+- [7 Vital Pieces of Advice for Teens Struggling to L...](https://teen.allwomenstalk.com/vital-pieces-of-advice-for-teens-struggling-to-love-themselves/)
+- [Seeking Excitement Every Day Will Improve Your Lif...](https://inspiration.allwomenstalk.com/ways-seeking-everyday-excitement-can-improve-your-life/)
 - [little changes](https://inspiration.allwomenstalk.com/little-changes-in-your-life-that-can-make-a-big-difference/)
-- [7 TED Talks about Happiness to Make You Smile ...](https://inspiration.allwomenstalk.com/ted-talks-about-happiness-to-make-you-smile/)
+- [7 Really Important Resolutions You Should Make and...](https://inspiration.allwomenstalk.com/really-important-resolutions-you-should-make-and-keep-this-year/)
 - [Discover How to Hold Yourself Accountable for Your...](https://inspiration.allwomenstalk.com/ways-to-hold-yourself-accountable-for-your-life/)
+- [7 TED Talks about Happiness to Make You Smile ...](https://inspiration.allwomenstalk.com/ted-talks-about-happiness-to-make-you-smile/)
+- [Want to Fly High with Health and Happiness for the...](https://health.allwomenstalk.com/want-to-fly-high-with-health-and-happiness-for-the-new-year-heres-how/)
+- [Uplifting Ways to Feel Accomplished Every Single D...](https://inspiration.allwomenstalk.com/ways-to-feel-accomplished-every-single-day/)
+- [7 Habits of Productive People to Incorporate into ...](https://inspiration.allwomenstalk.com/habits-of-productive-people-to-incorporate-into-your-life/)
 - [9 Mindsets That Make Losing Weight Harder ...](https://weightloss.allwomenstalk.com/9-mindsets-that-make-losing-weight-harder/)
 - [7 Unhealthy Habits and How to Stop Them ...](https://health.allwomenstalk.com/unhealthy-habits-and-how-to-stop-them/)
 

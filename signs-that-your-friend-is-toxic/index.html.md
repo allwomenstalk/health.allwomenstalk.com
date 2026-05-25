@@ -3,7 +3,7 @@ title: "8 Signs That Your Friend is Toxic ..."
 description: "She Only Calls when She Needs Something; It’s All about Her; Being around Her Wears You out; She Mocks You; She Gossips about You; More ..."
 url: "https://health.allwomenstalk.com/signs-that-your-friend-is-toxic/"
 category: "health"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 8 Signs That Your Friend is Toxic ...
@@ -49,15 +49,15 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/18258353)
 ## Related Posts
 
 - [signs its time to move on](https://love.allwomenstalk.com/sure-signs-its-time-to-move-on/)
-- [7 Clear Signs of Emotional Abuse ...](https://health.allwomenstalk.com/clear-signs-of-emotional-aubse/)
-- [9 Ways to Tell if You Are in an Emotionally Abusiv...](https://love.allwomenstalk.com/ways-to-tell-if-you-are-in-an-emotionally-abusive-relationship/)
-- [7 Warning Signs of a Toxic Relationship ...](https://love.allwomenstalk.com/warning-signs-of-a-toxic-relationship/)
-- [casual dater](https://love.allwomenstalk.com/signs-you-are-not-a-casual-dater/)
 - [7 Ways to Tell if He is Lying ...](https://love.allwomenstalk.com/ways-to-tell-if-he-is-lying/)
-- [8 Ways to Tell if a Guy is Lying ...](https://love.allwomenstalk.com/ways-to-tell-if-a-guy-is-lying/)
+- [9 Ways to Tell if You Are in an Emotionally Abusiv...](https://love.allwomenstalk.com/ways-to-tell-if-you-are-in-an-emotionally-abusive-relationship/)
 - [7 Sure Signs Youre Ready for Marriage ...](https://love.allwomenstalk.com/sure-signs-youre-ready-for-marriage/)
-- [while analyzing sonias features you noticed that s...](https://lifestyle.allwomenstalk.com/signs-its-a-toxic-friendship/)
 - [signs he is sabotaging the relationship](https://love.allwomenstalk.com/signs-you-are-sabotaging-your-relationship/)
+- [casual dater](https://love.allwomenstalk.com/signs-you-are-not-a-casual-dater/)
+- [7 Warning Signs of a Toxic Relationship ...](https://love.allwomenstalk.com/warning-signs-of-a-toxic-relationship/)
+- [8 Ways to Tell if a Guy is Lying ...](https://love.allwomenstalk.com/ways-to-tell-if-a-guy-is-lying/)
+- [while analyzing sonias features you noticed that s...](https://lifestyle.allwomenstalk.com/signs-its-a-toxic-friendship/)
+- [7 Clear Signs of Emotional Abuse ...](https://health.allwomenstalk.com/clear-signs-of-emotional-aubse/)
 - [10 Signs Your Friend is in an Abusive Relationship...](https://allwomenstalk.com/10-signs-your-friend-is-in-an-abused-relationship/)
 - [8 Ways to Identify Toxic People ...](https://allwomenstalk.com/8-ways-to-identify-toxic-people/)
 

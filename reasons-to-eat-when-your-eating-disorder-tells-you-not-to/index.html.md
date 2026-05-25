@@ -3,7 +3,7 @@ title: "7 Reasons to Eat when Your Eating Disorder Tells You Not to ..."
 description: "You Need It to Live; Fuel; Eat Regardless; Food is Not the Enemy; To Focus; More ..."
 url: "https://health.allwomenstalk.com/reasons-to-eat-when-your-eating-disorder-tells-you-not-to/"
 category: "health"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Reasons to Eat when Your Eating Disorder Tells You Not to ...
@@ -43,15 +43,15 @@ Recovering from an eating disorder may not be easy but it is worth it. And the o
 ## Related Posts
 
 - [food trauma childhood](https://diet.allwomenstalk.com/ways-your-childhood-can-reveal-about-your-relationship-with-food/)
-- [7 Causes of Poor Digestion You Shouldnt Ignore ...](https://vityle.com/causes-of-poor-digestion-you-shouldnt-ignore/)
-- [7 Reasons to Steer Clear of Juice Cleanses ...](https://health.allwomenstalk.com/reasons-to-steer-clear-of-juice-cleanses/)
-- [7 Reasons to Eat Superfoods when Youre Dieting ...](https://diet.allwomenstalk.com/reasons-to-eat-superfoods-when-youre-dieting/)
-- [7 Cooking Mistakes to Avoid While Dieting ...](https://diet.allwomenstalk.com/cooking-mistakes-to-avoid-while-dieting/)
 - [7 Reasons to Reject a One Size Fits All Attitude a...](https://health.allwomenstalk.com/reasons-to-reject-a-one-size-fits-all-attitude-and-learn-to-be-healthy/)
+- [7 Causes of Poor Digestion You Shouldnt Ignore ...](https://vityle.com/causes-of-poor-digestion-you-shouldnt-ignore/)
 - [7 Reasons Why Your Diet is Making You Tired ...](https://diet.allwomenstalk.com/reasons-why-your-diet-is-making-you-tired/)
-- [7 Things You Need to Know about Juice Fasts ...](https://diet.allwomenstalk.com/things-you-need-to-know-about-juice-fasts/)
-- [7 Really Important Health and Fitness Reasons You ...](https://fitness.allwomenstalk.com/really-important-health-and-fitness-reasons-you-should-eat-breakfast/)
+- [7 Reasons to Steer Clear of Juice Cleanses ...](https://health.allwomenstalk.com/reasons-to-steer-clear-of-juice-cleanses/)
 - [7 Things I Learned about My Health from My Eating ...](https://health.allwomenstalk.com/things-i-learned-about-my-health-from-my-eating-disorder/)
+- [7 Reasons to Eat Superfoods when Youre Dieting ...](https://diet.allwomenstalk.com/reasons-to-eat-superfoods-when-youre-dieting/)
+- [7 Things You Need to Know about Juice Fasts ...](https://diet.allwomenstalk.com/things-you-need-to-know-about-juice-fasts/)
+- [7 Cooking Mistakes to Avoid While Dieting ...](https://diet.allwomenstalk.com/cooking-mistakes-to-avoid-while-dieting/)
+- [7 Really Important Health and Fitness Reasons You ...](https://fitness.allwomenstalk.com/really-important-health-and-fitness-reasons-you-should-eat-breakfast/)
 - [7 Reasons Not to Diet ...](https://diet.allwomenstalk.com/7-reasons-not-to-diet/)
 - [7 Signs That Your Child is Developing an Eating Di...](https://allwomenstalk.com/7-signs-that-your-child-is-developing-an-eating-disorder/)
 

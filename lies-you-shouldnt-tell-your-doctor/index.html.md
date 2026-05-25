@@ -3,7 +3,7 @@ title: "7 Lies You Shouldnt Tell Your Doctor ..."
 description: "I Don’t Drink Regularly…; I Eat Well…; My Digestive System is Fine…; I’m Not Taking Any Meds…; I’m Practicing Safe Sex…; More ..."
 url: "https://health.allwomenstalk.com/lies-you-shouldnt-tell-your-doctor/"
 category: "health"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Lies You Shouldnt Tell Your Doctor ...
@@ -42,16 +42,16 @@ If you can, it’s always easiest to be completely honest and upfront about your
 
 ## Related Posts
 
-- [10 Things You Should Know about Your Muscles ...](https://fitene.com/things-you-should-know-about-your-muscles/)
-- [8 Modern Health Issues and How to Solve Them ...](https://health.allwomenstalk.com/modern-health-issues-and-how-to-solve-them/)
-- [7 Things You Need to Know about Perimenopause ...](https://health.allwomenstalk.com/things-you-need-to-know-about-perimenopause/)
-- [7 Crucial Things Every Woman Should Know about Men...](https://health.allwomenstalk.com/crucial-things-every-woman-should-know-about-menopause/)
-- [8 Extremely Useful Tips for Living with PCOS ...](https://health.allwomenstalk.com/tips-for-living-with-pcos/)
-- [7 Things You Absolutely Need to Know about GMOs .....](https://food.allwomenstalk.com/things-you-need-to-know-about-gmos/)
-- [9 Complementary Therapies Introduced and Explained...](https://health.allwomenstalk.com/complementary-therapies-introduced-and-explained/)
-- [7 Common Misconceptions about Female Contraception...](https://health.allwomenstalk.com/common-misconceptions-about-female-contraception/)
 - [10 Facts You Should Know about Your Heart ...](https://health.allwomenstalk.com/facts-about-your-heart/)
+- [10 Things You Should Know about Your Muscles ...](https://fitene.com/things-you-should-know-about-your-muscles/)
+- [7 Crucial Things Every Woman Should Know about Men...](https://health.allwomenstalk.com/crucial-things-every-woman-should-know-about-menopause/)
+- [9 Complementary Therapies Introduced and Explained...](https://health.allwomenstalk.com/complementary-therapies-introduced-and-explained/)
+- [8 Extremely Useful Tips for Living with PCOS ...](https://health.allwomenstalk.com/tips-for-living-with-pcos/)
 - [7 Common Myths about Older Adults You Should Know ...](https://lifestyle.allwomenstalk.com/common-myths-about-older-adults-you-should-know/)
+- [7 Common Misconceptions about Female Contraception...](https://health.allwomenstalk.com/common-misconceptions-about-female-contraception/)
+- [8 Modern Health Issues and How to Solve Them ...](https://health.allwomenstalk.com/modern-health-issues-and-how-to-solve-them/)
+- [7 Things You Absolutely Need to Know about GMOs .....](https://food.allwomenstalk.com/things-you-need-to-know-about-gmos/)
+- [7 Things You Need to Know about Perimenopause ...](https://health.allwomenstalk.com/things-you-need-to-know-about-perimenopause/)
 - [11 Things to Never Tell Your Man ...](https://allwomenstalk.com/11-things-to-never-tell-your-man/)
 - [9 Lies People Tell and Why ...](https://allwomenstalk.com/9-lies-people-tell-and-why/)
 

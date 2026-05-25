@@ -3,7 +3,7 @@ title: "7 Things to Avoid when You Quit Smoking ..."
 description: "Smoke-filled Places; Being Alone with Friends Who Will Pressure You to Smoke; Candy; Junk Food; Eating Because You Are Bored; More ..."
 url: "https://health.allwomenstalk.com/7-things-to-avoid-when-you-quit-smoking/"
 category: "health"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Things to Avoid when You Quit Smoking ...
@@ -44,16 +44,16 @@ Top Photo Credit: [sendroiu](https://www.flickr.com/photos/7537146@N06/357732191
 
 ## Related Posts
 
-- [le stylo timeless spark](https://lifestyle.allwomenstalk.com/table-manners-you-dont-want-to-forget/)
-- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/worst-interview-mistakes/)
-- [stop saying if you will](https://lifestyle.allwomenstalk.com/negative-things-you-should-stop-saying/)
-- [stylo primped previous](https://hair.allwomenstalk.com/things-that-wont-help-grow-your-hair-faster/)
-- [lgbt sterotypes](https://lifestyle.allwomenstalk.com/common-gay-stereotypes-you-should-avoid/)
-- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
-- [8 Habits That Are Bad for Your Heart ...](https://health.allwomenstalk.com/8-habits-that-are-bad-for-your-heart/)
 - [7 things you should always keep secret](https://lifestyle.allwomenstalk.com/things-you-should-keep-secret/)
-- [7 Things to Stop Doing Right Now ...](https://health.allwomenstalk.com/things-to-stop-doing-right-now/)
+- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/worst-interview-mistakes/)
 - [10 Things That Are Ruining Your Smile ...](https://health.allwomenstalk.com/10-things-that-are-ruining-your-smile/)
+- [7 Things to Stop Doing Right Now ...](https://health.allwomenstalk.com/things-to-stop-doing-right-now/)
+- [lgbt sterotypes](https://lifestyle.allwomenstalk.com/common-gay-stereotypes-you-should-avoid/)
+- [stylo primped previous](https://hair.allwomenstalk.com/things-that-wont-help-grow-your-hair-faster/)
+- [le stylo timeless spark](https://lifestyle.allwomenstalk.com/table-manners-you-dont-want-to-forget/)
+- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
+- [stop saying if you will](https://lifestyle.allwomenstalk.com/negative-things-you-should-stop-saying/)
+- [8 Habits That Are Bad for Your Heart ...](https://health.allwomenstalk.com/8-habits-that-are-bad-for-your-heart/)
 - [7 Worst Jobs for the Health of Your Lungs ...](https://health.allwomenstalk.com/7-worst-jobs-for-the-health-of-your-lungs/)
 - [7 Reasons to Quit Smoking ...](https://allwomenstalk.com/7-reasons-to-quit-smoking/)
 

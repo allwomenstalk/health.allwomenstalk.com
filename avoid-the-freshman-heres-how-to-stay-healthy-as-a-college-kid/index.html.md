@@ -3,7 +3,7 @@ title: "Avoid the Freshman 15 - Heres How to Stay Healthy as a College Kid ..."
 description: "Don’t Skip Meals; Keep Healthy Snacks on Hand; Don’t Drink Your Calories; Try to Stay Active; Fuel up in the a.M; More ..."
 url: "https://health.allwomenstalk.com/avoid-the-freshman-heres-how-to-stay-healthy-as-a-college-kid/"
 category: "health"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Avoid the Freshman 15 \- Heres How to Stay Healthy as a College Kid ...
@@ -42,16 +42,16 @@ College life can be stressful on it’s own, so why add one more thing to worry 
 
 ## Related Posts
 
-- [Money Lessons You Learn when in College ...](https://money.allwomenstalk.com/money-lessons-you-learn-when-in-college/)
-- [How to Have Fun in College without Spending a Dime...](https://money.allwomenstalk.com/how-to-have-fun-in-college-without-spending-a-dime/)
-- [Heading to College  Heres How to Make the Most of ...](https://teen.allwomenstalk.com/heres-how-to-make-the-most-of-your-last-summer-before-college/)
-- [7 Lifesaving Tips for Filling out Those Endless Co...](https://teen.allwomenstalk.com/lifesaving-tips-for-filling-out-those-endless-college-applications/)
-- [Be Your Own Boss: How College Kids Can Make Money ...](https://money.allwomenstalk.com/be-your-own-boss-how-college-kids-can-make-money-without-an-actual-job/)
-- [Schools Almost out Dont Make These Post-Grad Money...](https://money.allwomenstalk.com/schools-almost-out-dont-make-these-post-grad-money-mistakes/)
-- [shhh secrets reviews](https://teen.allwomenstalk.com/shhh-no-one-ever-tells-you-these-secrets-about-college/)
-- [Beat the School Blues - Tips for a Lazy Student .....](https://teen.allwomenstalk.com/beat-the-school-blues-life-hacks-for-a-lazy-student/)
 - [7 Things to do during Your Study Break That Can Ac...](https://teen.allwomenstalk.com/things-to-do-during-your-study-break-that-can-actually-help-you-get-a-better-grade/)
+- [7 Lifesaving Tips for Filling out Those Endless Co...](https://teen.allwomenstalk.com/lifesaving-tips-for-filling-out-those-endless-college-applications/)
 - [sufficient skills](https://teen.allwomenstalk.com/self-sufficient-skills-thatll-help-you-when-you-reach-college/)
+- [Schools Almost out Dont Make These Post-Grad Money...](https://money.allwomenstalk.com/schools-almost-out-dont-make-these-post-grad-money-mistakes/)
+- [Heading to College  Heres How to Make the Most of ...](https://teen.allwomenstalk.com/heres-how-to-make-the-most-of-your-last-summer-before-college/)
+- [Beat the School Blues - Tips for a Lazy Student .....](https://teen.allwomenstalk.com/beat-the-school-blues-life-hacks-for-a-lazy-student/)
+- [How to Have Fun in College without Spending a Dime...](https://money.allwomenstalk.com/how-to-have-fun-in-college-without-spending-a-dime/)
+- [Be Your Own Boss: How College Kids Can Make Money ...](https://money.allwomenstalk.com/be-your-own-boss-how-college-kids-can-make-money-without-an-actual-job/)
+- [Money Lessons You Learn when in College ...](https://money.allwomenstalk.com/money-lessons-you-learn-when-in-college/)
+- [shhh secrets reviews](https://teen.allwomenstalk.com/shhh-no-one-ever-tells-you-these-secrets-about-college/)
 - [7 Ways to Avoid the Freshman 15 ...](https://weightloss.allwomenstalk.com/ways-to-avoid-the-freshman-15/)
 - [23 Healthy Ways to Lose Weight ...](https://allwomenstalk.com/losing-weight-the-healthy-way/)
 

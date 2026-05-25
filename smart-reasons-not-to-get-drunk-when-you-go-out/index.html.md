@@ -3,7 +3,7 @@ title: "7 Smart Reasons Not to Get Drunk when You Go out ..."
 description: "Personal Safety; Health & Injury; Hangovers; Driving; Enjoyable?; More ..."
 url: "https://health.allwomenstalk.com/smart-reasons-not-to-get-drunk-when-you-go-out/"
 category: "health"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Smart Reasons Not to Get Drunk when You Go out ...
@@ -43,16 +43,16 @@ Having a couple of drinks with friends is one thing; getting drunk is another. I
 
 ## Related Posts
 
-- [7 Reasons to Break up with a Toxic Friend ...](https://lifestyle.allwomenstalk.com/reasons-to-break-up-with-a-toxic-friend/)
+- [7 Reasons Not to Take a  Sickie off Work ...](https://money.allwomenstalk.com/reasons-not-to-take-a-sickie-off-work/)
+- [11 Reasons Why the Worst Co-Workers Are the Most S...](https://funny.allwomenstalk.com/reasons-why-the-worst-co-workers-are-the-most-successful/)
 - [7 Possible Causes of Teenage Depression ...](https://teen.allwomenstalk.com/possible-causes-of-teenage-depression/)
+- [disadvantages of popping pimples](https://skincare.allwomenstalk.com/majorly-important-reasons-not-to-pop-a-pimple/)
+- [Should You Ever Ditch a Friend for Good ...](https://inspiration.allwomenstalk.com/reasons-to-ditch-a-friend-for-good/)
 - [7 Possible Reasons You May Not Have an Early Retir...](https://money.allwomenstalk.com/possible-reasons-you-may-not-have-an-early-retirement/)
 - [7 Reasons to do Those Things You Hate on Your to d...](https://inspiration.allwomenstalk.com/reasons-to-do-those-things-you-hate-on-your-to-do-list/)
-- [disadvantages of popping pimples](https://skincare.allwomenstalk.com/majorly-important-reasons-not-to-pop-a-pimple/)
-- [Understanding Why Its Cool to Embrace the Single L...](https://love.allwomenstalk.com/reasons-why-its-okay-to-be-single/)
-- [7 Reasons Not to Take a  Sickie off Work ...](https://money.allwomenstalk.com/reasons-not-to-take-a-sickie-off-work/)
-- [Should You Ever Ditch a Friend for Good ...](https://inspiration.allwomenstalk.com/reasons-to-ditch-a-friend-for-good/)
 - [7 Reasons You Wont Enjoy Sharing a House when Your...](https://lifestyle.allwomenstalk.com/reasons-you-wont-enjoy-sharing-a-house-when-youre-over-30/)
-- [11 Reasons Why the Worst Co-Workers Are the Most S...](https://funny.allwomenstalk.com/reasons-why-the-worst-co-workers-are-the-most-successful/)
+- [Understanding Why Its Cool to Embrace the Single L...](https://love.allwomenstalk.com/reasons-why-its-okay-to-be-single/)
+- [7 Reasons to Break up with a Toxic Friend ...](https://lifestyle.allwomenstalk.com/reasons-to-break-up-with-a-toxic-friend/)
 - [10 Incredibly Smart Reasons Not to Drink at Holida...](https://lifestyle.allwomenstalk.com/incredibly-smart-reasons-not-to-drink-at-holiday-parties/)
 - [8 Reasons to Say No to Drugs ...](https://allwomenstalk.com/8-reasons-to-say-no-to-drugs/)
 

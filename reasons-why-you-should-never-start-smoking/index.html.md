@@ -3,7 +3,7 @@ title: "7 Reasons Why You Should Never Start Smoking ..."
 description: "Smoking is an Addiction; It’s an Expensive Habit; It’s Inconvenient; L’eau De Ashtray; Hello Yellow Nails; More ..."
 url: "https://health.allwomenstalk.com/reasons-why-you-should-never-start-smoking/"
 category: "health"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Reasons Why You Should Never Start Smoking ...
@@ -42,16 +42,16 @@ Add obvious health risks and you tell me – isn’t smoking a totally stupid id
 
 ## Related Posts
 
-- [benefits of being single funny](https://funny.allwomenstalk.com/funny-but-true-reasons-being-single-is-great/)
+- [what to do when your man is giving you attitude](https://love.allwomenstalk.com/reasons-why-your-boyfriend-is-being-mean/)
+- [why does body want to bring the phone home](https://lifestyle.allwomenstalk.com/reasons-to-leave-your-phone-at-home/)
 - [ditch the gym](https://fitness.allwomenstalk.com/reasons-to-ditch-the-gym/)
 - [a good friend should be honest](https://inspiration.allwomenstalk.com/reasons-to-be-an-honest-friend/)
-- [to keep up with the joneses](https://inspiration.allwomenstalk.com/reasons-to-stop-keeping-up-with-the-joneses/)
-- [what to do when your man is giving you attitude](https://love.allwomenstalk.com/reasons-why-your-boyfriend-is-being-mean/)
-- [why is he rude to me for no reason](https://teen.allwomenstalk.com/reasons-why-a-girl-is-mean-to-you/)
 - [what is not airbrushing](https://beauty.allwomenstalk.com/reasons-not-to-be-influenced-by-airbrushed-images/)
-- [redhead hair scrunchies](https://hair.allwomenstalk.com/reasons-to-ignore-teasing-about-being-a-redhead/)
+- [to keep up with the joneses](https://inspiration.allwomenstalk.com/reasons-to-stop-keeping-up-with-the-joneses/)
 - [26 and still single](https://love.allwomenstalk.com/reasons-why-you-are-still-single/)
-- [why does body want to bring the phone home](https://lifestyle.allwomenstalk.com/reasons-to-leave-your-phone-at-home/)
+- [redhead hair scrunchies](https://hair.allwomenstalk.com/reasons-to-ignore-teasing-about-being-a-redhead/)
+- [why is he rude to me for no reason](https://teen.allwomenstalk.com/reasons-why-a-girl-is-mean-to-you/)
+- [benefits of being single funny](https://funny.allwomenstalk.com/funny-but-true-reasons-being-single-is-great/)
 - [7 Reasons Why You Should Become Vegetarian ...](https://diet.allwomenstalk.com/reasons-why-you-should-become-vegetarian/)
 - [8 Reasons to Say No to Drugs ...](https://allwomenstalk.com/8-reasons-to-say-no-to-drugs/)
 

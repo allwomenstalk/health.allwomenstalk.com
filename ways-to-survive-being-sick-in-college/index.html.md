@@ -3,7 +3,7 @@ title: "7 Ways to Survive Being Sick in College ..."
 description: "Don’t Skip Class; But Get Your Rest; Drink up; Take Advantage of School Resources; Email Your Professors; More ..."
 url: "https://health.allwomenstalk.com/ways-to-survive-being-sick-in-college/"
 category: "health"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Ways to Survive Being Sick in College ...
@@ -44,16 +44,16 @@ Follow these tips and you will be healthy in no time. knowing ow to cope with be
 
 ## Related Posts
 
-- [7 Sure Ways to Ace a Boring Class ...](https://teen.allwomenstalk.com/sure-ways-to-ace-a-boring-class/)
+- [7 Reasons to Apply to Californian Colleges ...](https://teen.allwomenstalk.com/reasons-to-apply-to-californian-colleges/)
+- [7 Ways to Study for an Exam when You Have a Week t...](https://teen.allwomenstalk.com/ways-to-study-for-an-exam-when-you-have-a-week-to-go/)
 - [things to do before you graduate high school](https://teen.allwomenstalk.com/things-to-do-before-you-graduate-high-school/)
-- [7 Extracurricular Activities to Try While in Colle...](https://lifestyle.allwomenstalk.com/extracurricular-activities-to-try-while-in-college/)
-- [how to stay motivated in college](https://lifestyle.allwomenstalk.com/great-ways-to-stay-motivated-in-college/)
 - [7 Motivating Factors to Help You Survive the Schoo...](https://teen.allwomenstalk.com/motivating-factors-to-help-you-survive-the-school-year/)
+- [7 Extracurricular Activities to Try While in Colle...](https://lifestyle.allwomenstalk.com/extracurricular-activities-to-try-while-in-college/)
 - [7 Ways to Prepare for a College Interview ...](https://lifestyle.allwomenstalk.com/ways-to-prepare-for-a-college-interview/)
 - [7 Ways to Prepare for the May Test Season ...](https://teen.allwomenstalk.com/ways-to-prepare-for-the-may-test-season/)
-- [7 Ways to Study for an Exam when You Have a Week t...](https://teen.allwomenstalk.com/ways-to-study-for-an-exam-when-you-have-a-week-to-go/)
-- [7 Reasons to Apply to Californian Colleges ...](https://teen.allwomenstalk.com/reasons-to-apply-to-californian-colleges/)
+- [7 Sure Ways to Ace a Boring Class ...](https://teen.allwomenstalk.com/sure-ways-to-ace-a-boring-class/)
 - [7 Great Colleges in New York to Consider Applying ...](https://teen.allwomenstalk.com/great-colleges-in-new-york-to-consider-applying-to/)
+- [how to stay motivated in college](https://lifestyle.allwomenstalk.com/great-ways-to-stay-motivated-in-college/)
 - [7 Things to do While You Are Sick ...](https://health.allwomenstalk.com/7-things-to-do-while-you-are-sick/)
 - [7 Tips for Coping with Long-Term Health Conditions...](https://health.allwomenstalk.com/7-tips-for-coping-with-long-term-health-conditions/)
 

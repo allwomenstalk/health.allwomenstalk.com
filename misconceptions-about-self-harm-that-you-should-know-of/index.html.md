@@ -3,7 +3,7 @@ title: "7 Misconceptions about Self-Harm That You Should Know of ..."
 description: "Attention-Seeker; Making It up; Suicidal; I Can’t Help; Just Stop; More ..."
 url: "https://health.allwomenstalk.com/misconceptions-about-self-harm-that-you-should-know-of/"
 category: "health"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Misconceptions about Self\-Harm That You Should Know of ...
@@ -42,16 +42,16 @@ These are just a few misconceptions about self-harm that I felt need to be addre
 
 ## Related Posts
 
+- [7 Health Tests You Should Never Skip ...](https://health.allwomenstalk.com/health-tests-you-should-never-skip/)
+- [7 Reasons to Call Your Gynecologist Now ...](https://health.allwomenstalk.com/reasons-to-call-your-gynecologist-now/)
+- [7 Endocrine Disruptors the You Should Stay Away fr...](https://health.allwomenstalk.com/endocrine-disruptors-the-you-should-stay-away-from/)
+- [can hormones affect digestion](https://health.allwomenstalk.com/effects-of-hormones-on-your-digestion/)
+- [7 Chakras of the Body and What You Need to Know ab...](https://health.allwomenstalk.com/chakras-of-the-body-and-what-you-need-to-know-about-them/)
+- [7 Things to Know about DHEA and Your Hormone Healt...](https://health.allwomenstalk.com/things-to-know-about-dhea-and-your-hormone-health/)
 - [7 Crucial Facts about Blood Sugar You Need to Know...](https://health.allwomenstalk.com/facts-about-your-blood-sugar-that-every-woman-should-know/)
 - [7 Things You Can do to Get the Most out of Your Do...](https://health.allwomenstalk.com/things-you-can-do-to-get-the-most-out-of-your-doctors-appointment/)
-- [7 Health Tests You Should Never Skip ...](https://health.allwomenstalk.com/health-tests-you-should-never-skip/)
-- [7 Chakras of the Body and What You Need to Know ab...](https://health.allwomenstalk.com/chakras-of-the-body-and-what-you-need-to-know-about-them/)
-- [can hormones affect digestion](https://health.allwomenstalk.com/effects-of-hormones-on-your-digestion/)
-- [7 Things to Know about DHEA and Your Hormone Healt...](https://health.allwomenstalk.com/things-to-know-about-dhea-and-your-hormone-health/)
-- [7 Reasons to Call Your Gynecologist Now ...](https://health.allwomenstalk.com/reasons-to-call-your-gynecologist-now/)
-- [7 Things on Our Bodies That We over Exaggerate ...](https://lifestyle.allwomenstalk.com/things-on-our-bodies-that-we-over-exaggerate/)
 - [7 Possible Reasons Why Your Joints Ache All the Ti...](https://health.allwomenstalk.com/possible-reasons-why-your-joints-ache-all-the-time/)
-- [7 Endocrine Disruptors the You Should Stay Away fr...](https://health.allwomenstalk.com/endocrine-disruptors-the-you-should-stay-away-from/)
+- [7 Things on Our Bodies That We over Exaggerate ...](https://lifestyle.allwomenstalk.com/things-on-our-bodies-that-we-over-exaggerate/)
 - [8 Reasons People Self-Injure ...](https://allwomenstalk.com/8-reasons-people-self-injure/)
 - [7 Womens Heath Issues You Should Know about ...](https://allwomenstalk.com/7-womens-heath-issues-you-should-know-about/)
 

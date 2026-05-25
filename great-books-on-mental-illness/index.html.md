@@ -3,7 +3,7 @@ title: "7 Great Books on Mental Illness ..."
 description: "Wasted: a Memoir of Anorexia and Bulimia by Marya Hornbacher; Madness: a Bipolar Life by Marya Hornbacher; Prozac Nation: Young and Depressed in America by Elizabeth Wurtzel; The Yellow Wallpaper by Charlotte Perkins Gilman; Less than Crazy: Living Fully with Bipolar 2 by Karla Dougherty; More ..."
 url: "https://health.allwomenstalk.com/great-books-on-mental-illness/"
 category: "health"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Great Books on Mental Illness ...
@@ -66,15 +66,15 @@ Top Photo Credit: [jennaelise.blogspot.com](http://jennaelise.blogspot.com/2009_
 ## Related Posts
 
 - [7 Massive Books for Holiday Reading ...](https://lifestyle.allwomenstalk.com/massive-books-for-holiday-reading/)
-- [the book that changed the world](https://lifestyle.allwomenstalk.com/books-that-changed-the-world/)
 - [loreal stylo conquest](https://lifestyle.allwomenstalk.com/great-free-amazon-books-for-kindle/)
-- [book series for tweens](https://lifestyle.allwomenstalk.com/tween-series-i-read-as-a-kid/)
-- [The New York Times Book Review in the Indignant P....](https://allwomenstalk.com/the-new-york-times-book-review-in-the-indignant-p/)
-- [19th century novelists](https://lifestyle.allwomenstalk.com/great-victorian-novelists/)
 - [8 Great Literary Lovers ...](https://love.allwomenstalk.com/great-literary-lovers/)
-- [who has the best deal on downloading audiobooks](https://lifestyle.allwomenstalk.com/best-places-to-download-audio-books-online/)
-- [8 Love Advice Books That Work ...](https://love.allwomenstalk.com/love-advice-books-that-work/)
 - [books about dating](https://love.allwomenstalk.com/great-books-about-dating/)
+- [the book that changed the world](https://lifestyle.allwomenstalk.com/books-that-changed-the-world/)
+- [19th century novelists](https://lifestyle.allwomenstalk.com/great-victorian-novelists/)
+- [who has the best deal on downloading audiobooks](https://lifestyle.allwomenstalk.com/best-places-to-download-audio-books-online/)
+- [The New York Times Book Review in the Indignant P....](https://allwomenstalk.com/the-new-york-times-book-review-in-the-indignant-p/)
+- [8 Love Advice Books That Work ...](https://love.allwomenstalk.com/love-advice-books-that-work/)
+- [book series for tweens](https://lifestyle.allwomenstalk.com/tween-series-i-read-as-a-kid/)
 - [7 Childrens Books Every Adult Should Read](https://parenting.allwomenstalk.com/7-childrens-books-every-adult-should-read/)
 - [7 Celebrities with Anxiety Disorders ...](https://allwomenstalk.com/7-celebrities-with-anxiety-disorders/)
 

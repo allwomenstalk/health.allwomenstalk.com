@@ -3,7 +3,7 @@ title: "7 Foods and Supplements That Fight Candida Yeast Infections ..."
 description: "Oregano; Black Walnut Hull; Coconut Oil; Apple Cider Vinegar; Biotin; More ..."
 url: "https://health.allwomenstalk.com/foods-and-supplements-that-fight-candida-yeast-infections/"
 category: "health"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Foods and Supplements That Fight Candida Yeast Infections ...
@@ -59,15 +59,15 @@ Other helpful foods that fight candida include garlic, plain grass-fed and nonfa
 ## Related Posts
 
 - [7 Useful Tips to Prevent Frequent Headaches and Ke...](https://health.allwomenstalk.com/useful-tips-to-prevent-frequent-headaches-and-keep-them-at-bay/)
-- [7 Home Remedies That You Should Follow ...](https://health.allwomenstalk.com/home-remedies-that-you-should-follow/)
-- [7 Amazing Ayurvedic Remedies That You Should Try ....](https://health.allwomenstalk.com/amazing-ayurvedic-remedies-that-you-should-try/)
-- [Help Prevent Yeast Infections with These Tips ...](https://health.allwomenstalk.com/things-that-help-prevent-yeast-infections/)
-- [spices that reduce bloating](https://health.allwomenstalk.com/herbs-and-spices-that-get-rid-of-bloating-fast/)
-- [7 Common Digestive Problems and Ways to Deal with ...](https://health.allwomenstalk.com/common-digestive-problems-and-ways-to-deal-with-them/)
-- [got the sniffles](https://health.allwomenstalk.com/effective-natural-cold-remedies-to-use-when-youve-got-the-sniffles/)
-- [7 Ways to Deal with a Dust Allergy ...](https://health.allwomenstalk.com/ways-to-deal-with-a-dust-allergy/)
 - [natural cure for sinus infection apple cider vineg...](https://health.allwomenstalk.com/natural-remedies-for-a-sinus-infection/)
+- [Help Prevent Yeast Infections with These Tips ...](https://health.allwomenstalk.com/things-that-help-prevent-yeast-infections/)
+- [7 Common Digestive Problems and Ways to Deal with ...](https://health.allwomenstalk.com/common-digestive-problems-and-ways-to-deal-with-them/)
+- [spices that reduce bloating](https://health.allwomenstalk.com/herbs-and-spices-that-get-rid-of-bloating-fast/)
+- [got the sniffles](https://health.allwomenstalk.com/effective-natural-cold-remedies-to-use-when-youve-got-the-sniffles/)
+- [7 Amazing Ayurvedic Remedies That You Should Try ....](https://health.allwomenstalk.com/amazing-ayurvedic-remedies-that-you-should-try/)
 - [7 Different Types of Headaches and How to Treat Th...](https://health.allwomenstalk.com/different-types-of-headaches-and-how-to-treat-them/)
+- [7 Home Remedies That You Should Follow ...](https://health.allwomenstalk.com/home-remedies-that-you-should-follow/)
+- [7 Ways to Deal with a Dust Allergy ...](https://health.allwomenstalk.com/ways-to-deal-with-a-dust-allergy/)
 - [7 Foods That Will Combat Hair Loss ...](https://allwomenstalk.com/7-foods-that-will-combat-hair-loss/)
 - [7 Ways to Prevent UTIs ...](https://allwomenstalk.com/ways-to-prevent-utis/)
 

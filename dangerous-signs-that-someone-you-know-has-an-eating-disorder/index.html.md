@@ -3,7 +3,7 @@ title: "7 Dangerous Signs That Someone You Know Has an Eating Disorder ..."
 description: "Refusal to Eat; Secret Eating; Throwing up; Distorted Body Image; Depression; More ..."
 url: "https://health.allwomenstalk.com/dangerous-signs-that-someone-you-know-has-an-eating-disorder/"
 category: "health"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Dangerous Signs That Someone You Know Has an Eating Disorder ...
@@ -42,16 +42,16 @@ How would you handle the possibility of an eating disorder? It’s important to 
 
 ## Related Posts
 
-- [9 Pretty Convincing Signs Youre Doing Better than ...](https://inspiration.allwomenstalk.com/pretty-convincing-signs-youre-doing-better-than-you-think/)
-- [7 Signs You Need a Mental Health Day ...](https://health.allwomenstalk.com/signs-you-need-a-mental-health-day/)
-- [7 Signs of Orthorexia That Are Different than Just...](https://health.allwomenstalk.com/signs-of-orthorexia-that-are-different-than-just-eating-healthy/)
-- [when to get a new couch](https://lifestyle.allwomenstalk.com/signs-its-time-for-a-new-couch-and-a-few-lovely-affordable-options/)
-- [signs of a nervous breakdown](https://health.allwomenstalk.com/signs-of-a-nervous-breakdown/)
+- [too busy for a relationship signs](https://lifestyle.allwomenstalk.com/signs-youre-too-busy-in-life/)
 - [15 Signs Ghosts Are All around You ...](https://paranormal.allwomenstalk.com/signs-ghosts-are-all-around-you/)
 - [9 Signs That Its Time to Detox Your Wardrobe ...](https://fashion.allwomenstalk.com/signs-that-its-time-to-detox-your-wardrobe/)
-- [too busy for a relationship signs](https://lifestyle.allwomenstalk.com/signs-youre-too-busy-in-life/)
+- [signs of a nervous breakdown](https://health.allwomenstalk.com/signs-of-a-nervous-breakdown/)
 - [7 Signs Its Time to Visit the Dentist ...](https://health.allwomenstalk.com/signs-its-time-to-visit-the-dentist/)
+- [7 Signs You Need a Mental Health Day ...](https://health.allwomenstalk.com/signs-you-need-a-mental-health-day/)
+- [9 Pretty Convincing Signs Youre Doing Better than ...](https://inspiration.allwomenstalk.com/pretty-convincing-signs-youre-doing-better-than-you-think/)
 - [7 Body Signals That Give You Away ...](https://lifestyle.allwomenstalk.com/body-signals-that-give-you-away/)
+- [7 Signs of Orthorexia That Are Different than Just...](https://health.allwomenstalk.com/signs-of-orthorexia-that-are-different-than-just-eating-healthy/)
+- [when to get a new couch](https://lifestyle.allwomenstalk.com/signs-its-time-for-a-new-couch-and-a-few-lovely-affordable-options/)
 - [10 Signs Someones Obese ...](https://allwomenstalk.com/10-signs-someones-obese/)
 - [8 Signs You Have an Overeating Problem ...](https://allwomenstalk.com/8-signs-you-have-an-overeating-problem/)
 

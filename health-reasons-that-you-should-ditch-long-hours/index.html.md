@@ -3,7 +3,7 @@ title: "7 Health Reasons That You Should Ditch Long Hours ..."
 description: "Heart Disease; Weight Gain; Infertility; Stupidity; Sleeplessness; More ..."
 url: "https://health.allwomenstalk.com/health-reasons-that-you-should-ditch-long-hours/"
 category: "health"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Health Reasons That You Should Ditch Long Hours ...
@@ -44,13 +44,13 @@ Of course, you might not have a choice but to work long hours. If that is the ca
 
 - [7 Reasons to do Random Acts of Kindness ...](https://inspiration.allwomenstalk.com/reasons-to-do-random-acts-of-kindness/)
 - [7 Reasons to Start Your Own Blog ...](https://inspiration.allwomenstalk.com/reasons-to-start-your-own-blog/)
+- [Why Traveling the World Just Might Make You More S...](https://travel.allwomenstalk.com/why-traveling-the-world-just-might-make-you-more-successful/)
+- [reasons to apply for a job](https://teen.allwomenstalk.com/reasons-to-apply-for-a-job-over-spring-break/)
 - [7 Reasons to Dance like No Ones Watching ...](https://inspiration.allwomenstalk.com/reasons-to-dance-like-no-ones-watching/)
-- [Throw Some Peas in Your Cart: Here Are 28 Reasons ...](https://food.allwomenstalk.com/throw-some-peas-in-your-cart-here-are-reasons-why/)
 - [7 Reasons to Let Go and Start Living ...](https://inspiration.allwomenstalk.com/reasons-to-let-go-and-start-living/)
 - [The Benefits of Taking a Gap Year ...](https://lifestyle.allwomenstalk.com/the-benefits-of-taking-a-gap-year/)
-- [reasons to apply for a job](https://teen.allwomenstalk.com/reasons-to-apply-for-a-job-over-spring-break/)
+- [Throw Some Peas in Your Cart: Here Are 28 Reasons ...](https://food.allwomenstalk.com/throw-some-peas-in-your-cart-here-are-reasons-why/)
 - [duma jane cardigan](https://fashion.allwomenstalk.com/heres-why-you-should-wear-a-cape/)
-- [Why Traveling the World Just Might Make You More S...](https://travel.allwomenstalk.com/why-traveling-the-world-just-might-make-you-more-successful/)
 - [7 Reasons Why Embracing Change Will Make You a Hap...](https://inspiration.allwomenstalk.com/reasons-why-embracing-change-will-make-you-a-happier-woman/)
 - [7 Reasons Why Sleeping Early is Important ...](https://sleep.allwomenstalk.com/reasons-sleeping-early-is-important/)
 - [7 Benefits of Siesta Time ...](https://allwomenstalk.com/7-benefits-of-siesta-time/)

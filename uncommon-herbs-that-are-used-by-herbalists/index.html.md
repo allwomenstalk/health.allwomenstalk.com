@@ -3,7 +3,7 @@ title: "9 Uncommon Herbs That Are Used by Herbalists ..."
 description: "Horsetail; Codonopsis; Meadowsweet; Devil’s Claw; Yellow Dock Root; More ..."
 url: "https://health.allwomenstalk.com/uncommon-herbs-that-are-used-by-herbalists/"
 category: "health"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 9 Uncommon Herbs That Are Used by Herbalists ...
@@ -70,16 +70,16 @@ Although some of the names of these uncommon herbs are strange and barely pronou
 
 ## Related Posts
 
-- [ways to eat honey](https://diy.allwomenstalk.com/ways-to-use-honey-other-than-eating-it/)
-- [honeymoon cysitis](https://wedding.allwomenstalk.com/tips-to-help-you-prevent-getting-honeymoon-cystitis-on-your-honeymoon/)
 - [to reduce exposure to pesticides](https://food.allwomenstalk.com/ways-to-reduce-your-exposure-to-pesticides/)
-- [gram lentil soup recipe to delay periods](https://health.allwomenstalk.com/ways-to-delay-your-period-that-are-worth-trying/)
-- [7 Ways to Use Foods to Treat Parasites and Yeast i...](https://health.allwomenstalk.com/ways-to-use-foods-to-treat-parasites-and-yeast-in-the-body/)
-- [things to do while sick at home](https://health.allwomenstalk.com/things-to-do-when-you-are-sick/)
-- [windburned skin](https://skincare.allwomenstalk.com/top-tips-to-treat-and-prevent-windburn/)
-- [dark circles food](https://skincare.allwomenstalk.com/natural-ways-to-reduce-under-eye-circles/)
 - [herbs that help acne](https://skincare.allwomenstalk.com/wonderful-herbs-to-eat-that-combat-acne/)
 - [how to identify real cinnamon](https://food.allwomenstalk.com/ways-to-tell-if-your-cinnamon-is-true-cinnamon/)
+- [windburned skin](https://skincare.allwomenstalk.com/top-tips-to-treat-and-prevent-windburn/)
+- [gram lentil soup recipe to delay periods](https://health.allwomenstalk.com/ways-to-delay-your-period-that-are-worth-trying/)
+- [honeymoon cysitis](https://wedding.allwomenstalk.com/tips-to-help-you-prevent-getting-honeymoon-cystitis-on-your-honeymoon/)
+- [ways to eat honey](https://diy.allwomenstalk.com/ways-to-use-honey-other-than-eating-it/)
+- [things to do while sick at home](https://health.allwomenstalk.com/things-to-do-when-you-are-sick/)
+- [7 Ways to Use Foods to Treat Parasites and Yeast i...](https://health.allwomenstalk.com/ways-to-use-foods-to-treat-parasites-and-yeast-in-the-body/)
+- [dark circles food](https://skincare.allwomenstalk.com/natural-ways-to-reduce-under-eye-circles/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 - [5 Healing Herbs ...](https://gardening.allwomenstalk.com/5-healing-herbs/)
 
