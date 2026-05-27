@@ -3,7 +3,7 @@ title: "7 Reasons Pregnant Women Shouldnt Smoke ..."
 description: "Low Birth Weight; SIDS and Stillbirths; Placental Abruption; Increased Chances of Respiratory Problems; Colic; More ..."
 url: "https://health.allwomenstalk.com/reasons-pregnant-women-shouldnt-smoke/"
 category: "health"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Reasons Pregnant Women Shouldnt Smoke ...
@@ -42,15 +42,15 @@ Of course, sometimes babies are born with many of these problems and their mothe
 
 ## Related Posts
 
-- [7 Ways to Prepare Your Firstborn for a Sibling ...](https://parenting.allwomenstalk.com/ways-to-prepare-your-firstborn-for-a-sibling/)
-- [8 Things That Are Okay to do during Pregnancy ...](https://parenting.allwomenstalk.com/things-that-are-okay-to-do-during-pregnancy/)
+- [7 Crucial Tips for Getting Intimate after Pregnanc...](https://parenting.allwomenstalk.com/tips-for-getting-intimate-after-pregnancy/)
+- [8 Tips for Painting when Pregnant ...](https://health.allwomenstalk.com/tips-for-painting-when-pregnant/)
 - [7 Important Tips for Weaning That You Should Try ....](https://parenting.allwomenstalk.com/important-tips-for-weaning-that-you-should-try/)
 - [7 Things That Are Okay to do during Pregnancy ...](https://parenting.allwomenstalk.com/things-that-are-okay-to-do-during-pregnancy-2/)
-- [8 Tips for Painting when Pregnant ...](https://health.allwomenstalk.com/tips-for-painting-when-pregnant/)
 - [9 Ways Moms Can Pamper Themselves ...](https://parenting.allwomenstalk.com/ways-moms-can-pamper-themselves/)
-- [7 Crucial Tips for Getting Intimate after Pregnanc...](https://parenting.allwomenstalk.com/tips-for-getting-intimate-after-pregnancy/)
-- [7 Ways You Change after You Have a Baby ...](https://parenting.allwomenstalk.com/ways-you-change-after-you-have-a-baby/)
 - [7 Ways to Get Back into Shape after Having a Baby ...](https://parenting.allwomenstalk.com/ways-to-get-back-into-shape-after-having-a-baby/)
+- [7 Ways You Change after You Have a Baby ...](https://parenting.allwomenstalk.com/ways-you-change-after-you-have-a-baby/)
+- [8 Things That Are Okay to do during Pregnancy ...](https://parenting.allwomenstalk.com/things-that-are-okay-to-do-during-pregnancy/)
+- [7 Ways to Prepare Your Firstborn for a Sibling ...](https://parenting.allwomenstalk.com/ways-to-prepare-your-firstborn-for-a-sibling/)
 - [7 Wonderful Benefits of Breastfeeding Your Preciou...](https://parenting.allwomenstalk.com/benefits-of-breastfeeding/)
 - [8 of the Worst Reasons to Get Pregnant ...](https://parenting.allwomenstalk.com/8-of-the-worst-reasons-to-get-pregnant/)
 - [7 Reasons for Abortion ...](https://parenting.allwomenstalk.com/reasons-for-abortion/)

@@ -3,7 +3,7 @@ title: "12 Things You Can Say to Someone Suicidal or Depressed ..."
 description: "I Love You; You Are Not Alone; I’m Here for You; We Can Get through This Together; Let Me Help You Feel Better; More ..."
 url: "https://health.allwomenstalk.com/12-things-you-can-say-to-someone-suicidal-or-depressed/"
 category: "health"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 12 Things You Can Say to Someone Suicidal or Depressed ...
@@ -64,16 +64,16 @@ Top Photo Credit: [Amanda♫](https://www.flickr.com/photos/amandang/3161239469/
 
 ## Related Posts
 
-- [7 Ways to Thank Your Teacher ...](https://lifestyle.allwomenstalk.com/ways-to-thank-your-teacher/)
-- [7 People to Ask for Advice ...](https://lifestyle.allwomenstalk.com/people-to-ask-for-advice/)
-- [how to overcome envy](https://lifestyle.allwomenstalk.com/tips-to-overcome-envy/)
-- [7 Ways to Say No to Your Boss ...](https://lifestyle.allwomenstalk.com/ways-to-say-no-to-your-boss/)
-- [9 Easy Ways to Overcome Your Shyness ...](https://lifestyle.allwomenstalk.com/easy-ways-to-overcome-your-shyness/)
-- [how to avoid peer pressure](https://lifestyle.allwomenstalk.com/positive-tips-to-avoid-peer-pressure/)
-- [how to deal with insults from friends](https://lifestyle.allwomenstalk.com/ways-to-handle-an-insult/)
-- [difficult daughter in law problems](https://lifestyle.allwomenstalk.com/ways-to-deal-with-a-difficult-daughter-in-law/)
 - [how to help others](https://lifestyle.allwomenstalk.com/ways-to-help-other-people/)
+- [difficult daughter in law problems](https://lifestyle.allwomenstalk.com/ways-to-deal-with-a-difficult-daughter-in-law/)
+- [7 Ways to Say No to Your Boss ...](https://lifestyle.allwomenstalk.com/ways-to-say-no-to-your-boss/)
 - [dealing with bullying at school](https://lifestyle.allwomenstalk.com/ways-to-deal-with-bullying-at-school/)
+- [7 People to Ask for Advice ...](https://lifestyle.allwomenstalk.com/people-to-ask-for-advice/)
+- [how to avoid peer pressure](https://lifestyle.allwomenstalk.com/positive-tips-to-avoid-peer-pressure/)
+- [how to overcome envy](https://lifestyle.allwomenstalk.com/tips-to-overcome-envy/)
+- [9 Easy Ways to Overcome Your Shyness ...](https://lifestyle.allwomenstalk.com/easy-ways-to-overcome-your-shyness/)
+- [how to deal with insults from friends](https://lifestyle.allwomenstalk.com/ways-to-handle-an-insult/)
+- [7 Ways to Thank Your Teacher ...](https://lifestyle.allwomenstalk.com/ways-to-thank-your-teacher/)
 - [7 Things You Should Not Say to Someone with Depres...](https://allwomenstalk.com/7-things-you-should-not-say-to-someone-with-depression/)
 - [7 Inspirational Things from Me to Those Feeling Su...](https://allwomenstalk.com/7-inspirational-things-from-me-to-those-feeling-suicidal/)
 

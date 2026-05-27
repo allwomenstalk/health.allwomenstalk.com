@@ -3,7 +3,7 @@ title: "9 Helpful Habits for a Healthier Work Life ..."
 description: "Clean up; Be Greedy; Eat; Walk; Stretch; More ..."
 url: "https://health.allwomenstalk.com/helpful-habits-for-a-healthier-work-life/"
 category: "health"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 9 Helpful Habits for a Healthier Work Life ...
@@ -50,15 +50,15 @@ I hope these suggestions give you some ideas on how to stay healthy at work! Liv
 
 ## Related Posts
 
-- [7 Things to do on the First Day of a New Job ...](https://lifestyle.allwomenstalk.com/things-to-do-on-the-first-day-of-a-new-job/)
-- [7 Tips for Working from Home ...](https://lifestyle.allwomenstalk.com/tips-for-working-from-home/)
-- [9 Steps to the Perfect CV to Land Your Dream Job o...](https://money.allwomenstalk.com/steps-to-the-perfect-cv-to-land-your-dream-job-or-any-job/)
-- [7 Ways to Be Happier at Work ...](https://inspiration.allwomenstalk.com/ways-to-be-happier-at-work/)
-- [7 Great Tips Thatll Help You Negotiate Your Salary...](https://lifestyle.allwomenstalk.com/great-tips-thatll-help-you-negotiate-your-salary/)
 - [7 Things to Think about before You Quit Your Job ....](https://money.allwomenstalk.com/things-to-think-about-before-you-quit-your-job/)
 - [how to stop being a workaholic](https://money.allwomenstalk.com/great-tips-on-how-to-stop-being-a-workaholic/)
-- [find perfect balance](https://money.allwomenstalk.com/tips-on-how-to-find-the-perfect-balance-between-your-career-and-your-personal-life/)
 - [8 Tips on Returning to Work after Maternity Leave ...](https://parenting.allwomenstalk.com/tips-on-returning-to-work-after-maternity-leave/)
+- [7 Ways to Be Happier at Work ...](https://inspiration.allwomenstalk.com/ways-to-be-happier-at-work/)
+- [7 Great Tips Thatll Help You Negotiate Your Salary...](https://lifestyle.allwomenstalk.com/great-tips-thatll-help-you-negotiate-your-salary/)
+- [7 Tips for Working from Home ...](https://lifestyle.allwomenstalk.com/tips-for-working-from-home/)
+- [9 Steps to the Perfect CV to Land Your Dream Job o...](https://money.allwomenstalk.com/steps-to-the-perfect-cv-to-land-your-dream-job-or-any-job/)
+- [7 Things to do on the First Day of a New Job ...](https://lifestyle.allwomenstalk.com/things-to-do-on-the-first-day-of-a-new-job/)
+- [find perfect balance](https://money.allwomenstalk.com/tips-on-how-to-find-the-perfect-balance-between-your-career-and-your-personal-life/)
 - [ways your network can help](https://lifestyle.allwomenstalk.com/ways-networking-can-help-better-your-life/)
 - [8 Incredibly Effective Ways to Be Healthier on the...](https://health.allwomenstalk.com/incredibly-effective-ways-to-be-healthier-on-the-job/)
 - [8 Ways to Make Your Office Healthier ...](https://allwomenstalk.com/8-ways-to-make-your-office-healthier/)

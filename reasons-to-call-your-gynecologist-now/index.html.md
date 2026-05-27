@@ -3,7 +3,7 @@ title: "7 Reasons to Call Your Gynecologist Now ..."
 description: "It’s Been Awhile; It Burns when You Pee; Your Yeast Infection Won’t Go Away; Sex Hurts; Your Period is MIA; More ..."
 url: "https://health.allwomenstalk.com/reasons-to-call-your-gynecologist-now/"
 category: "health"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Reasons to Call Your Gynecologist Now ...
@@ -42,16 +42,16 @@ There are a lot of different reasons that you should give your gynecologist a ca
 
 ## Related Posts
 
-- [can hormones affect digestion](https://health.allwomenstalk.com/effects-of-hormones-on-your-digestion/)
-- [9 Things Other Cultures of the World Can Teach Us ...](https://health.allwomenstalk.com/things-other-cultures-of-the-world-can-teach-us-about-our-health/)
 - [7 Chakras of the Body and What You Need to Know ab...](https://health.allwomenstalk.com/chakras-of-the-body-and-what-you-need-to-know-about-them/)
-- [7 Possible Reasons Why Your Joints Ache All the Ti...](https://health.allwomenstalk.com/possible-reasons-why-your-joints-ache-all-the-time/)
-- [interesting facts about naturopathy](https://health.allwomenstalk.com/facts-about-naturopathy-to-get-familiar-with/)
-- [7 Endocrine Disruptors the You Should Stay Away fr...](https://health.allwomenstalk.com/endocrine-disruptors-the-you-should-stay-away-from/)
-- [7 Health Tests You Should Never Skip ...](https://health.allwomenstalk.com/health-tests-you-should-never-skip/)
+- [most commonly diagnosed mental disorder](https://health.allwomenstalk.com/psychological-disorders-that-are-commonly-diagnosed/)
 - [7 Things You Can do to Get the Most out of Your Do...](https://health.allwomenstalk.com/things-you-can-do-to-get-the-most-out-of-your-doctors-appointment/)
 - [7 Things on Our Bodies That We over Exaggerate ...](https://lifestyle.allwomenstalk.com/things-on-our-bodies-that-we-over-exaggerate/)
-- [most commonly diagnosed mental disorder](https://health.allwomenstalk.com/psychological-disorders-that-are-commonly-diagnosed/)
+- [7 Possible Reasons Why Your Joints Ache All the Ti...](https://health.allwomenstalk.com/possible-reasons-why-your-joints-ache-all-the-time/)
+- [9 Things Other Cultures of the World Can Teach Us ...](https://health.allwomenstalk.com/things-other-cultures-of-the-world-can-teach-us-about-our-health/)
+- [7 Endocrine Disruptors the You Should Stay Away fr...](https://health.allwomenstalk.com/endocrine-disruptors-the-you-should-stay-away-from/)
+- [interesting facts about naturopathy](https://health.allwomenstalk.com/facts-about-naturopathy-to-get-familiar-with/)
+- [7 Health Tests You Should Never Skip ...](https://health.allwomenstalk.com/health-tests-you-should-never-skip/)
+- [can hormones affect digestion](https://health.allwomenstalk.com/effects-of-hormones-on-your-digestion/)
 - [7 Things You Have to do to Maintain Good Health of...](https://health.allwomenstalk.com/7-things-you-have-to-do-to-maintain-good-health-of-your-reproductive-organs/)
 - [9 Things to Ask Your Doctor ...](https://health.allwomenstalk.com/9-things-to-ask-your-doctor/)
 

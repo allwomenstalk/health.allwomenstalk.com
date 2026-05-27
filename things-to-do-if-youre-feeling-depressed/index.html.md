@@ -3,7 +3,7 @@ title: "8 Things to do if Youre Feeling Depressed ..."
 description: "Accept How You Feel…; Talk to Someone…; Set Targets…; Be Strict in Bed…; No Drama…; More ..."
 url: "https://health.allwomenstalk.com/things-to-do-if-youre-feeling-depressed/"
 category: "health"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 8 Things to do if Youre Feeling Depressed ...
@@ -46,16 +46,16 @@ I was once sent a list of things to do when you’re feeling depressed, compiled
 
 ## Related Posts
 
-- [7 Simple Tips for Coping with Anxiety ...](https://health.allwomenstalk.com/simple-tips-for-coping-with-anxiety/)
-- [Chill out with These Lesser Known Meditation Tips ...](https://health.allwomenstalk.com/lesser-known-tips-for-meditation/)
+- [7 Super Easy Ways to Change How You Feel ...](https://inspiration.allwomenstalk.com/super-easy-ways-to-change-how-you-feel/)
 - [art therapy activities for self esteem](https://health.allwomenstalk.com/art-therapy-activities-you-can-try-at-home-to-de-stress/)
-- [Get Silly when You Need to to De-Stress and Relax ...](https://funny.allwomenstalk.com/silly-ways-to-de-stress-and-just-relax/)
+- [7 Uncommon Activities for Stress Relief and Inner ...](https://health.allwomenstalk.com/uncommon-activities-for-stress-relief-and-inner-peace/)
+- [identify the place shown in the picture. photograp...](https://lifestyle.allwomenstalk.com/simple-ways-to-perk-up-after-the-holidays-are-over/)
+- [Chill out with These Lesser Known Meditation Tips ...](https://health.allwomenstalk.com/lesser-known-tips-for-meditation/)
 - [7 Easy Ways to Deal with Christmas Depression ...](https://health.allwomenstalk.com/easy-ways-to-deal-with-christmas-depression/)
 - [7 Tips for Managing Stress during Finals Week ...](https://teen.allwomenstalk.com/tips-for-managing-stress-during-finals-week/)
-- [7 Uncommon Activities for Stress Relief and Inner ...](https://health.allwomenstalk.com/uncommon-activities-for-stress-relief-and-inner-peace/)
-- [7 Super Easy Ways to Change How You Feel ...](https://inspiration.allwomenstalk.com/super-easy-ways-to-change-how-you-feel/)
+- [7 Simple Tips for Coping with Anxiety ...](https://health.allwomenstalk.com/simple-tips-for-coping-with-anxiety/)
 - [7 Ways for Students to Reduce Stress to Be Happier...](https://inspiration.allwomenstalk.com/ways-for-students-to-reduce-stress-to-be-happier/)
-- [identify the place shown in the picture. photograp...](https://lifestyle.allwomenstalk.com/simple-ways-to-perk-up-after-the-holidays-are-over/)
+- [Get Silly when You Need to to De-Stress and Relax ...](https://funny.allwomenstalk.com/silly-ways-to-de-stress-and-just-relax/)
 - [10 Ways to Prevent Depression ...](https://allwomenstalk.com/10-ways-to-prevent-depression/)
 - [10 Ways to Fight Depression ...](https://allwomenstalk.com/10-ways-to-fight-depression/)
 

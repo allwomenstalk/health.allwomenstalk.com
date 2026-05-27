@@ -3,7 +3,7 @@ title: "8 Tips on Dealing with an Epileptic Child ..."
 description: "Educate Yourself; Educate Your Child; Educating the Rest of the Family; Medication for Epilepsy; Protection in the House; More ..."
 url: "https://health.allwomenstalk.com/tips-on-dealing-with-an-epileptic-child/"
 category: "health"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 8 Tips on Dealing with an Epileptic Child ...
@@ -48,16 +48,16 @@ Top image source: [sbpsp.co.uk](https://goo.gl/hK9uNm)
 
 ## Related Posts
 
-- [Helping Kids Overcome Their Fears and Phobias](https://allwomenstalk.com/3-19/)
-- [7 Tips to Encourage Healthy Living in Your Kids .....](https://health.allwomenstalk.com/7-tips-to-encourage-healthy-living-in-your-kids/)
-- [8 Tips to Help Kids Cope with Losing a Pet ...](https://lifestyle.allwomenstalk.com/tips-to-help-kids-cope-with-losing-a-pet/)
-- [Send Kids Back to School with a Healthy Diet](https://allwomenstalk.com/3-24/)
-- [fun kids food](https://lifestyle.allwomenstalk.com/fun-ways-kids-can-eat-their-food/)
-- [wii game for 4 year old](https://lifestyle.allwomenstalk.com/active-wii-games-for-kids/)
 - [good influences](https://lifestyle.allwomenstalk.com/ways-to-be-a-good-influence-on-your-children/)
 - [6 Ways to Get Kids Excited about Going Back to Sch...](https://lifestyle.allwomenstalk.com/ways-to-get-kids-excited-about-going-back-to-school/)
-- [crafty ideas](https://lifestyle.allwomenstalk.com/crafty-ideas-to-share-with-the-kids/)
 - [Cool Parents Get Him](https://allwomenstalk.com/cool-parents-get-him-2/)
+- [wii game for 4 year old](https://lifestyle.allwomenstalk.com/active-wii-games-for-kids/)
+- [fun kids food](https://lifestyle.allwomenstalk.com/fun-ways-kids-can-eat-their-food/)
+- [Send Kids Back to School with a Healthy Diet](https://allwomenstalk.com/3-24/)
+- [7 Tips to Encourage Healthy Living in Your Kids .....](https://health.allwomenstalk.com/7-tips-to-encourage-healthy-living-in-your-kids/)
+- [8 Tips to Help Kids Cope with Losing a Pet ...](https://lifestyle.allwomenstalk.com/tips-to-help-kids-cope-with-losing-a-pet/)
+- [crafty ideas](https://lifestyle.allwomenstalk.com/crafty-ideas-to-share-with-the-kids/)
+- [Helping Kids Overcome Their Fears and Phobias](https://allwomenstalk.com/3-19/)
 - [7 Ways to Calm an Unhappy Child ...](https://parenting.allwomenstalk.com/7-ways-to-calm-an-unhappy-child/)
 - [7 Tips for Parents of Kids with Special Needs ...](https://parenting.allwomenstalk.com/7-tips-for-parents-of-kids-with-special-needs/)
 

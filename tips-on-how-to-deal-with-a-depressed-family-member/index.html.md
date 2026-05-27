@@ -3,7 +3,7 @@ title: "How to Help a Family Member Suffering from Depression ..."
 description: "Educate Yourself about Your Loved One’s Illness; We’re in This Together; Don’t Blame Anyone; Improve Your Communication Skills; Get Active; More ..."
 url: "https://health.allwomenstalk.com/tips-on-how-to-deal-with-a-depressed-family-member/"
 category: "health"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # How to Help a Family Member Suffering from Depression ...
@@ -44,16 +44,16 @@ Dealing with a depressed family member can be difficult sometimes but you can re
 
 ## Related Posts
 
-- [maintaining long distance friendships](https://lifestyle.allwomenstalk.com/ways-to-maintain-friendships-with-long-distance-friends/)
-- [7 Ways to Deal with Selfish People ...](https://inspiration.allwomenstalk.com/ways-to-deal-with-selfish-people/)
-- [7 Ways to Complain and Get What You Want ...](https://lifestyle.allwomenstalk.com/ways-to-complain-and-get-what-you-want/)
 - [think twice before acting](https://lifestyle.allwomenstalk.com/things-you-should-think-about-before-being-rude-online/)
-- [7 Tips for Dealing with Public Catcalls ...](https://lifestyle.allwomenstalk.com/tips-for-dealing-with-public-catcalls/)
-- [riche shadow amber rush](https://inspiration.allwomenstalk.com/communication-tips-to-win-people-over/)
+- [maintaining long distance friendships](https://lifestyle.allwomenstalk.com/ways-to-maintain-friendships-with-long-distance-friends/)
+- [7 Ways to Complain and Get What You Want ...](https://lifestyle.allwomenstalk.com/ways-to-complain-and-get-what-you-want/)
 - [7 Ways to Express Anger without Ruining Your Relat...](https://love.allwomenstalk.com/ways-to-express-anger-without-ruining-your-relationship/)
+- [7 Ways to Deal with Selfish People ...](https://inspiration.allwomenstalk.com/ways-to-deal-with-selfish-people/)
 - [How to Handle Online Harassment Safely and Success...](https://lifestyle.allwomenstalk.com/ways-to-handle-online-harassment/)
-- [How Can You Deal with a Boss Who Criticises You .....](https://money.allwomenstalk.com/ways-to-deal-with-a-boss-who-criticises-you/)
+- [riche shadow amber rush](https://inspiration.allwomenstalk.com/communication-tips-to-win-people-over/)
+- [7 Tips for Dealing with Public Catcalls ...](https://lifestyle.allwomenstalk.com/tips-for-dealing-with-public-catcalls/)
 - [The Simplest Ways to Make People like You ...](https://inspiration.allwomenstalk.com/simple-ways-to-make-people-like-you/)
+- [How Can You Deal with a Boss Who Criticises You .....](https://money.allwomenstalk.com/ways-to-deal-with-a-boss-who-criticises-you/)
 - [12 Things You Can Say to Someone Suicidal or Depre...](https://health.allwomenstalk.com/12-things-you-can-say-to-someone-suicidal-or-depressed/)
 - [The Most Effective Ways of Fighting Depression ...](https://vityle.com/the-most-effective-ways-of-fighting-depression/)
 

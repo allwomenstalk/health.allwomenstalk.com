@@ -3,7 +3,7 @@ title: "7 Tips for Families of Someone with Obsessive Compulsive Personality Dis
 description: "It’s Not about Perfection; Hygiene Habits; Assigning Tasks; Hoarding; CBT; More ..."
 url: "https://health.allwomenstalk.com/tips-for-family-of-someone-with-obsessive-compulsive-personality-disorder/"
 category: "health"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Tips for Families of Someone with Obsessive Compulsive Personality Disorder ...
@@ -44,16 +44,16 @@ If you know someone that has OCPD or have a family member, you don’t have to l
 
 ## Related Posts
 
-- [help kids have more friends](https://parenting.allwomenstalk.com/fun-ways-to-help-your-child-make-more-friends/)
-- [20 Tips for Discussing Race with Kids ...](https://parenting.allwomenstalk.com/tips-for-discussing-race-with-kids/)
-- [how to flirt with your childs teacher](https://parenting.allwomenstalk.com/tips-on-how-to-talk-to-your-childs-teacher/)
-- [top foster care new years resolutions](https://parenting.allwomenstalk.com/amazing-new-years-resolutions-for-families/)
-- [7 Life Lessons You Learn when Youre a Parent ...](https://parenting.allwomenstalk.com/life-lessons-you-learn-when-youre-a-parent/)
-- [7 Ways to Help Your Little One Get Ready for the F...](https://parenting.allwomenstalk.com/ways-to-help-your-little-one-get-ready-for-the-first-day-of-preschool/)
 - [7 Vitally Important Steps to Keep Your Kids Safe i...](https://parenting.allwomenstalk.com/vitally-important-steps-to-keep-your-kids-safe-in-the-car/)
-- [tween activities](https://parenting.allwomenstalk.com/fun-things-to-do-with-your-tween-daughter-to-bond-with-them/)
-- [7 Tips on How to Be a Great Babysitter ...](https://teen.allwomenstalk.com/tips-on-how-to-be-a-great-babysitter/)
+- [7 Life Lessons You Learn when Youre a Parent ...](https://parenting.allwomenstalk.com/life-lessons-you-learn-when-youre-a-parent/)
 - [7 Simple Ways to Encourage Your Childs Love of Lea...](https://parenting.allwomenstalk.com/simple-ways-to-encourage-your-childs-love-of-learning/)
+- [how to flirt with your childs teacher](https://parenting.allwomenstalk.com/tips-on-how-to-talk-to-your-childs-teacher/)
+- [20 Tips for Discussing Race with Kids ...](https://parenting.allwomenstalk.com/tips-for-discussing-race-with-kids/)
+- [7 Tips on How to Be a Great Babysitter ...](https://teen.allwomenstalk.com/tips-on-how-to-be-a-great-babysitter/)
+- [7 Ways to Help Your Little One Get Ready for the F...](https://parenting.allwomenstalk.com/ways-to-help-your-little-one-get-ready-for-the-first-day-of-preschool/)
+- [top foster care new years resolutions](https://parenting.allwomenstalk.com/amazing-new-years-resolutions-for-families/)
+- [tween activities](https://parenting.allwomenstalk.com/fun-things-to-do-with-your-tween-daughter-to-bond-with-them/)
+- [help kids have more friends](https://parenting.allwomenstalk.com/fun-ways-to-help-your-child-make-more-friends/)
 - [7 Tips for Parents of Kids with Special Needs ...](https://parenting.allwomenstalk.com/7-tips-for-parents-of-kids-with-special-needs/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 

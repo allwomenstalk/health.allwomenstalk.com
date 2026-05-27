@@ -3,7 +3,7 @@ title: "11 Signs That You May Have an Internet Addiction ..."
 description: "Neglecting Family and Friends; Withdrawing from Other Activities; Heightened Euphoria Online; Changes in Sleep Pattern; Weight Changes; More ..."
 url: "https://health.allwomenstalk.com/signs-that-you-may-have-an-internet-addiction/"
 category: "health"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 11 Signs That You May Have an Internet Addiction ...
@@ -62,12 +62,12 @@ People most at risk of internet addictions are those who already suffer from dep
 - [7 Dangerous Signs That Someone You Know Has an Eat...](https://health.allwomenstalk.com/dangerous-signs-that-someone-you-know-has-an-eating-disorder/)
 - [signs of a nervous breakdown](https://health.allwomenstalk.com/signs-of-a-nervous-breakdown/)
 - [9 Signs That Its Time to Detox Your Wardrobe ...](https://fashion.allwomenstalk.com/signs-that-its-time-to-detox-your-wardrobe/)
-- [7 Signs You Need a Mental Health Day ...](https://health.allwomenstalk.com/signs-you-need-a-mental-health-day/)
 - [when to get a new couch](https://lifestyle.allwomenstalk.com/signs-its-time-for-a-new-couch-and-a-few-lovely-affordable-options/)
-- [7 Body Signals That Give You Away ...](https://lifestyle.allwomenstalk.com/body-signals-that-give-you-away/)
+- [7 Signs You Need a Mental Health Day ...](https://health.allwomenstalk.com/signs-you-need-a-mental-health-day/)
 - [9 Pretty Convincing Signs Youre Doing Better than ...](https://inspiration.allwomenstalk.com/pretty-convincing-signs-youre-doing-better-than-you-think/)
 - [7 Signs Its Time to Visit the Dentist ...](https://health.allwomenstalk.com/signs-its-time-to-visit-the-dentist/)
 - [7 Signs of Orthorexia That Are Different than Just...](https://health.allwomenstalk.com/signs-of-orthorexia-that-are-different-than-just-eating-healthy/)
+- [7 Body Signals That Give You Away ...](https://lifestyle.allwomenstalk.com/body-signals-that-give-you-away/)
 - [8 Signs Youre Addicted to Facebook ...](https://allwomenstalk.com/8-signs-youre-addicted-to-facebook/)
 - [8 Signs You Are Addicted to Twilight ...](https://allwomenstalk.com/8-signs-you-are-addicted-to-twilight/)
 
