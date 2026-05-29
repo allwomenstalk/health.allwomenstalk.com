@@ -3,7 +3,7 @@ title: "Your M.D. Must Know These 7 Things about You ..."
 description: "You Have to Tell Him if You Smoke, Drink or do Drugs; Make a List of All the Meds and Supplements You Take; Your Romantic History is an Important Thing to Share; How Closely You Follow Doctor’s Orders; Talk about Your Mental Health; More ..."
 url: "https://health.allwomenstalk.com/your-m-d-must-know-these-things-about-you/"
 category: "health"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # Your M.D. Must Know These 7 Things about You ...
@@ -42,16 +42,16 @@ Which of these things are you holding back from your doctor?
 
 ## Related Posts
 
-- [what are ten misconceptions about drinking](https://lifestyle.allwomenstalk.com/dangerous-misconceptions-about-alcohol/)
-- [These Office Habits Are Making You Unhealthy ...](https://lifestyle.allwomenstalk.com/these-office-habits-are-making-you-unhealthy/)
-- [Top Things All Women Need to Know  about Vaginal H...](https://health.allwomenstalk.com/every-woman-should-know-about-this-about-her-vaginal-health/)
-- [Facts about Zika Virus All Health Obsessed People ...](https://health.allwomenstalk.com/facts-about-zika-virus-all-health-obsessed-people-should-read/)
-- [Watch out Ladies Diseases You Can Get Just by Kiss...](https://health.allwomenstalk.com/watch-out-ladies-diseases-you-can-get-just-by-kissing/)
-- [7 Reasons Your Period is Acting Crazy ...](https://health.allwomenstalk.com/reasons-your-period-is-acting-crazy/)
 - [10 Things Most Women Dont Know about Their Bodies ...](https://health.allwomenstalk.com/things-most-women-dont-know-about-their-bodies/)
-- [7 Things You Should Know before Picking up an Egg ...](https://food.allwomenstalk.com/things-you-should-know-before-picking-up-an-egg-carton/)
-- [All the Facts You Need about Flotation Therapy ...](https://health.allwomenstalk.com/all-the-facts-you-need-about-flotation-therapy/)
+- [what are ten misconceptions about drinking](https://lifestyle.allwomenstalk.com/dangerous-misconceptions-about-alcohol/)
 - [What is Your Stomach Pain Saying about Your Health](https://health.allwomenstalk.com/what-is-your-stomach-pain-saying-about-your-health/)
+- [All the Facts You Need about Flotation Therapy ...](https://health.allwomenstalk.com/all-the-facts-you-need-about-flotation-therapy/)
+- [These Office Habits Are Making You Unhealthy ...](https://lifestyle.allwomenstalk.com/these-office-habits-are-making-you-unhealthy/)
+- [7 Things You Should Know before Picking up an Egg ...](https://food.allwomenstalk.com/things-you-should-know-before-picking-up-an-egg-carton/)
+- [Watch out Ladies Diseases You Can Get Just by Kiss...](https://health.allwomenstalk.com/watch-out-ladies-diseases-you-can-get-just-by-kissing/)
+- [Top Things All Women Need to Know  about Vaginal H...](https://health.allwomenstalk.com/every-woman-should-know-about-this-about-her-vaginal-health/)
+- [7 Reasons Your Period is Acting Crazy ...](https://health.allwomenstalk.com/reasons-your-period-is-acting-crazy/)
+- [Facts about Zika Virus All Health Obsessed People ...](https://health.allwomenstalk.com/facts-about-zika-virus-all-health-obsessed-people-should-read/)
 - [7 Things to Remember when Going to Your OB Doc ...](https://parenting.allwomenstalk.com/7-things-to-remember-when-going-to-your-ob-doc/)
 - [7 Period Problems You Shouldnt Ignore ...](https://allwomenstalk.com/7-period-problems-you-shouldnt-ignore/)
 

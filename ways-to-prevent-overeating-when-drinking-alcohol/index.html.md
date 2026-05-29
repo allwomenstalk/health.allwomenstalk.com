@@ -3,7 +3,7 @@ title: "7 Ways to Prevent Overeating when Drinking Alcohol ..."
 description: "Eat a Solid Meal before You Go Drinking; Stick to a Two Drink Max; Drink Plenty of Water; Stick to a Two Night Max; Leave the Bar before Last Call; More ..."
 url: "https://health.allwomenstalk.com/ways-to-prevent-overeating-when-drinking-alcohol/"
 category: "health"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Ways to Prevent Overeating when Drinking Alcohol ...
@@ -42,16 +42,16 @@ Many women struggle with overeating when they drink alcohol. With this list of t
 
 ## Related Posts
 
-- [healthy easter](https://fitness.allwomenstalk.com/fitness-tips-for-a-healthy-easter/)
-- [lowest calorie dip](https://food.allwomenstalk.com/tips-for-making-low-cal-and-low-fat-dips/)
-- [french diet plan](https://diet.allwomenstalk.com/french-diet-tips-that-will-work-for-you/)
-- [cookie alternative food](https://food.allwomenstalk.com/ways-to-make-your-cookies-healthier/)
 - [are tacos healthy for weight loss](https://food.allwomenstalk.com/ways-to-make-tacos-healthier/)
 - [adding fat to diet](https://food.allwomenstalk.com/tips-for-adding-more-healthy-fat-to-your-diet/)
-- [fettanteil reduzieren](https://food.allwomenstalk.com/smart-ways-to-reduce-the-fat-content-in-food/)
+- [french diet plan](https://diet.allwomenstalk.com/french-diet-tips-that-will-work-for-you/)
 - [power up meal](https://food.allwomenstalk.com/ways-to-power-up-your-morning-meal-with-delicious-food/)
 - [what is raw diet](https://food.allwomenstalk.com/ways-to-eat-more-raw-foods/)
 - [recover me yoga](https://health.allwomenstalk.com/ways-yoga-can-help-you-recover-from-your-eating-disorder/)
+- [cookie alternative food](https://food.allwomenstalk.com/ways-to-make-your-cookies-healthier/)
+- [healthy easter](https://fitness.allwomenstalk.com/fitness-tips-for-a-healthy-easter/)
+- [fettanteil reduzieren](https://food.allwomenstalk.com/smart-ways-to-reduce-the-fat-content-in-food/)
+- [lowest calorie dip](https://food.allwomenstalk.com/tips-for-making-low-cal-and-low-fat-dips/)
 - [7 Ways to Control Your Cravings ...](https://cooking.allwomenstalk.com/7-ways-to-control-your-cravings/)
 - [7 Ways to Stop Snacking ...](https://health.allwomenstalk.com/7-ways-to-stop-snacking/)
 

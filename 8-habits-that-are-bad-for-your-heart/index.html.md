@@ -3,7 +3,7 @@ title: "8 Habits That Are Bad for Your Heart ..."
 description: "Smoking; Ignoring Health Issues; Overeating; Drinking Excessive Amounts of Alcohol; Keeping Poor Track of High Blood Pressure; More ..."
 url: "https://health.allwomenstalk.com/8-habits-that-are-bad-for-your-heart/"
 category: "health"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 8 Habits That Are Bad for Your Heart ...
@@ -49,15 +49,15 @@ Top Photo Credit: [M!sS ArT ³³](https://www.flickr.com/photos/miss-art/2783285
 ## Related Posts
 
 - [le stylo timeless spark](https://lifestyle.allwomenstalk.com/table-manners-you-dont-want-to-forget/)
-- [stop saying if you will](https://lifestyle.allwomenstalk.com/negative-things-you-should-stop-saying/)
-- [topics to talk with friends](https://lifestyle.allwomenstalk.com/conversation-topics-you-dont-want-to-bring-up-too-soon/)
-- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
-- [lgbt sterotypes](https://lifestyle.allwomenstalk.com/common-gay-stereotypes-you-should-avoid/)
-- [bad influences examples](https://lifestyle.allwomenstalk.com/negative-influences-to-remove-from-your-life/)
-- [7 things you should always keep secret](https://lifestyle.allwomenstalk.com/things-you-should-keep-secret/)
-- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/annoying-things-about-supermarkets/)
-- [stylo primped previous](https://hair.allwomenstalk.com/things-that-wont-help-grow-your-hair-faster/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/worst-interview-mistakes/)
+- [stylo primped previous](https://hair.allwomenstalk.com/things-that-wont-help-grow-your-hair-faster/)
+- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
+- [bad influences examples](https://lifestyle.allwomenstalk.com/negative-influences-to-remove-from-your-life/)
+- [stop saying if you will](https://lifestyle.allwomenstalk.com/negative-things-you-should-stop-saying/)
+- [7 things you should always keep secret](https://lifestyle.allwomenstalk.com/things-you-should-keep-secret/)
+- [topics to talk with friends](https://lifestyle.allwomenstalk.com/conversation-topics-you-dont-want-to-bring-up-too-soon/)
+- [lgbt sterotypes](https://lifestyle.allwomenstalk.com/common-gay-stereotypes-you-should-avoid/)
+- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/annoying-things-about-supermarkets/)
 - [8 Harmful Heart Habits ...](https://health.allwomenstalk.com/8-harmful-heart-habits/)
 - [How to Keep Your Heart Healthy ...](https://allwomenstalk.com/how-to-keep-your-heart-healthy/)
 

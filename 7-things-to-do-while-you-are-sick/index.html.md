@@ -3,7 +3,7 @@ title: "7 Things to do While You Are Sick ..."
 description: "Reorganize Your Clothes/shelves/cupboards; Experience the Wonders of Online Shopping; Reorganize Your Makeup; Get Some Work Done; Read a Book; More ..."
 url: "https://health.allwomenstalk.com/7-things-to-do-while-you-are-sick/"
 category: "health"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Things to do While You Are Sick ...
@@ -44,16 +44,16 @@ Top Photo Credit: [mikefats](https://www.flickr.com/photos/mikefats/10920525/)
 
 ## Related Posts
 
-- [sweet 16 cards](https://lifestyle.allwomenstalk.com/ideas-for-a-sweet-16-birthday-party/)
-- [oh what a lovely tea party](https://lifestyle.allwomenstalk.com/tea-party-ideas/)
-- [9 Ways to Throw an Awesome Holiday Party ...](https://lifestyle.allwomenstalk.com/ways-to-throw-an-awesome-holiday-party/)
-- [fun things to do in an elevator](https://lifestyle.allwomenstalk.com/fun-things-to-do-in-an-elevator/)
 - [things to do on break at work](https://lifestyle.allwomenstalk.com/fun-things-to-do-on-your-lunch-break/)
+- [oh what a lovely tea party](https://lifestyle.allwomenstalk.com/tea-party-ideas/)
 - [picnic friendly food](https://lifestyle.allwomenstalk.com/great-picnic-basket-ideas-for-a-great-day-out/)
-- [what to wear to a backyard party](https://lifestyle.allwomenstalk.com/easy-ways-to-jazz-up-your-next-outdoor-party/)
+- [fun things to do in an elevator](https://lifestyle.allwomenstalk.com/fun-things-to-do-in-an-elevator/)
+- [sweet 16 cards](https://lifestyle.allwomenstalk.com/ideas-for-a-sweet-16-birthday-party/)
 - [party guests](https://lifestyle.allwomenstalk.com/sure-ways-to-keep-your-party-guests-happy/)
 - [10 fun things to do at home](https://lifestyle.allwomenstalk.com/fun-things-to-do-at-home/)
 - [sportsyou](https://lifestyle.allwomenstalk.com/water-sports-you-should-try/)
+- [what to wear to a backyard party](https://lifestyle.allwomenstalk.com/easy-ways-to-jazz-up-your-next-outdoor-party/)
+- [9 Ways to Throw an Awesome Holiday Party ...](https://lifestyle.allwomenstalk.com/ways-to-throw-an-awesome-holiday-party/)
 - [7 Ways to Help a Sick Child Feel Better ...](https://parenting.allwomenstalk.com/7-ways-to-help-a-sick-child-feel-better/)
 - [7 Tips for Kicking Fall Colds ...](https://health.allwomenstalk.com/tips-for-kicking-fall-colds/)
 

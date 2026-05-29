@@ -3,7 +3,7 @@ title: "7 Fruits and Vegetables That Will Worsen IBS and What You Can Eat Instea
 description: "Apples; Pears; Onions; Corn; Peaches; More ..."
 url: "https://health.allwomenstalk.com/fruits-and-vegetables-that-will-worsen-ibs-and-what-you-can-eat-instead/"
 category: "health"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Fruits and Vegetables That Will Worsen IBS and What You Can Eat Instead ...
@@ -56,16 +56,16 @@ Do you suffer from IBS? Which fruits and vegetables do you have to avoid and whi
 
 ## Related Posts
 
-- [dark chocolate acid reflux](https://health.allwomenstalk.com/foods-to-avoid-if-you-have-acid-reflux/)
-- [are artichokes fermented](https://food.allwomenstalk.com/foods-that-increase-your-good-gut-bacteria-to-help-you-feel-better-fast/)
 - [kashi bars nutrition](https://food.allwomenstalk.com/yummy-nutritional-bars-to-keep-you-satisfied-on-the-go/)
-- [dried fig recipes healthy](https://food.allwomenstalk.com/delicious-fig-recipes-that-will-keep-you-happy-and-healthy/)
+- [dark chocolate acid reflux](https://health.allwomenstalk.com/foods-to-avoid-if-you-have-acid-reflux/)
 - [healthy alternative to mms](https://food.allwomenstalk.com/healthy-vegan-candy-alternatives-that-wont-break-your-diet/)
 - [types of msg](https://food.allwomenstalk.com/super-sneaky-sources-of-msg-in-foods-that-you-should-avoid/)
-- [orange and calcium](https://food.allwomenstalk.com/ways-for-vegans-to-up-their-calcium-intake/)
-- [do oranges help with anxiety](https://food.allwomenstalk.com/foods-that-will-boost-your-mood-and-help-with-anxiety/)
 - [maca post workout](https://food.allwomenstalk.com/great-post-workout-foods-that-are-also-pretty-delicious-too/)
 - [ac6 salad](https://food.allwomenstalk.com/healthy-salad-recipes-that-act-as-full-meals/)
+- [dried fig recipes healthy](https://food.allwomenstalk.com/delicious-fig-recipes-that-will-keep-you-happy-and-healthy/)
+- [orange and calcium](https://food.allwomenstalk.com/ways-for-vegans-to-up-their-calcium-intake/)
+- [do oranges help with anxiety](https://food.allwomenstalk.com/foods-that-will-boost-your-mood-and-help-with-anxiety/)
+- [are artichokes fermented](https://food.allwomenstalk.com/foods-that-increase-your-good-gut-bacteria-to-help-you-feel-better-fast/)
 - [7 Most Unhealthy Foods to Avoid ...](https://health.allwomenstalk.com/most-unhealthy-foods-to-avoid/)
 - [7 Common Foods That Cause Bloating ...](https://diet.allwomenstalk.com/common-foods-that-cause-bloating/)
 

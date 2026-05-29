@@ -3,7 +3,7 @@ title: "9 Mental Tricks to Fight Depression That Really do Work ..."
 description: "Don’t Catastrophize!; Focus on the Positive Things in Your Life; Don’t Overanalyze Things!; Don’t Dwell on Your past!; Stick to a Structured Routine; More ..."
 url: "https://health.allwomenstalk.com/mental-tricks-to-fight-depression-that-really-do-work/"
 category: "health"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 9 Mental Tricks to Fight Depression That Really do Work ...
@@ -58,16 +58,16 @@ Be kind to yourself and reach out to others if you feel the need to do it. Set s
 
 ## Related Posts
 
-- [how to recharge at work](https://money.allwomenstalk.com/amazingly-cheap-ways-to-recharge-after-a-long-day-at-work/)
 - [calming things to do](https://inspiration.allwomenstalk.com/calming-things-to-do-when-everything-else-seems-to-fail/)
+- [how to be more relaxed and laid back](https://lifestyle.allwomenstalk.com/tips-to-become-a-more-laid-back-person/)
+- [websites to calm you down](https://health.allwomenstalk.com/zen-friendly-websites-to-keep-you-calm-and-productive/)
+- [how to recharge at work](https://money.allwomenstalk.com/amazingly-cheap-ways-to-recharge-after-a-long-day-at-work/)
+- [i m not happy](https://lifestyle.allwomenstalk.com/things-to-do-when-you-are-just-not-happy/)
 - [things to do at night instead of watching tv](https://lifestyle.allwomenstalk.com/ways-to-relax-at-night-besides-watching-tv/)
 - [seems like everything is going wrong](https://inspiration.allwomenstalk.com/ways-to-cope-when-it-seems-like-everything-is-going-wrong/)
-- [websites to calm you down](https://health.allwomenstalk.com/zen-friendly-websites-to-keep-you-calm-and-productive/)
 - [finding peace in the chaos](https://inspiration.allwomenstalk.com/ways-to-find-inner-peace-in-a-world-of-chaos/)
-- [filming on hiatus](https://movies.allwomenstalk.com/steps-for-coping-when-a-tv-show-is-on-hiatus/)
-- [how to be more relaxed and laid back](https://lifestyle.allwomenstalk.com/tips-to-become-a-more-laid-back-person/)
 - [how successful people stay calm](https://inspiration.allwomenstalk.com/very-interesting-ways-successful-people-stay-calm/)
-- [i m not happy](https://lifestyle.allwomenstalk.com/things-to-do-when-you-are-just-not-happy/)
+- [filming on hiatus](https://movies.allwomenstalk.com/steps-for-coping-when-a-tv-show-is-on-hiatus/)
 - [9 Ways to Beat the Winter Blues ...](https://lifestyle.allwomenstalk.com/ways-to-beat-the-winter-blues/)
 - [10 Ways to Fight Postpartum Depression ...](https://allwomenstalk.com/10-ways-to-fight-postpartum-depression/)
 

@@ -3,7 +3,7 @@ title: "8 Weird Things We Learnt from Sex Surveys This Year ..."
 description: "The Color of Love?; Think of England…; Librarians Aren’t Quiet…; Europe is Best for Sexy Holidays; More than You Bargained for; More ..."
 url: "https://health.allwomenstalk.com/weird-things-we-learnt-from-sex-surveys-this-year/"
 category: "health"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 8 Weird Things We Learnt from Sex Surveys This Year ...
@@ -46,15 +46,15 @@ Some sex survey questions are just down-right bizarre, but most do tell us somet
 
 ## Related Posts
 
-- [are sagittarius good in bed](https://love.allwomenstalk.com/beautiful-sex-tips-for-a-sagittarius/)
-- [7 Surprisingly Common Sex Injuries ...](https://love.allwomenstalk.com/surprisingly-common-sex-injuries/)
-- [i want to make it clear](https://love.allwomenstalk.com/ways-to-make-clear-you-just-want-sex/)
-- [why do people have one night stands](https://love.allwomenstalk.com/pros-cons-of-one-night-stands/)
-- [gemini man scorpio woman](https://love.allwomenstalk.com/enchanting-sex-tips-for-a-gemini/)
-- [how freaky are cancers](https://love.allwomenstalk.com/awesome-sex-tips-for-a-cancer/)
-- [elbow kisses](https://love.allwomenstalk.com/erogenous-zones-to-explore/)
-- [virgo man turn ons](https://love.allwomenstalk.com/fabulous-sex-tips-for-a-virgo/)
 - [soymonks life](https://food.allwomenstalk.com/worst-foods-for-your-sex-life/)
+- [are sagittarius good in bed](https://love.allwomenstalk.com/beautiful-sex-tips-for-a-sagittarius/)
+- [how freaky are cancers](https://love.allwomenstalk.com/awesome-sex-tips-for-a-cancer/)
+- [i want to make it clear](https://love.allwomenstalk.com/ways-to-make-clear-you-just-want-sex/)
+- [virgo man turn ons](https://love.allwomenstalk.com/fabulous-sex-tips-for-a-virgo/)
+- [elbow kisses](https://love.allwomenstalk.com/erogenous-zones-to-explore/)
+- [why do people have one night stands](https://love.allwomenstalk.com/pros-cons-of-one-night-stands/)
+- [7 Surprisingly Common Sex Injuries ...](https://love.allwomenstalk.com/surprisingly-common-sex-injuries/)
+- [gemini man scorpio woman](https://love.allwomenstalk.com/enchanting-sex-tips-for-a-gemini/)
 - [what turns on an aries](https://love.allwomenstalk.com/mind-blowing-sex-tips-for-an-aries/)
 - [7 Myths about Sex Revealed ...](https://health.allwomenstalk.com/7-myths-about-sex-revealed/)
 - [8 Myths about Sexual Health Busted ...](https://health.allwomenstalk.com/8-myths-about-sexual-health-busted/)

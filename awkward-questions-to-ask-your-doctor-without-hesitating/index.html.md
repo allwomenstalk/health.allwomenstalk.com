@@ -3,7 +3,7 @@ title: "7 Awkward Questions to Ask Your Doctor without Hesitating ..."
 description: "Why Does It Hurt when I Have Sex?; Why Does My Lady Bits Itch?; How Close to Having Kids Should I Stop Taking the Pill?; Is It Normal to Have Pain during My Period?; Condoms Making You Itchy?; More ..."
 url: "https://health.allwomenstalk.com/awkward-questions-to-ask-your-doctor-without-hesitating/"
 category: "health"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Awkward Questions to Ask Your Doctor without Hesitating ...
@@ -42,16 +42,16 @@ All of the above are questions that my friends have asked me or I have heard peo
 
 ## Related Posts
 
-- [7 Tips to Help You Prepare for Your Hysterectomy ....](https://health.allwomenstalk.com/tips-to-help-you-prepare-for-your-hysterectomy/)
 - [7 Medications That Interact with Supplements ...](https://health.allwomenstalk.com/medications-that-interact-with-supplements/)
-- [7 Symptoms of Adrenal Fatigue You Need to Be Aware...](https://health.allwomenstalk.com/symptoms-of-adrenal-fatigue-you-need-to-be-aware-of/)
-- [7 Vaccines You Need to Research before You or Your...](https://health.allwomenstalk.com/vaccines-you-need-to-research-before-you-or-your-children-receive-them/)
-- [7 Questions Senior Ladies Should Ask Their Doctor ...](https://health.allwomenstalk.com/questions-senior-ladies-should-ask-their-doctor-at-their-annual-checkup/)
 - [7 Facts about Digestive Health That Every Woman Sh...](https://health.allwomenstalk.com/facts-about-digestive-health-that-every-woman-should-know/)
-- [7 Old Wives Tales about Your Health ...](https://health.allwomenstalk.com/old-wives-tales-about-your-health/)
 - [7 Signs of Vitamin D Deficiency to Be Aware of ...](https://health.allwomenstalk.com/signs-of-vitamin-d-deficiency-to-be-aware-of/)
 - [7 Gluten Free Problems to Be Ready for ...](https://health.allwomenstalk.com/gluten-free-problems-to-be-ready-for/)
+- [7 Symptoms of Adrenal Fatigue You Need to Be Aware...](https://health.allwomenstalk.com/symptoms-of-adrenal-fatigue-you-need-to-be-aware-of/)
+- [7 Old Wives Tales about Your Health ...](https://health.allwomenstalk.com/old-wives-tales-about-your-health/)
 - [7 Things You Need to Know about Pesticides and You...](https://health.allwomenstalk.com/things-you-need-to-know-about-pesticides-and-your-health/)
+- [7 Questions Senior Ladies Should Ask Their Doctor ...](https://health.allwomenstalk.com/questions-senior-ladies-should-ask-their-doctor-at-their-annual-checkup/)
+- [7 Vaccines You Need to Research before You or Your...](https://health.allwomenstalk.com/vaccines-you-need-to-research-before-you-or-your-children-receive-them/)
+- [7 Tips to Help You Prepare for Your Hysterectomy ....](https://health.allwomenstalk.com/tips-to-help-you-prepare-for-your-hysterectomy/)
 - [10 Things You Should Never Lie to Your Doctor abou...](https://allwomenstalk.com/10-things-you-should-never-lie-to-your-doctor-about/)
 - [8 Questions You Should Never Ask ...](https://allwomenstalk.com/8-questions-you-should-never-ask/)
 

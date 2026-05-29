@@ -3,7 +3,7 @@ title: "7 Negative Effects of Your Smart Phone on Your Health ..."
 description: "Germs; Creativity; Disconnect; Texting and Driving; Stress; More ..."
 url: "https://health.allwomenstalk.com/negative-effects-of-your-smart-phone-on-your-health/"
 category: "health"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Negative Effects of Your Smart Phone on Your Health ...
@@ -42,16 +42,16 @@ As you can see, smart phones easily affect several areas of our overall health. 
 
 ## Related Posts
 
-- [how to educate yourself on politics](https://lifestyle.allwomenstalk.com/important-political-issues-you-need-to-educate-yourself-on/)
-- [tired all the time blood test](https://health.allwomenstalk.com/blood-tests-for-fatigue-to-have-your-doctor-do-if-youre-always-tired/)
-- [bad things for your heart](https://health.allwomenstalk.com/bad-habits-that-could-damage-your-heart/)
-- [does hot yoga tone your body](https://lifestyle.allwomenstalk.com/pros-and-cons-of-hot-yoga-that-you-should-know/)
-- [men and anorexia](https://health.allwomenstalk.com/facts-about-male-anorexia-that-you-probably-dont-know-but-should/)
 - [myths about stds](https://health.allwomenstalk.com/common-myths-about-sexually-transmitted-diseases-and-infections/)
 - [multivitamin without titanium dioxide](https://health.allwomenstalk.com/toxic-ingredients-to-avoid-when-buying-supplements/)
+- [does hot yoga tone your body](https://lifestyle.allwomenstalk.com/pros-and-cons-of-hot-yoga-that-you-should-know/)
+- [how to educate yourself on politics](https://lifestyle.allwomenstalk.com/important-political-issues-you-need-to-educate-yourself-on/)
+- [men and anorexia](https://health.allwomenstalk.com/facts-about-male-anorexia-that-you-probably-dont-know-but-should/)
+- [tired all the time blood test](https://health.allwomenstalk.com/blood-tests-for-fatigue-to-have-your-doctor-do-if-youre-always-tired/)
 - [the skin book tattoo](https://lifestyle.allwomenstalk.com/things-you-didnt-know-about-getting-a-tattoo/)
 - [life saving items](https://lifestyle.allwomenstalk.com/life-saving-items-you-must-keep-in-your-emergency-kit/)
 - [what to look for in a juicer](https://health.allwomenstalk.com/essential-things-to-consider-when-buying-a-juicer/)
+- [bad things for your heart](https://health.allwomenstalk.com/bad-habits-that-could-damage-your-heart/)
 - [5 Major Health Issues You Should Be Aware of ...](https://allwomenstalk.com/5-major-health-issues-you-should-be-aware-of/)
 - [8 Negative Effects of over-Exercise ...](https://allwomenstalk.com/8-negative-effects-of-over-exercise/)
 

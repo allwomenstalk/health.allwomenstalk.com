@@ -3,7 +3,7 @@ title: "7 Ways Yoga Can Help You Recover from Your Eating Disorder ..."
 description: "Mind/Body Connection; Mindfulness; Kind; Muscle Memory; Listening to Your Body; More ..."
 url: "https://health.allwomenstalk.com/ways-yoga-can-help-you-recover-from-your-eating-disorder/"
 category: "health"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Ways Yoga Can Help You Recover from Your Eating Disorder ...
@@ -42,14 +42,14 @@ Recovering from an eating disorder is difficult but not impossible. Yoga has pro
 
 ## Related Posts
 
-- [french diet plan](https://diet.allwomenstalk.com/french-diet-tips-that-will-work-for-you/)
 - [healthy easter](https://fitness.allwomenstalk.com/fitness-tips-for-a-healthy-easter/)
 - [fettanteil reduzieren](https://food.allwomenstalk.com/smart-ways-to-reduce-the-fat-content-in-food/)
-- [are tacos healthy for weight loss](https://food.allwomenstalk.com/ways-to-make-tacos-healthier/)
-- [adding fat to diet](https://food.allwomenstalk.com/tips-for-adding-more-healthy-fat-to-your-diet/)
+- [what type of chocolate has health benefits](https://food.allwomenstalk.com/healthy-ways-to-eat-more-chocolate/)
 - [lowest calorie dip](https://food.allwomenstalk.com/tips-for-making-low-cal-and-low-fat-dips/)
 - [power up meal](https://food.allwomenstalk.com/ways-to-power-up-your-morning-meal-with-delicious-food/)
-- [what type of chocolate has health benefits](https://food.allwomenstalk.com/healthy-ways-to-eat-more-chocolate/)
+- [are tacos healthy for weight loss](https://food.allwomenstalk.com/ways-to-make-tacos-healthier/)
+- [french diet plan](https://diet.allwomenstalk.com/french-diet-tips-that-will-work-for-you/)
+- [adding fat to diet](https://food.allwomenstalk.com/tips-for-adding-more-healthy-fat-to-your-diet/)
 - [what is raw diet](https://food.allwomenstalk.com/ways-to-eat-more-raw-foods/)
 - [cookie alternative food](https://food.allwomenstalk.com/ways-to-make-your-cookies-healthier/)
 - [7 Ways to Repair Your Relationship with Food ...](https://diet.allwomenstalk.com/ways-to-repair-your-relationship-with-food/)
