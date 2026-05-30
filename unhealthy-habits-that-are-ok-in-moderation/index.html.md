@@ -3,7 +3,7 @@ title: "8 Unhealthy Habits That Are OK in Moderation ..."
 description: "Drinking; Sugary Treats; Junk Food; Swearing; Sleeping Late; More ..."
 url: "https://health.allwomenstalk.com/unhealthy-habits-that-are-ok-in-moderation/"
 category: "health"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 8 Unhealthy Habits That Are OK in Moderation ...
@@ -49,15 +49,15 @@ Top Photo Credit: [weheartit.com](https://weheartit.com/entry/15850776)
 ## Related Posts
 
 - [8 Small Changes to Eat More Healthily ...](https://health.allwomenstalk.com/small-changes-to-eat-more-healthily/)
-- [7 Diet Tips for Breakfast ...](https://diet.allwomenstalk.com/diet-tips-for-breakfast/)
 - [7 Basic Nutrition Rules for a Fab Body ...](https://diet.allwomenstalk.com/basic-nutrition-rules-for-a-fab-body/)
-- [how to feel healthy](https://health.allwomenstalk.com/tips-on-how-to-feel-more-healthy/)
-- [7 Sure Ways to Improve Your Heart Health ...](https://health.allwomenstalk.com/sure-ways-to-improve-your-heart-health/)
-- [7 People to Trust for Diet Advice ...](https://diet.allwomenstalk.com/people-to-trust-for-diet-advice/)
-- [8 Tips for Choosing Healthy Cereal ...](https://diet.allwomenstalk.com/tips-for-choosing-healthy-cereal/)
-- [diet tips for woman](https://vityle.com/diet-tips-for-women-you-should-know/)
 - [8 Ways You Can Prevent Diabetes ...](https://health.allwomenstalk.com/ways-you-can-prevent-diabetes/)
+- [diet tips for woman](https://vityle.com/diet-tips-for-women-you-should-know/)
+- [7 People to Trust for Diet Advice ...](https://diet.allwomenstalk.com/people-to-trust-for-diet-advice/)
+- [7 Diet Tips for Breakfast ...](https://diet.allwomenstalk.com/diet-tips-for-breakfast/)
 - [9 Healthy Eating Tips for Teens ...](https://diet.allwomenstalk.com/healthy-eating-tips-for-teens/)
+- [7 Sure Ways to Improve Your Heart Health ...](https://health.allwomenstalk.com/sure-ways-to-improve-your-heart-health/)
+- [8 Tips for Choosing Healthy Cereal ...](https://diet.allwomenstalk.com/tips-for-choosing-healthy-cereal/)
+- [how to feel healthy](https://health.allwomenstalk.com/tips-on-how-to-feel-more-healthy/)
 - [8 Ways to Start a Healthy Lifestyle ...](https://diet.allwomenstalk.com/ways-to-start-a-healthy-lifestyle/)
 - [8 Harmful Heart Habits ...](https://health.allwomenstalk.com/8-harmful-heart-habits/)
 

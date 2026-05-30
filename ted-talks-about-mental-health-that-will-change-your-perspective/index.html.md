@@ -3,7 +3,7 @@ title: "7 TED Talks about Mental Health That Will Change Your Perspective ..."
 description: "Thomas Insel; Ruby Wax; Vikram Patel; David Steindl-Rast; Glennon Doyle Melton; More ..."
 url: "https://health.allwomenstalk.com/ted-talks-about-mental-health-that-will-change-your-perspective/"
 category: "health"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 TED Talks about Mental Health That Will Change Your Perspective ...
@@ -42,14 +42,14 @@ It’s important to take care of your mental health because without it, you’re
 
 ## Related Posts
 
-- [impossible vs improbable](https://inspiration.allwomenstalk.com/reasons-why-anything-is-possible-the-difference-between-improbable-and-impossible/)
-- [time to make a change](https://inspiration.allwomenstalk.com/things-you-should-never-want-to-change-about-your-life/)
-- [things parents teach you](https://parenting.allwomenstalk.com/things-your-parents-cant-teach-you-about-life/)
-- [things to keep](https://inspiration.allwomenstalk.com/things-you-should-keep-throughout-your-life/)
 - [elementary lessons](https://inspiration.allwomenstalk.com/life-lessons-that-you-learned-in-elementary-school/)
+- [things to keep](https://inspiration.allwomenstalk.com/things-you-should-keep-throughout-your-life/)
+- [time to make a change](https://inspiration.allwomenstalk.com/things-you-should-never-want-to-change-about-your-life/)
+- [impossible vs improbable](https://inspiration.allwomenstalk.com/reasons-why-anything-is-possible-the-difference-between-improbable-and-impossible/)
 - [important values to have](https://inspiration.allwomenstalk.com/important-values-to-live-by/)
-- [why i talk less](https://inspiration.allwomenstalk.com/interesting-benefits-of-speaking-less-and-listening-more/)
+- [things parents teach you](https://parenting.allwomenstalk.com/things-your-parents-cant-teach-you-about-life/)
 - [instinct examples in humans](https://lifestyle.allwomenstalk.com/base-instincts-you-didnt-know-you-had/)
+- [why i talk less](https://inspiration.allwomenstalk.com/interesting-benefits-of-speaking-less-and-listening-more/)
 - [you have enough](https://lifestyle.allwomenstalk.com/things-we-never-seem-to-have-enough-of/)
 - [7 Motivational Workout Quotes That Will Change You...](https://fitness.allwomenstalk.com/motivational-workout-quotes-that-will-change-your-life/)
 - [7 Things to Remember when You Have a Mental Illnes...](https://health.allwomenstalk.com/things-to-remember-when-you-have-a-mental-illness/)

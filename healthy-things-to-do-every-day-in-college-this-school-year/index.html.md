@@ -3,7 +3,7 @@ title: "7 Healthy Things to do Every Day in College This School Year ..."
 description: "Scenic Route; Talk It out; Stop Skimping; Use Breaks to Your Benefit; Don’t Take on Too Much; More ..."
 url: "https://health.allwomenstalk.com/healthy-things-to-do-every-day-in-college-this-school-year/"
 category: "health"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Healthy Things to do Every Day in College This School Year ...
@@ -42,16 +42,16 @@ Make sure to keep healthy this school year. Do you have any tips to keep physica
 
 ## Related Posts
 
-- [what can i do to stand out to colleges](https://lifestyle.allwomenstalk.com/best-things-to-do-in-order-to-stand-out-for-colleges/)
 - [7 Helpful Hints for Combining Work and Study ...](https://lifestyle.allwomenstalk.com/helpful-hints-for-combing-work-and-study/)
-- [7 Things You Must do in College to Prepare for a P...](https://lifestyle.allwomenstalk.com/things-you-must-do-in-college-to-prepare-for-a-post-grad-job/)
-- [7 Ways to Avoid Online Distractions While Doing Ho...](https://lifestyle.allwomenstalk.com/ways-to-avoid-online-distractions-while-doing-homework/)
-- [7 Ways You Can Stretch Your College Budget ...](https://money.allwomenstalk.com/ways-you-can-stretch-your-college-budget/)
-- [most interesting degrees](https://lifestyle.allwomenstalk.com/fascinating-degrees-to-consider-majoring-in/)
-- [7 Things to Take into Account when Applying to Col...](https://lifestyle.allwomenstalk.com/things-to-take-into-account-when-applying-to-college/)
-- [study abroad in florence italy tips](https://travel.allwomenstalk.com/useful-tips-for-studying-in-florence/)
 - [7 Best Online Resources to Solve Educational Probl...](https://apps.allwomenstalk.com/best-online-resources-to-solve-educational-problems/)
 - [what should colleges teach](https://lifestyle.allwomenstalk.com/absolutely-important-lessons-colleges-should-teach/)
+- [most interesting degrees](https://lifestyle.allwomenstalk.com/fascinating-degrees-to-consider-majoring-in/)
+- [7 Ways You Can Stretch Your College Budget ...](https://money.allwomenstalk.com/ways-you-can-stretch-your-college-budget/)
+- [what can i do to stand out to colleges](https://lifestyle.allwomenstalk.com/best-things-to-do-in-order-to-stand-out-for-colleges/)
+- [7 Things You Must do in College to Prepare for a P...](https://lifestyle.allwomenstalk.com/things-you-must-do-in-college-to-prepare-for-a-post-grad-job/)
+- [7 Things to Take into Account when Applying to Col...](https://lifestyle.allwomenstalk.com/things-to-take-into-account-when-applying-to-college/)
+- [7 Ways to Avoid Online Distractions While Doing Ho...](https://lifestyle.allwomenstalk.com/ways-to-avoid-online-distractions-while-doing-homework/)
+- [study abroad in florence italy tips](https://travel.allwomenstalk.com/useful-tips-for-studying-in-florence/)
 - [7 Ways to Prep for College ...](https://lifestyle.allwomenstalk.com/7-ways-to-prep-for-college/)
 - [10 Healthy Habits to Start in College ...](https://lifestyle.allwomenstalk.com/healthy-habits-to-start-in-college/)
 

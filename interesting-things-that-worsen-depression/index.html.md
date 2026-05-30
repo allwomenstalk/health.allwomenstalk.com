@@ -3,7 +3,7 @@ title: "7 Interesting Things That Worsen Depression ..."
 description: "Stress; Not Enough Sleep; Food; Toxic People; Anniversary Reactions; More ..."
 url: "https://health.allwomenstalk.com/interesting-things-that-worsen-depression/"
 category: "health"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Interesting Things That Worsen Depression ...
@@ -44,16 +44,16 @@ There are a lot of things that can worsen depression. I just mentioned a few in 
 
 ## Related Posts
 
-- [7 Proven Ways to Destress in the Midst of a Crazy ...](https://parenting.allwomenstalk.com/ways-to-find-peace-in-the-midst-of-crazy-mommy-days/)
-- [7 Refreshing Activities for a Mental Health Day .....](https://health.allwomenstalk.com/refreshing-activities-for-a-mental-health-day/)
 - [8 Times when You Need a Break ...](https://lifestyle.allwomenstalk.com/times-when-you-need-a-break/)
-- [happy valentines day boston terrier](https://lifestyle.allwomenstalk.com/photos-of-cute-pets-to-make-you-giggle/)
+- [7 Proven Ways to Destress in the Midst of a Crazy ...](https://parenting.allwomenstalk.com/ways-to-find-peace-in-the-midst-of-crazy-mommy-days/)
+- [7 Tips to Calm down when You Start to Get Stressed...](https://health.allwomenstalk.com/tips-to-calm-down-when-you-start-to-get-stressed/)
+- [7 Refreshing Activities for a Mental Health Day .....](https://health.allwomenstalk.com/refreshing-activities-for-a-mental-health-day/)
 - [7 Ways to Reduce Morning Anxiety without Medicatio...](https://health.allwomenstalk.com/ways-to-reduce-morning-anxiety-without-medication/)
 - [7 Relaxing Activities to Reduce Stress and Cause H...](https://health.allwomenstalk.com/relaxing-activities-to-reduce-stress-and-cause-happiness/)
-- [7 Tips to Calm down when You Start to Get Stressed...](https://health.allwomenstalk.com/tips-to-calm-down-when-you-start-to-get-stressed/)
 - [7 Ways to Look after Your Mental Health ...](https://health.allwomenstalk.com/ways-to-look-after-your-mental-health/)
-- [7 Ways to Prevent Depression from Striking You ...](https://health.allwomenstalk.com/ways-to-prevent-depression-from-striking-you/)
 - [7 Simple Ways to Improve Your Mental Clarity ...](https://health.allwomenstalk.com/simple-ways-to-improve-your-mental-clarity/)
+- [7 Ways to Prevent Depression from Striking You ...](https://health.allwomenstalk.com/ways-to-prevent-depression-from-striking-you/)
+- [happy valentines day boston terrier](https://lifestyle.allwomenstalk.com/photos-of-cute-pets-to-make-you-giggle/)
 - [10 Things That Will Make You Happy ...](https://allwomenstalk.com/10-things-that-will-make-you-happy/)
 - [7 Things You Should Not Say to Someone with Depres...](https://allwomenstalk.com/7-things-you-should-not-say-to-someone-with-depression/)
 

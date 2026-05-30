@@ -3,7 +3,7 @@ title: "11 Things to do when You Are Sick ..."
 description: "Sleep and Sleep Some More; Load up on Fluids; Include Plenty of Hot Beverages; Eat the Right Foods (when You Can); Avoid Certain Foods and Beverages; More ..."
 url: "https://health.allwomenstalk.com/things-to-do-when-you-are-sick/"
 category: "health"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 11 Things to do when You Are Sick ...
@@ -58,16 +58,16 @@ I hate getting sick. I get whiny, antsy, and so sluggish. You might be tempted t
 
 ## Related Posts
 
-- [dark circles food](https://skincare.allwomenstalk.com/natural-ways-to-reduce-under-eye-circles/)
-- [to reduce exposure to pesticides](https://food.allwomenstalk.com/ways-to-reduce-your-exposure-to-pesticides/)
-- [ways to eat honey](https://diy.allwomenstalk.com/ways-to-use-honey-other-than-eating-it/)
 - [7 Ways to Use Foods to Treat Parasites and Yeast i...](https://health.allwomenstalk.com/ways-to-use-foods-to-treat-parasites-and-yeast-in-the-body/)
-- [how to identify real cinnamon](https://food.allwomenstalk.com/ways-to-tell-if-your-cinnamon-is-true-cinnamon/)
+- [dark circles food](https://skincare.allwomenstalk.com/natural-ways-to-reduce-under-eye-circles/)
 - [how to detox from air pollution](https://health.allwomenstalk.com/detoxing-methods-to-purge-your-body-of-air-pollution/)
-- [herbs that help acne](https://skincare.allwomenstalk.com/wonderful-herbs-to-eat-that-combat-acne/)
+- [to reduce exposure to pesticides](https://food.allwomenstalk.com/ways-to-reduce-your-exposure-to-pesticides/)
 - [honeymoon cysitis](https://wedding.allwomenstalk.com/tips-to-help-you-prevent-getting-honeymoon-cystitis-on-your-honeymoon/)
-- [gram lentil soup recipe to delay periods](https://health.allwomenstalk.com/ways-to-delay-your-period-that-are-worth-trying/)
+- [herbs that help acne](https://skincare.allwomenstalk.com/wonderful-herbs-to-eat-that-combat-acne/)
 - [best ways to whiten your teeth](https://beauty.allwomenstalk.com/best-ways-to-whiten-your-teeth/)
+- [ways to eat honey](https://diy.allwomenstalk.com/ways-to-use-honey-other-than-eating-it/)
+- [how to identify real cinnamon](https://food.allwomenstalk.com/ways-to-tell-if-your-cinnamon-is-true-cinnamon/)
+- [gram lentil soup recipe to delay periods](https://health.allwomenstalk.com/ways-to-delay-your-period-that-are-worth-trying/)
 - [7 Ways to Help a Sick Child Feel Better ...](https://parenting.allwomenstalk.com/7-ways-to-help-a-sick-child-feel-better/)
 - [7 Things to do While You Are Sick ...](https://health.allwomenstalk.com/7-things-to-do-while-you-are-sick/)
 

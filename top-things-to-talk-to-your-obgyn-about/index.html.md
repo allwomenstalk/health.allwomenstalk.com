@@ -3,7 +3,7 @@ title: "Things You Absolutely Need to Talk to Your OBGYN about ..."
 description: "Birth Control; Breast Health; Your Menstrual Cycle; Depression; Your Weight; More ..."
 url: "https://health.allwomenstalk.com/top-things-to-talk-to-your-obgyn-about/"
 category: "health"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # Things You Absolutely Need to Talk to Your OBGYN about ...
@@ -42,16 +42,16 @@ Whatever you do, never leave your OBGYN’s office without talking to them about
 
 ## Related Posts
 
-- [7 Causes  Triggers of Eczema in Children to Be Awa...](https://health.allwomenstalk.com/causes-triggers-of-eczema-in-children-to-be-aware-of/)
-- [face mapping for health](https://health.allwomenstalk.com/things-face-mapping-can-tell-you-about-your-health/)
-- [7 Important Things You Need to Know about Antibiot...](https://vityle.com/important-things-you-need-to-know-about-antibiotics/)
-- [9 Differences between a Naturopath and a General P...](https://health.allwomenstalk.com/differences-between-a-naturopath-and-a-general-practitioner/)
-- [9 Important Facts about Fertility That You Should ...](https://health.allwomenstalk.com/important-facts-about-fertility-that-you-should-know/)
-- [7 Essential Facts You Need to Know about Estrogen ...](https://health.allwomenstalk.com/essential-facts-you-need-to-know-about-estrogen-dominance/)
-- [9 Symptoms and Facts about Leaky Gut to Look out f...](https://health.allwomenstalk.com/symptoms-and-facts-about-leaky-gut-to-look-out-for/)
-- [7 Things Everyone Should Know about Joint Hypermob...](https://health.allwomenstalk.com/things-everyone-should-know-about-joint-hypermobility-syndrome/)
 - [7 Ways PMS Affects Your Digestion and What to do a...](https://health.allwomenstalk.com/ways-pms-affects-your-digestion-and-what-to-do-about-it/)
+- [7 Essential Facts You Need to Know about Estrogen ...](https://health.allwomenstalk.com/essential-facts-you-need-to-know-about-estrogen-dominance/)
+- [7 Things Everyone Should Know about Joint Hypermob...](https://health.allwomenstalk.com/things-everyone-should-know-about-joint-hypermobility-syndrome/)
+- [9 Important Facts about Fertility That You Should ...](https://health.allwomenstalk.com/important-facts-about-fertility-that-you-should-know/)
+- [9 Differences between a Naturopath and a General P...](https://health.allwomenstalk.com/differences-between-a-naturopath-and-a-general-practitioner/)
 - [7 Health Warnings You Can Stop Listening to and sa...](https://vityle.com/health-warnings-you-can-stop-listening-to-and-save-your-sanity/)
+- [7 Important Things You Need to Know about Antibiot...](https://vityle.com/important-things-you-need-to-know-about-antibiotics/)
+- [face mapping for health](https://health.allwomenstalk.com/things-face-mapping-can-tell-you-about-your-health/)
+- [7 Causes  Triggers of Eczema in Children to Be Awa...](https://health.allwomenstalk.com/causes-triggers-of-eczema-in-children-to-be-aware-of/)
+- [9 Symptoms and Facts about Leaky Gut to Look out f...](https://health.allwomenstalk.com/symptoms-and-facts-about-leaky-gut-to-look-out-for/)
 - [10 Things Pregnant Women Should Know ...](https://parenting.allwomenstalk.com/10-things-pregnant-women-should-know/)
 - [8 Things You Should Know before You Get Pregnant ....](https://parenting.allwomenstalk.com/things-you-should-know-before-you-get-pregnant/)
 

@@ -3,7 +3,7 @@ title: "12 Signs That You Should Take a Break from Facebook ..."
 description: "Live for the Updates; Reality Check; Over-share; Work? What Work?; Secret Spy; More ..."
 url: "https://health.allwomenstalk.com/signs-that-you-should-take-a-break-from-facebook/"
 category: "health"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 12 Signs That You Should Take a Break from Facebook ...
@@ -64,14 +64,14 @@ These 12 signs that you should take a break from Facebook come from personal exp
 
 - [am i spending too much money](https://money.allwomenstalk.com/indications-that-you-are-spending-too-much-money/)
 - [how to compliment new haircut](https://hair.allwomenstalk.com/signs-you-need-a-new-haircut/)
-- [hormones out of wack](https://health.allwomenstalk.com/signs-your-hormones-are-out-of-whack/)
-- [signs someone is living beyond their means](https://money.allwomenstalk.com/signs-that-youre-living-beyond-your-means/)
 - [how to tell if someone is wearing makeup](https://makeup.allwomenstalk.com/signs-that-you-wear-too-much-makeup/)
 - [signs you maybe pregnant](https://parenting.allwomenstalk.com/signs-you-may-be-pregnant/)
+- [signs someone is living beyond their means](https://money.allwomenstalk.com/signs-that-youre-living-beyond-your-means/)
+- [signs of overspending](https://money.allwomenstalk.com/signs-you-are-overspending/)
+- [hormones out of wack](https://health.allwomenstalk.com/signs-your-hormones-are-out-of-whack/)
 - [signs of love addiction](https://love.allwomenstalk.com/signs-youre-a-love-addict/)
 - [7 Ways to Tell if You Are Gay ...](https://love.allwomenstalk.com/ways-to-tell-if-you-are-gay/)
 - [what is a diva girl](https://fashion.allwomenstalk.com/signs-youre-a-diva/)
-- [signs of overspending](https://money.allwomenstalk.com/signs-you-are-overspending/)
 - [8 Signs Youre Addicted to Facebook ...](https://allwomenstalk.com/8-signs-youre-addicted-to-facebook/)
 - [10 Signs That You Should Ditch Your Friend ...](https://allwomenstalk.com/10-signs-that-you-should-ditch-your-friend/)
 

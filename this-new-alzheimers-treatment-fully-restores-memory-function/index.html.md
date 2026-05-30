@@ -3,7 +3,7 @@ title: "This New Alzheimers Treatment Fully Restores Memory Function ..."
 description: "Two Types of Lesions Lead to Alzheimer’s; Queensland Brain Institute Have Come up with a Solution for One of the Lesions; A Group of Experimental Mice Were Tested on Memory Tasks; Data Shows Favorable Support for the Effectiveness of the Treatment; There Are No Therapeutics Involved in This Treatment; More ..."
 url: "https://health.allwomenstalk.com/this-new-alzheimers-treatment-fully-restores-memory-function/"
 category: "health"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # This New Alzheimers Treatment Fully Restores Memory Function ...
@@ -44,16 +44,16 @@ Sources: [sciencealert.com](http://www.sciencealert.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [...](https://inspiration.allwomenstalk.com/amazing-self-care-tips-for-girls-who-need-to-focus-on-them-once-in-awhile/)
-- [Dont Miss the New Seasons of These Addictive TV Sh...](https://movies.allwomenstalk.com/dont-miss-the-new-seasons-of-these-addictive-tv-shows/)
-- [OMG Making a Murderer is Coming to Netflix and Her...](https://movies.allwomenstalk.com/omg-making-a-murderer-is-coming-to-netflix-and-heres-why-you-need-to-watch-it/)
-- [This is Why We All Need to Vote for Those Who Are ...](https://lifestyle.allwomenstalk.com/this-is-why-we-all-need-to-vote-for-those-who-are-18-but-hesitant-about-elections/)
-- [The Best of the MannequinChallenge so Far ...](https://funny.allwomenstalk.com/the-best-of-the-mannequinchallenge-so-far/)
 - [7 Insanely Awesome Shows to Fill the Void Left by ...](https://movies.allwomenstalk.com/insanely-awesome-shows-to-fill-the-void-left-by-game-of-thrones/)
+- [OMG Making a Murderer is Coming to Netflix and Her...](https://movies.allwomenstalk.com/omg-making-a-murderer-is-coming-to-netflix-and-heres-why-you-need-to-watch-it/)
 - [Hot New TV Shows to Check out This Fall ...](https://movies.allwomenstalk.com/hot-new-tv-shows-to-check-out-this-fall/)
 - [This is Why a Harry Potter Version of Pokmon Go Wo...](https://apps.allwomenstalk.com/this-is-why-a-harry-potter-version-of-pokemon-go-would-be-even-better/)
-- [Once upon a Time is Back and Heres Why You Need to...](https://movies.allwomenstalk.com/once-upon-a-time-is-back-and-heres-why-you-need-to-watch-it/)
+- [...](https://inspiration.allwomenstalk.com/amazing-self-care-tips-for-girls-who-need-to-focus-on-them-once-in-awhile/)
 - [Your Dark Side Will Flip over the New Goth Latte T...](https://food.allwomenstalk.com/your-dark-side-will-flip-over-the-new-goth-latte-taking-the-world-by-storm/)
+- [The Best of the MannequinChallenge so Far ...](https://funny.allwomenstalk.com/the-best-of-the-mannequinchallenge-so-far/)
+- [Once upon a Time is Back and Heres Why You Need to...](https://movies.allwomenstalk.com/once-upon-a-time-is-back-and-heres-why-you-need-to-watch-it/)
+- [Dont Miss the New Seasons of These Addictive TV Sh...](https://movies.allwomenstalk.com/dont-miss-the-new-seasons-of-these-addictive-tv-shows/)
+- [This is Why We All Need to Vote for Those Who Are ...](https://lifestyle.allwomenstalk.com/this-is-why-we-all-need-to-vote-for-those-who-are-18-but-hesitant-about-elections/)
 - [This is How Dental Implants Can Fix Your Smile Ins...](https://allwomenstalk.com/dental-implants-to-fix-your-teeth/)
 - [Sleep Apnea ...](https://allwomenstalk.com/sleep-apnea/)
 

@@ -3,7 +3,7 @@ title: "7 Irritating Comments All Skinny Girls Have Heard ..."
 description: "You're so Lucky!; Why Are You Complaining?; Do You Ever Eat?; At Least You're Not Fat; Names; More ..."
 url: "https://health.allwomenstalk.com/irritating-comments-all-skinny-girls-have-heard/"
 category: "health"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Irritating Comments All Skinny Girls Have Heard ...
@@ -42,16 +42,16 @@ I really do feel as though skinny women are the last group it's okay to offend. 
 
 ## Related Posts
 
-- [girls secret things](https://celebs.allwomenstalk.com/things-weve-learned-from-the-victorias-secret-girls/)
-- [social media for women](https://lifestyle.allwomenstalk.com/social-media-tips-all-women-should-take-note-of/)
-- [things women worry about](https://lifestyle.allwomenstalk.com/common-things-women-worry-about/)
-- [how to behave like a lady](https://inspiration.allwomenstalk.com/etiquette-tips-to-help-you-behave-like-a-true-lady/)
-- [lessons for my daughter](https://parenting.allwomenstalk.com/life-lessons-to-share-with-your-daughter/)
-- [all girls private education](https://teen.allwomenstalk.com/benefits-of-an-all-girls-school-that-are-worth-considering/)
 - [cash money and marvelous](https://money.allwomenstalk.com/marvelous-money-saving-tips-that-every-girl-needs-to-know/)
+- [why do you like cleaning](https://lifestyle.allwomenstalk.com/reasons-women-love-to-clean-that-explains-a-lot/)
+- [lessons for my daughter](https://parenting.allwomenstalk.com/life-lessons-to-share-with-your-daughter/)
+- [girls secret things](https://celebs.allwomenstalk.com/things-weve-learned-from-the-victorias-secret-girls/)
+- [things women worry about](https://lifestyle.allwomenstalk.com/common-things-women-worry-about/)
+- [all girls private education](https://teen.allwomenstalk.com/benefits-of-an-all-girls-school-that-are-worth-considering/)
+- [social media for women](https://lifestyle.allwomenstalk.com/social-media-tips-all-women-should-take-note-of/)
 - [how to master small talk](https://inspiration.allwomenstalk.com/ways-to-master-the-art-of-small-talk/)
 - [athletic tips](https://fitness.allwomenstalk.com/athletic-tips-that-any-woman-can-use/)
-- [why do you like cleaning](https://lifestyle.allwomenstalk.com/reasons-women-love-to-clean-that-explains-a-lot/)
+- [how to behave like a lady](https://inspiration.allwomenstalk.com/etiquette-tips-to-help-you-behave-like-a-true-lady/)
 - [7 Ways to Look Thinner Instantly ...](https://weightloss.allwomenstalk.com/7-ways-to-look-thinner-instantly/)
 - [7 Crazy Myths about Weight Loss ...](https://weightloss.allwomenstalk.com/crazy-myths-about-weight-loss/)
 
