@@ -3,7 +3,7 @@ title: "8 Delicious Healthy Desserts ..."
 description: "Decadent Chocolate Cake; Strawberry Shortcakes; Low-Fat Cheesecake; Frozen Peanut Butter Pie; Made-over Deep Dish Brownies; More ..."
 url: "https://health.allwomenstalk.com/delicious-healthy-desserts/"
 category: "health"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 8 Delicious Healthy Desserts ...

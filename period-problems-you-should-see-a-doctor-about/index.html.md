@@ -3,7 +3,7 @@ title: "See Your Doctor without Delay if You Have These Period Problems ..."
 description: "Heavy Periods; Irregular Cycle; You Haven't Started Your Periods; Painful Periods; Bleeding between Periods; More ..."
 url: "https://health.allwomenstalk.com/period-problems-you-should-see-a-doctor-about/"
 category: "health"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # See Your Doctor without Delay if You Have These Period Problems ...
@@ -44,14 +44,14 @@ Some period problems are a question of learning to manage them, such as 'normal'
 
 - [Menstrual Cups: What You Need to Know ...](https://health.allwomenstalk.com/menstrual-cups-what-you-need-to-know/)
 - [Myths about Breast Cancer...Debunked ...](https://health.allwomenstalk.com/myths-about-breast-cancer-debunked/)
-- [Destructive Habits That Ruin Your Body You Need to...](https://health.allwomenstalk.com/ways-youre-ruining-you-body-without-realizing-it/)
-- [age amazingly](https://skincare.allwomenstalk.com/amazingly-accurate-factors-that-affect-how-quickly-you-age/)
 - [7 Essential Things Everyone Starting a Detox Shoul...](https://health.allwomenstalk.com/things-you-should-know-about-doing-a-detox/)
+- [Destructive Habits That Ruin Your Body You Need to...](https://health.allwomenstalk.com/ways-youre-ruining-you-body-without-realizing-it/)
+- [This Will Change Your Mind about Using Tampons ...](https://health.allwomenstalk.com/this-will-change-your-mind-about-using-tampons/)
 - [Which Type of Multivitamin Should You Be Taking .....](https://health.allwomenstalk.com/which-type-of-multivitamin-is-meant-for-you/)
+- [age amazingly](https://skincare.allwomenstalk.com/amazingly-accurate-factors-that-affect-how-quickly-you-age/)
+- [Everything You Ever Needed to Know about Protein ....](https://diet.allwomenstalk.com/everything-you-ever-needed-to-know-about-protein/)
 - [7 Things You do on the Daily That Are Hurting Your...](https://health.allwomenstalk.com/things-you-do-on-the-daily-that-are-hurting-your-breasts/)
 - [Common Body Issues You Have No Reason to Be Embarr...](https://beauty.allwomenstalk.com/common-body-issues-you-shouldnt-be-embarrassed-about/)
-- [This Will Change Your Mind about Using Tampons ...](https://health.allwomenstalk.com/this-will-change-your-mind-about-using-tampons/)
-- [Everything You Ever Needed to Know about Protein ....](https://diet.allwomenstalk.com/everything-you-ever-needed-to-know-about-protein/)
 - [10 Reasons to Get Regular Checkups ...](https://health.allwomenstalk.com/10-reasons-to-get-regular-checkups/)
 - [9 Things to Ask Your Doctor ...](https://health.allwomenstalk.com/9-things-to-ask-your-doctor/)
 

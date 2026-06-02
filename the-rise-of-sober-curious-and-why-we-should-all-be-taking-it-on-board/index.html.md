@@ -3,7 +3,7 @@ title: "The Rise of Sober Curious and Why We Should All Be Taking It on Board ..
 description: "The Rise of the ‘sober Curious’ Movement; Understanding the Downsides of Drinking; Young People Turning Away from Drink?; More ..."
 url: "https://health.allwomenstalk.com/the-rise-of-sober-curious-and-why-we-should-all-be-taking-it-on-board/"
 category: "health"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # The Rise of Sober Curious and Why We Should All Be Taking It on Board ...
@@ -42,18 +42,18 @@ With the rise of the sober curious and a new generation of non-drinkers emerging
 
 ## Related Posts
 
-- [ANOTHER 7 - Things about Me](https://allwomenstalk.com/another-7-things-about-me/)
-- [Obsession Can Change the World ...](https://allwomenstalk.com/obsession-can-change-the-world/)
-- [7 Things about Me](https://allwomenstalk.com/7-things-about-me/)
-- [What Really Matters ...](https://allwomenstalk.com/what-really-matters/)
-- [You Can Handle It ...](https://allwomenstalk.com/you-can-handle-it/)
-- [Things That Make Me Go Mmm - and Think ...](https://allwomenstalk.com/things-that-make-me-go-mmm-and-think/)
-- [Jessica Faces Her Fears...and so Should You ...](https://allwomenstalk.com/jessica-faces-her-fearsand-so-should-you/)
-- [riche le stylo smoky eye blinged and brilliant](https://allwomenstalk.com/no-need-to-steal/)
+- [If I Only Knew then What I Know Now ...](https://allwomenstalk.com/if-i-only-knew-then-what-i-know-now/)
 - [Things That Are Not Wrong with Me 1-3.
 
 1. Head L....](https://allwomenstalk.com/things-that-are-not-wrong-with-me-1-31-head-l/)
-- [If I Only Knew then What I Know Now ...](https://allwomenstalk.com/if-i-only-knew-then-what-i-know-now/)
+- [riche le stylo smoky eye blinged and brilliant](https://allwomenstalk.com/no-need-to-steal/)
+- [Things That Make Me Go Mmm - and Think ...](https://allwomenstalk.com/things-that-make-me-go-mmm-and-think/)
+- [What Really Matters ...](https://allwomenstalk.com/what-really-matters/)
+- [Jessica Faces Her Fears...and so Should You ...](https://allwomenstalk.com/jessica-faces-her-fearsand-so-should-you/)
+- [Obsession Can Change the World ...](https://allwomenstalk.com/obsession-can-change-the-world/)
+- [7 Things about Me](https://allwomenstalk.com/7-things-about-me/)
+- [You Can Handle It ...](https://allwomenstalk.com/you-can-handle-it/)
+- [ANOTHER 7 - Things about Me](https://allwomenstalk.com/another-7-things-about-me/)
 - [7 Reasons Why Not Drinking is Just as Much Fun as ...](https://health.allwomenstalk.com/reasons-why-not-drinking-is-just-as-much-fun-as-drinking/)
 - [7 Reasons to Lay off Alcohol for Good ...](https://health.allwomenstalk.com/reasons-to-lay-off-alcohol-for-good/)
 

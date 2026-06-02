@@ -3,7 +3,7 @@ title: "Compression Socks for Pregnancy: Benefits Best Time to Wear Them and How
 description: "What compression socks actually do during pregnancy; The timing question: when should you actually put them on?; Choosing the right pair: what to look for; Other habits that support compression; A note on when to check with a provider; More ..."
 url: "https://health.allwomenstalk.com/compression-socks-pregnancy-benefits-best-time-how-to-choose/"
 category: "health"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Compression Socks for Pregnancy: Benefits Best Time to Wear Them and How to Choose

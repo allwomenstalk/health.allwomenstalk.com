@@ -3,7 +3,7 @@ title: "7 Great Habits to Follow after Suffering a Heart Attack ..."
 description: "Quit Smoking; Limit Fats; Eat Fruits and Vegetables; Eat Whole Grains; Exercise; More ..."
 url: "https://health.allwomenstalk.com/great-habits-to-follow-after-suffering-a-heart-attack/"
 category: "health"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Great Habits to Follow after Suffering a Heart Attack ...
@@ -42,16 +42,16 @@ Heart attack is a serious wake up call that demands a change in your lifestyle h
 
 ## Related Posts
 
-- [7 Pretty Easy Ways to Start Being Nicer to Yoursel...](https://inspiration.allwomenstalk.com/pretty-easy-ways-to-start-being-nicer-to-yourself/)
-- [9 Very Effective Tips on How to Reach Your Goals ....](https://inspiration.allwomenstalk.com/very-effective-tips-on-how-to-reach-your-goals/)
-- [7 Ways to Make More Use of Your Time ...](https://inspiration.allwomenstalk.com/ways-to-make-more-use-of-your-time/)
-- [7 Alternative Therapies to Give Your Life a Boost ...](https://health.allwomenstalk.com/alternative-therapies-to-give-your-life-a-boost/)
 - [7 Changes to Help You Realize Your Potential ...](https://inspiration.allwomenstalk.com/changes-to-help-you-realize-your-potential/)
-- [9 Ways to Keep Your Creative Jucies Flowing ...](https://inspiration.allwomenstalk.com/ways-to-keep-your-creative-jucies-flowing/)
-- [improving everyday in a creative way](https://lifestyle.allwomenstalk.com/easy-everyday-ways-to-improve-your-creative-writing-skills/)
+- [7 Pretty Easy Ways to Start Being Nicer to Yoursel...](https://inspiration.allwomenstalk.com/pretty-easy-ways-to-start-being-nicer-to-yourself/)
 - [7 Ways to Have a Healthier Lifestyle That You Wont...](https://health.allwomenstalk.com/ways-to-have-a-healthier-lifestyle-that-you-wont-regret/)
-- [7 Reasons to Stay Positive Each Day ...](https://inspiration.allwomenstalk.com/reasons-to-stay-positive-each-day/)
+- [9 Very Effective Tips on How to Reach Your Goals ....](https://inspiration.allwomenstalk.com/very-effective-tips-on-how-to-reach-your-goals/)
+- [9 Ways to Keep Your Creative Jucies Flowing ...](https://inspiration.allwomenstalk.com/ways-to-keep-your-creative-jucies-flowing/)
+- [7 Alternative Therapies to Give Your Life a Boost ...](https://health.allwomenstalk.com/alternative-therapies-to-give-your-life-a-boost/)
 - [7 Holiday Vices and How to Avoid Them ...](https://eatial.com/holiday-vices-and-how-to-avoid-them/)
+- [7 Ways to Make More Use of Your Time ...](https://inspiration.allwomenstalk.com/ways-to-make-more-use-of-your-time/)
+- [7 Reasons to Stay Positive Each Day ...](https://inspiration.allwomenstalk.com/reasons-to-stay-positive-each-day/)
+- [improving everyday in a creative way](https://lifestyle.allwomenstalk.com/easy-everyday-ways-to-improve-your-creative-writing-skills/)
 - [7 Unhealthy Habits and How to Stop Them ...](https://health.allwomenstalk.com/unhealthy-habits-and-how-to-stop-them/)
 - [7 Must Have Exercises That Are Good for the Heart ...](https://allwomenstalk.com/7-must-have-exercises-that-are-good-for-the-heart/)
 
