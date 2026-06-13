@@ -1,12 +1,12 @@
 ---
-title: "7 Signs You May Have an Eating Disorder That You Shouldnt Ignore ..."
+title: "7 Signs You May Have an Eating Disorder That You Shouldn't Ignore ..."
 description: "It is All You Can Think about; You Won’t Eat in Front of Friends; You Have Strict Safe Foods; You Work out Excessively; You Eat Immense Amounts at One Time; More ..."
 url: "https://health.allwomenstalk.com/signs-you-may-have-an-eating-disorder-that-you-shouldnt-ignore/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Signs You May Have an Eating Disorder That You Shouldnt Ignore ...
+# 7 Signs You May Have an Eating Disorder That You Shouldn't Ignore ...
 
 We usually break eating disorders into bulimia and anorexia and use those to dictate the signs you may have an eating disorder. But it is not always that simple. An eating disorder can be classified as any situation where you have an unhealthy relationship with food and it has (or could have) a negative impact on your health. Having an eating disorder is not something you choose, it is mental rather than physical. So to make sure you do not overlook any of the symptoms, here are some subtle signs you may have an eating disorder.
 
@@ -42,16 +42,16 @@ So many girls feel the pressure of being thin and that makes it easy to develop 
 
 ## Related Posts
 
-- [7 Signals That Your Skin is Going to Break out ...](https://skincare.allwomenstalk.com/signals-that-your-skin-is-going-to-break-out/)
-- [7 Signs That Tell You That You May Have to See a P...](https://health.allwomenstalk.com/signs-that-tell-you-that-you-may-have-to-see-a-podiatrist/)
 - [7 Warning Signs of Autism ...](https://parenting.allwomenstalk.com/warning-signs-of-autism/)
-- [7 Sure Signs Your Job is Stressing You out ...](https://lifestyle.allwomenstalk.com/sure-signs-your-job-is-stressing-you-out/)
 - [7 Key Signs That You Are Headed for Burn out ...](https://lifestyle.allwomenstalk.com/key-signs-that-you-are-headed-for-burn-out/)
 - [9 Signs You May Be Gluten Intolerant ...](https://health.allwomenstalk.com/signs-you-may-be-gluten-intolerant/)
+- [7 Signals That Your Skin is Going to Break out ...](https://skincare.allwomenstalk.com/signals-that-your-skin-is-going-to-break-out/)
 - [7 Dangerous Signs That Someone You Know Has an Eat...](https://health.allwomenstalk.com/dangerous-signs-that-someone-you-know-has-an-eating-disorder/)
-- [when to get a new couch](https://lifestyle.allwomenstalk.com/signs-its-time-for-a-new-couch-and-a-few-lovely-affordable-options/)
-- [11 Signs That You May Have an Internet Addiction ....](https://health.allwomenstalk.com/signs-that-you-may-have-an-internet-addiction/)
 - [7 Tell-Tale Signs You May Be Working Too Hard ...](https://health.allwomenstalk.com/tell-tale-signs-you-may-be-working-too-hard/)
+- [when to get a new couch](https://lifestyle.allwomenstalk.com/signs-its-time-for-a-new-couch-and-a-few-lovely-affordable-options/)
+- [7 Sure Signs Your Job is Stressing You out ...](https://lifestyle.allwomenstalk.com/sure-signs-your-job-is-stressing-you-out/)
+- [7 Signs That Tell You That You May Have to See a P...](https://health.allwomenstalk.com/signs-that-tell-you-that-you-may-have-to-see-a-podiatrist/)
+- [11 Signs That You May Have an Internet Addiction ....](https://health.allwomenstalk.com/signs-that-you-may-have-an-internet-addiction/)
 - [8 Signs You Have an Overeating Problem ...](https://allwomenstalk.com/8-signs-you-have-an-overeating-problem/)
 - [8 Signs of Anorexia ...](https://mindfulness.allwomenstalk.com/8-signs-of-anorexia/)
 

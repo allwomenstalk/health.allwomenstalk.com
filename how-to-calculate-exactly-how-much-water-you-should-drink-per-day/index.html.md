@@ -3,7 +3,7 @@ title: "How to Calculate Exactly How Much Water You Should Drink per Day ..."
 description: "Take Your Current Body Weight in Pounds and Divide That by 2.2; Now Multiply That Number Depending on Your Age, as Follows:; Next, You Need to Divide That Sum by the Number 28.3; The Number That You Are Left with after Doing All of Those Calculations is the Number of Ounces That You Should Be Aiming to Drink Every Single Day. You Can Divide the Number by 8 to Get the Results in Familiar Cup Measurements; Divide the Number of Minutes That You Have Exercised by 30; More ..."
 url: "https://health.allwomenstalk.com/how-to-calculate-exactly-how-much-water-you-should-drink-per-day/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # How to Calculate Exactly How Much Water You Should Drink per Day ...
@@ -42,10 +42,10 @@ For your activity level:
 - [Helpful Ways to Find the Right Diet for You ...](https://diet.allwomenstalk.com/ways-to-find-the-right-diet-for-you/)
 - [Deciding What to Eat Each Day the Healthy Way ...](https://weightloss.allwomenstalk.com/healthy-ways-to-decide-what-to-eat-every-day-for-weight-loss/)
 - [10 Facts about Warm Lemon Water to Motivate You to...](https://health.allwomenstalk.com/facts-about-warm-lemon-water-to-motivate-you-to-drink-it-every-morning/)
-- [Heres Why You Should Limit the Amount of Soda You ...](https://health.allwomenstalk.com/heres-why-you-should-limit-the-amount-of-soda-you-drink/)
+- [Here's Why You Should Limit the Amount of Soda You...](https://health.allwomenstalk.com/heres-why-you-should-limit-the-amount-of-soda-you-drink/)
 - [How the Soup You Drink Can Help You Lose Weight .....](https://weightloss.allwomenstalk.com/how-the-soup-you-drink-can-help-you-lose-weight/)
 - [All the Wonderful Ways Proper Hydration Helps You ...](https://weightloss.allwomenstalk.com/all-the-wonderful-ways-proper-hydration-helps-you-lose-weight/)
-- [Girls Guide on How to Count Calories for Weight Lo...](https://weightloss.allwomenstalk.com/how-to-count-calories-for-weight-loss-success/)
+- [Girl's Guide on How to Count Calories for Weight L...](https://weightloss.allwomenstalk.com/how-to-count-calories-for-weight-loss-success/)
 
 ## Site Information
 

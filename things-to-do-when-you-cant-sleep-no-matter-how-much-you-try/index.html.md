@@ -1,12 +1,12 @@
 ---
-title: "7 Things to do when You Cant Sleep No Matter How Much You Try ..."
+title: "7 Things to do when You Can't Sleep No Matter How Much You Try ..."
 description: "Read a Book; Use Your Imagination; Have a Warm Bath; Remove Electronics; Drink Caffeine-free Herbal Tea; More ..."
 url: "https://health.allwomenstalk.com/things-to-do-when-you-cant-sleep-no-matter-how-much-you-try/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Things to do when You Cant Sleep No Matter How Much You Try ...
+# 7 Things to do when You Can't Sleep No Matter How Much You Try ...
 
 Generally you are very limited on things to do when you can’t sleep. After all you don’t want to do something that will keep you up all night, but you also cannot just keep rolling around in bed for forever. Periodically we all have our own episodes of insomnia and we all deal with them in our own little ways, which sometimes work and sometimes don’t. However if you have been having a hard time getting sufficient amount of rest, here are some things to do when you can’t sleep.
 
@@ -42,17 +42,17 @@ If you have persistent sleeping problems, it is best that you change your lifest
 
 ## Related Posts
 
+- [what gets you out of bed in the morning funny](https://funny.allwomenstalk.com/hilarious-reasons-to-get-out-of-bed-each-morning/)
 - [how to change sleep cycle](https://health.allwomenstalk.com/very-useful-tips-on-how-to-change-your-sleep-schedule/)
 - [how to make bedtime fun](https://parenting.allwomenstalk.com/bedtime-rituals-that-your-kids-will-love/)
-- [money worries cant sleep](https://money.allwomenstalk.com/amazing-ways-to-overcome-money-related-insomnia/)
-- [why use satin pillowcase](https://beauty.allwomenstalk.com/beauty-benefits-of-sleeping-on-a-satin-pillowcase/)
-- [what to do with your hair when you sleep](https://hair.allwomenstalk.com/things-to-do-for-better-hair-while-you-sleep/)
-- [nutrients for better sleep](https://health.allwomenstalk.com/nutrients-that-help-you-sleep-better/)
-- [what gets you out of bed in the morning funny](https://funny.allwomenstalk.com/hilarious-reasons-to-get-out-of-bed-each-morning/)
 - [interesting theories in psychology](https://health.allwomenstalk.com/interesting-theories-that-explain-why-sleep-is-necessary-in-the-first-place/)
 - [boyfriend sleeping on my chest](https://love.allwomenstalk.com/comfiest-ways-to-sleep-in-the-same-bed-as-your-boyfriend/)
+- [money worries cant sleep](https://money.allwomenstalk.com/amazing-ways-to-overcome-money-related-insomnia/)
+- [nutrients for better sleep](https://health.allwomenstalk.com/nutrients-that-help-you-sleep-better/)
+- [what to do with your hair when you sleep](https://hair.allwomenstalk.com/things-to-do-for-better-hair-while-you-sleep/)
+- [why use satin pillowcase](https://beauty.allwomenstalk.com/beauty-benefits-of-sleeping-on-a-satin-pillowcase/)
 - [had a nightmare](https://health.allwomenstalk.com/reasons-you-had-that-nightmare-last-night/)
-- [7 Things to do when Your Kids Wont Nap ...](https://parenting.allwomenstalk.com/7-things-to-do-when-your-kids-wont-nap/)
+- [7 Things to do when Your Kids Won't Nap ...](https://parenting.allwomenstalk.com/7-things-to-do-when-your-kids-wont-nap/)
 - [10 Ways to Sleep Better ...](https://health.allwomenstalk.com/ways-to-sleep-better/)
 
 ## Site Information

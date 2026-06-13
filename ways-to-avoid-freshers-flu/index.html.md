@@ -1,12 +1,12 @@
 ---
-title: "Ways to Avoid Freshers Flu for Students Starting College ..."
+title: "Ways to Avoid Freshers Flu 🤒 for Students Starting College ..."
 description: "Eat Some Fruit and Veg; Drink More Water; Over the Counter Medication; Exercise; Practice Good Hygiene; More ..."
 url: "https://health.allwomenstalk.com/ways-to-avoid-freshers-flu/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Ways to Avoid Freshers Flu  for Students Starting College ...
+# Ways to Avoid Freshers Flu 🤒 for Students Starting College ...
 
 "Freshers flu" is a UK term referring to the cold most students catch after heading off to uni or college for the first time. So you're probably looking for **ways to avoid freshers' flu.** While catching a cold is always awful, starting college is a daunting enough experience as it is without getting sick! But sometimes getting sick is hard to avoid. You’re in a new place, meeting loads of new people from all over the world. Perhaps you can’t avoid getting ill, but here are some must know **ways to avoid freshers' flu.**
 
@@ -48,16 +48,16 @@ If you do end up feeling ill or run down, give your body time to recover. Sleep 
 
 ## Related Posts
 
-- [preparing for university](https://teen.allwomenstalk.com/how-to-prepare-yourself-for-university/)
-- [things to look for in college](https://teen.allwomenstalk.com/awesome-things-to-look-forward-to-in-college/)
-- [how to respond to hows it going](https://teen.allwomenstalk.com/how-to-respond-to-the-hows-college-question-when-you-hate-college/)
-- [how to deal with college rejection](https://teen.allwomenstalk.com/essential-tips-for-how-to-deal-with-college-rejection/)
-- [revision hacks](https://teen.allwomenstalk.com/revision-hacks/)
-- [how do i become a straight a student](https://inspiration.allwomenstalk.com/how-to-be-a-straight-a-student/)
 - [complete](https://lifestyle.allwomenstalk.com/benefits-for-students-of-getting-work-done-early/)
+- [how do i become a straight a student](https://inspiration.allwomenstalk.com/how-to-be-a-straight-a-student/)
+- [revision hacks](https://teen.allwomenstalk.com/revision-hacks/)
+- [how to deal with college rejection](https://teen.allwomenstalk.com/essential-tips-for-how-to-deal-with-college-rejection/)
+- [how to respond to how's it going](https://teen.allwomenstalk.com/how-to-respond-to-the-hows-college-question-when-you-hate-college/)
+- [preparing for university](https://teen.allwomenstalk.com/how-to-prepare-yourself-for-university/)
 - [poses for 5 friends](https://teen.allwomenstalk.com/how-to-make-college-the-best-years-of-your-life/)
 - [things to consider when buying a laptop for colleg...](https://lifestyle.allwomenstalk.com/key-considerations-when-buying-a-student-laptop/)
 - [how to stay organized during the school year](https://teen.allwomenstalk.com/pro-tips-to-stay-organized-during-the-school-year/)
+- [things to look for in college](https://teen.allwomenstalk.com/awesome-things-to-look-forward-to-in-college/)
 - [8 Ways to Stay Safe on Campus ...](https://lifestyle.allwomenstalk.com/ways-to-stay-safe-on-campus/)
 - [How to Avoid the Doctor during COVID ...](https://allwomenstalk.com/how-to-avoid-the-doctor-during-covid/)
 

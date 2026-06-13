@@ -3,7 +3,7 @@ title: "9 Uncommon Facts about the Human Body ..."
 description: "Survival without a Large Part of Internal Organs; Babies Have More Bones than Adults; Squirting Power of the Heart; Death of Cells; Indestructibility of Hair; More ..."
 url: "https://health.allwomenstalk.com/uncommon-facts-about-the-human-body/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 9 Uncommon Facts about the Human Body ...
@@ -52,16 +52,16 @@ Top image source: [azweird.com](http://azweird.com/img/arts/2011/Jan/05/763/brai
 
 ## Related Posts
 
-- [7 Facts about Coffee ...](https://lifestyle.allwomenstalk.com/7-facts-about-coffee/)
-- [who is tiffany from tiffany and co](https://jewelry.allwomenstalk.com/7-interesting-facts-about-tiffany-co-you-may-not-know/)
-- [facts about 911 you didnt know](https://lifestyle.allwomenstalk.com/interesting-facts-about-911/)
-- [physical geography facts](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
+- [facts about 9/11 you didn't know](https://lifestyle.allwomenstalk.com/interesting-facts-about-911/)
 - [cool and interesting facts about diamonds](https://jewelry.allwomenstalk.com/unique-facts-about-diamonds-you-did-not-know/)
-- [7 Things You Didnt Know about Parasites ...](https://health.allwomenstalk.com/7-things-you-didnt-know-about-parasites/)
-- [pawn shop 9 mile](https://lifestyle.allwomenstalk.com/9-things-you-might-not-know-about-pawn-shops/)
-- [facts about myth](https://lifestyle.allwomenstalk.com/interesting-facts-about-mythology/)
-- [harry potter book facts you didnt know](https://lifestyle.allwomenstalk.com/fun-harry-potter-facts-you-didnt-know/)
+- [physical geography facts](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
 - [winter solstice fun facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-the-yule-holiday/)
+- [7 Things You Didn't Know about Parasites ...](https://health.allwomenstalk.com/7-things-you-didnt-know-about-parasites/)
+- [pawn shop 9 mile](https://lifestyle.allwomenstalk.com/9-things-you-might-not-know-about-pawn-shops/)
+- [who is tiffany from tiffany and co](https://jewelry.allwomenstalk.com/7-interesting-facts-about-tiffany-co-you-may-not-know/)
+- [harry potter book facts you didn't know](https://lifestyle.allwomenstalk.com/fun-harry-potter-facts-you-didnt-know/)
+- [7 Facts about Coffee ...](https://lifestyle.allwomenstalk.com/7-facts-about-coffee/)
+- [facts about myth](https://lifestyle.allwomenstalk.com/interesting-facts-about-mythology/)
 - [5 Facts on DNA ...](https://twilight.allwomenstalk.com/5-facts-on-dna/)
 - [8 Bugs That Live on the Human Body ...](https://skincare.allwomenstalk.com/8-bugs-that-live-on-the-human-body/)
 

@@ -3,7 +3,7 @@ title: "What to do if Your Spouse Has Erectile Dysfunction ..."
 description: "It's Not about You; Have a Heart-to-Heart; Show Support; Who to Speak to; The Age Factor; More ..."
 url: "https://health.allwomenstalk.com/what-to-do-if-your-spouse-has-erectile-dysfunction/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # What to do if Your Spouse Has Erectile Dysfunction ...
@@ -79,16 +79,16 @@ And, wait for it - exercise helps too!
 
 ## Related Posts
 
+- [Totally Realistic Ways to Build Sexual Confidence ...](https://love.allwomenstalk.com/ways-to-build-sexual-confidence/)
+- [how to spice up the bedroom for valentine's day](https://love.allwomenstalk.com/ways-to-spice-up-the-bedroom-romance-on-valentines-day/)
+- [Questions to Ask Yourself before Losing Your Virgi...](https://love.allwomenstalk.com/questions-to-ask-yourself-before-losing-your-virginity/)
+- [10 Genius Ways to Touch Your Man 🤝 That Will Driv...](https://love.allwomenstalk.com/ways-to-touch-your-man-to-drive-him-wild/)
+- [How to Tell Your Partner You Have an STD 🤐 ...](https://love.allwomenstalk.com/how-to-tell-your-partner-you-have-an-std/)
+- [12 Sex Tips for Older Women ...](https://vityle.com/sex-tips-for-older-women/)
+- [Exercises That Will Improve Your Sex Life ...](https://fitness.allwomenstalk.com/exercises-that-will-improve-your-sex-life/)
+- [Things You Should Know before You Have Anal Sex .....](https://love.allwomenstalk.com/things-you-should-know-before-you-have-anal-sex/)
 - [sortoutfor](https://love.allwomenstalk.com/relationship-problems-ruining-your-sex-life/)
 - [The Best Exercises for Better Sex ...](https://fitness.allwomenstalk.com/the-best-exercises-for-better-sex/)
-- [12 Sex Tips for Older Women ...](https://vityle.com/sex-tips-for-older-women/)
-- [how to spice up the bedroom for valentines day](https://love.allwomenstalk.com/ways-to-spice-up-the-bedroom-romance-on-valentines-day/)
-- [Totally Realistic Ways to Build Sexual Confidence ...](https://love.allwomenstalk.com/ways-to-build-sexual-confidence/)
-- [Exercises That Will Improve Your Sex Life ...](https://fitness.allwomenstalk.com/exercises-that-will-improve-your-sex-life/)
-- [Questions to Ask Yourself before Losing Your Virgi...](https://love.allwomenstalk.com/questions-to-ask-yourself-before-losing-your-virginity/)
-- [How to Tell Your Partner You Have an STD  ...](https://love.allwomenstalk.com/how-to-tell-your-partner-you-have-an-std/)
-- [Things You Should Know before You Have Anal Sex .....](https://love.allwomenstalk.com/things-you-should-know-before-you-have-anal-sex/)
-- [10 Genius Ways to Touch Your Man  That Will Drive ...](https://love.allwomenstalk.com/ways-to-touch-your-man-to-drive-him-wild/)
 - [7 Passionately Romantic Ways to Improve Your Sex L...](https://love.allwomenstalk.com/passionately-romantic-ways-to-improve-your-sex-life/)
 - [How to Spice up Your Sex Life ...](https://allwomenstalk.com/how-to-spice-up-your-sex-life/)
 

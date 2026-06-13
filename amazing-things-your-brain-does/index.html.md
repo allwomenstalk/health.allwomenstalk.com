@@ -3,7 +3,7 @@ title: "7 Amazing Things Your Brain Does ..."
 description: "Generates Enough Electricity to Power a Lightbulb; Has 70,000 Thoughts per Day; Reads People’s Faces; Senses Danger; Cures Illnesses; More ..."
 url: "https://health.allwomenstalk.com/amazing-things-your-brain-does/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Amazing Things Your Brain Does ...
@@ -42,16 +42,16 @@ It’s easy to overlook all of the amazing things your brain does daily, but hop
 
 ## Related Posts
 
-- [7 Well-kept Secrets of Highly Persuasive Speakers ...](https://inspiration.allwomenstalk.com/well-kept-secrets-of-highly-persuasive-speakers/)
-- [7 Awful and Amazing Feelings Teenagers Understand ...](https://teen.allwomenstalk.com/awful-and-amazing-feelings-teenagers-understand/)
+- [7 TED Talks about the Self That You Won't Stop Rav...](https://inspiration.allwomenstalk.com/ted-talks-about-the-self-that-you-wont-stop-raving-about/)
 - [never feel guilty](https://inspiration.allwomenstalk.com/things-you-should-never-feel-guilty-about/)
-- [how to learn from rejection](https://inspiration.allwomenstalk.com/awesome-things-to-learn-from-rejection/)
-- [9 Everyday Things That Mess with Your Mind ...](https://health.allwomenstalk.com/everyday-things-that-mess-with-your-mind/)
+- [7 Well-kept Secrets of Highly Persuasive Speakers ...](https://inspiration.allwomenstalk.com/well-kept-secrets-of-highly-persuasive-speakers/)
 - [loreal color riche le stylo smoky shadow avant](https://lifestyle.allwomenstalk.com/wonderful-things-about-being-a-twin/)
 - [7 Things Immigrants from Struggling Countries Can ...](https://lifestyle.allwomenstalk.com/things-immigrants-from-struggling-countries-can-appreciate/)
 - [7 Simple Things That Impress People around You ...](https://inspiration.allwomenstalk.com/simple-things-that-impress-people-around-you/)
 - [7 Important Things Everyone Should Know about Ther...](https://health.allwomenstalk.com/important-things-everyone-should-know-about-therapy/)
-- [7 TED Talks about the Self That You Wont Stop Ravi...](https://inspiration.allwomenstalk.com/ted-talks-about-the-self-that-you-wont-stop-raving-about/)
+- [how to learn from rejection](https://inspiration.allwomenstalk.com/awesome-things-to-learn-from-rejection/)
+- [7 Awful and Amazing Feelings Teenagers Understand ...](https://teen.allwomenstalk.com/awful-and-amazing-feelings-teenagers-understand/)
+- [9 Everyday Things That Mess with Your Mind ...](https://health.allwomenstalk.com/everyday-things-that-mess-with-your-mind/)
 - [7 Ways to Increase Your Brain Power ...](https://health.allwomenstalk.com/ways-to-increase-your-brain-power/)
 - [7 Ways to Improve Your Concentration ...](https://allwomenstalk.com/7-ways-to-improve-your-concentration/)
 

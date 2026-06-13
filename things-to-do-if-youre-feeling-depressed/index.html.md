@@ -1,12 +1,12 @@
 ---
-title: "8 Things to do if Youre Feeling Depressed ..."
+title: "8 Things to do if You're Feeling Depressed ..."
 description: "Accept How You Feel…; Talk to Someone…; Set Targets…; Be Strict in Bed…; No Drama…; More ..."
 url: "https://health.allwomenstalk.com/things-to-do-if-youre-feeling-depressed/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 8 Things to do if Youre Feeling Depressed ...
+# 8 Things to do if You're Feeling Depressed ...
 
 There are plenty of things to do if you’re feeling depressed. It’s important to remember that, because feeling helpless and demotivated is a common symptom of depression! Thousands of people are affected by depression each day, and it affects people of all ages and genders. If you’re suffering from depression, you might have side effects such as being unable to sleep or sleeping too much, losing or gaining weight, feeling isolated and lonely, feeling lethargic or feeling angry. You might even find that things that used to interest you now seem boring. It’s not impossible to fight depression, though, and you don’t just have to deal with it. Here are some things to do if you’re feeling depressed.
 
@@ -46,16 +46,16 @@ I was once sent a list of things to do when you’re feeling depressed, compiled
 
 ## Related Posts
 
-- [7 Super Easy Ways to Change How You Feel ...](https://inspiration.allwomenstalk.com/super-easy-ways-to-change-how-you-feel/)
-- [7 Simple Tips for Coping with Anxiety ...](https://health.allwomenstalk.com/simple-tips-for-coping-with-anxiety/)
-- [Get Silly when You Need to to De-Stress and Relax ...](https://funny.allwomenstalk.com/silly-ways-to-de-stress-and-just-relax/)
-- [7 Easy Ways to Deal with Christmas Depression ...](https://health.allwomenstalk.com/easy-ways-to-deal-with-christmas-depression/)
+- [Chill out with These Lesser Known Meditation Tips ...](https://health.allwomenstalk.com/lesser-known-tips-for-meditation/)
+- [identify the place shown in the picture. photograp...](https://lifestyle.allwomenstalk.com/simple-ways-to-perk-up-after-the-holidays-are-over/)
 - [7 Ways for Students to Reduce Stress to Be Happier...](https://inspiration.allwomenstalk.com/ways-for-students-to-reduce-stress-to-be-happier/)
 - [7 Uncommon Activities for Stress Relief and Inner ...](https://health.allwomenstalk.com/uncommon-activities-for-stress-relief-and-inner-peace/)
-- [Chill out with These Lesser Known Meditation Tips ...](https://health.allwomenstalk.com/lesser-known-tips-for-meditation/)
+- [7 Easy Ways to Deal with Christmas Depression ...](https://health.allwomenstalk.com/easy-ways-to-deal-with-christmas-depression/)
 - [art therapy activities for self esteem](https://health.allwomenstalk.com/art-therapy-activities-you-can-try-at-home-to-de-stress/)
-- [identify the place shown in the picture. photograp...](https://lifestyle.allwomenstalk.com/simple-ways-to-perk-up-after-the-holidays-are-over/)
+- [7 Super Easy Ways to Change How You Feel ...](https://inspiration.allwomenstalk.com/super-easy-ways-to-change-how-you-feel/)
 - [7 Tips for Managing Stress during Finals Week ...](https://teen.allwomenstalk.com/tips-for-managing-stress-during-finals-week/)
+- [7 Simple Tips for Coping with Anxiety ...](https://health.allwomenstalk.com/simple-tips-for-coping-with-anxiety/)
+- [Get Silly when You Need to to De-Stress and Relax ...](https://funny.allwomenstalk.com/silly-ways-to-de-stress-and-just-relax/)
 - [10 Ways to Prevent Depression ...](https://allwomenstalk.com/10-ways-to-prevent-depression/)
 - [10 Ways to Fight Depression ...](https://allwomenstalk.com/10-ways-to-fight-depression/)
 

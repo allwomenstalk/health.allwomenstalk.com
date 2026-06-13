@@ -1,12 +1,12 @@
 ---
-title: "8 Reasons to Keep Going when Youre Feeling down ..."
+title: "8 Reasons to Keep Going when You're Feeling down ..."
 description: "Cycle of Life; What’s the Alternative?; Things Get Better; You Have More than You Think; You Are Loved; More ..."
 url: "https://health.allwomenstalk.com/reasons-to-keep-going-when-youre-feeling-down/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 8 Reasons to Keep Going when Youre Feeling down ...
+# 8 Reasons to Keep Going when You're Feeling down ...
 
 Do you ever have no idea what things to do when you are feeling down? We all experience times when we feel glum, fed up, and find it hard to get motivated and keep going. Please note that I am not talking about depression, which needs medical attention, but about feeling “down in the dumps.” So here are some things to do when you are feeling down …
 
@@ -46,16 +46,16 @@ If you feel that life is a struggle and you aren’t getting anywhere, take hear
 
 ## Related Posts
 
-- [7 Pros of Not Going Home for the Holidays ...](https://lifestyle.allwomenstalk.com/pros-of-not-going-home-for-the-holidays/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/advantages-of-being-positive/)
-- [10 Great Reasons to Smile ...](https://health.allwomenstalk.com/great-reasons-to-smile/)
 - [8 Brilliant Benefits of Living Abroad ...](https://travel.allwomenstalk.com/brilliant-benefits-of-living-abroad/)
-- [loreal riche stylo silver couture](https://travel.allwomenstalk.com/amazing-reasons-to-go-to-india/)
-- [emelie lindmark](https://weightloss.allwomenstalk.com/reasons-zumba-might-be-right-for-you/)
-- [8 Non-weight Related Reasons to Work out ...](https://health.allwomenstalk.com/non-weight-related-reasons-to-work-out/)
 - [8 Wonderful Reasons to Get a Massage ...](https://health.allwomenstalk.com/wonderful-reasons-to-get-a-massage/)
-- [12 Bonafide Reasons Why You Should Follow Your Dre...](https://lifestyle.allwomenstalk.com/bonafide-reasons-why-you-should-follow-your-dreams/)
+- [emelie lindmark](https://weightloss.allwomenstalk.com/reasons-zumba-might-be-right-for-you/)
 - [8 Reasons to Take Classes Online ...](https://lifestyle.allwomenstalk.com/reasons-to-take-classes-online/)
+- [8 Non-weight Related Reasons to Work out ...](https://health.allwomenstalk.com/non-weight-related-reasons-to-work-out/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/advantages-of-being-positive/)
+- [loreal riche stylo silver couture](https://travel.allwomenstalk.com/amazing-reasons-to-go-to-india/)
+- [12 Bonafide Reasons Why You Should Follow Your Dre...](https://lifestyle.allwomenstalk.com/bonafide-reasons-why-you-should-follow-your-dreams/)
+- [7 Pros of Not Going Home for the Holidays ...](https://lifestyle.allwomenstalk.com/pros-of-not-going-home-for-the-holidays/)
+- [10 Great Reasons to Smile ...](https://health.allwomenstalk.com/great-reasons-to-smile/)
 - [10 Ways to Keep a Positive Attitude ...](https://allwomenstalk.com/10-ways-to-keep-a-positive-attitude/)
 - [10 Ways to Cheer Yourself up ...](https://allwomenstalk.com/10-ways-to-cheer-yourself-up/)
 

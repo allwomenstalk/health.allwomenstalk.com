@@ -1,12 +1,12 @@
 ---
-title: "7 Lies Youve Been Told about Sex ..."
+title: "7 Lies You've Been Told about Sex ..."
 description: "Sex Hurts at First; You Should Orgasm from Intercourse; You Can Avoid Pregnancy; Birth Control Makes You Gain Weight; Size Matters; More ..."
 url: "https://health.allwomenstalk.com/lies-youve-been-told-about-sex/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Lies Youve Been Told about Sex ...
+# 7 Lies You've Been Told about Sex ...
 
 You might think that you're well informed, but women are typically lied to about sex and what it entails. For some reason, we've been taught myths that are completely false, even though they're dangerous to believe. You don't want to be misled about your body, because you deserve to know all about it. Here are a few lies you've been told about sex that you need to realize are completely false:
 
@@ -42,18 +42,18 @@ It's dangerous for women to continue to believe lies about sex. We all deserve t
 
 ## Related Posts
 
-- [If You Started Having a Low Libido Read This](https://health.allwomenstalk.com/if-you-started-having-a-low-libido-read-this/)
-- [Are You Sexually Active Lesser-Known Signs of Preg...](https://parenting.allwomenstalk.com/are-you-sexually-active-lesser-known-signs-of-pregnancy-you-should-know-about/)
+- [7 Embarrassing Things It's Healthy for Your Boyfri...](https://love.allwomenstalk.com/embarrassing-things-its-healthy-for-your-boyfriend-to-see-you-do/)
 - [Things You Should Know about Your Libido ...](https://health.allwomenstalk.com/lets-talk-about-sex-baby-things-you-should-know-about-your-libido/)
+- [Classic Lies You've Been Told about Losing Your Vi...](https://health.allwomenstalk.com/classic-lies-youve-been-told-about-losing-your-virginity/)
 - [libido adult store](https://health.allwomenstalk.com/low-sex-drive-this-is-what-you-have-to-do-to-kickstart-your-libido/)
-- [Alternate Ways to Get Intimate with Your Man when ...](https://love.allwomenstalk.com/alternate-ways-to-get-intimate-with-your-man-when-youre-not-ready-for-sex/)
-- [Dont Let Sex Get Stale - 7 Sizzling Secrets for Co...](https://love.allwomenstalk.com/dont-let-sex-get-stale-sizzling-secrets-for-couples-who-have-been-together-forever/)
-- [Classic Lies Youve Been Told about Losing Your Vir...](https://health.allwomenstalk.com/classic-lies-youve-been-told-about-losing-your-virginity/)
-- [action in bed](https://love.allwomenstalk.com/no-action-in-the-bedroom-here-are-the-potential-reasons-you-are-not-having-sex/)
+- [Don't Let Sex Get Stale - 7 Sizzling Secrets for C...](https://love.allwomenstalk.com/dont-let-sex-get-stale-sizzling-secrets-for-couples-who-have-been-together-forever/)
+- [If You Started Having a Low Libido, Read This!](https://health.allwomenstalk.com/if-you-started-having-a-low-libido-read-this/)
+- [Are You Sexually Active? Lesser-Known Signs of Pre...](https://parenting.allwomenstalk.com/are-you-sexually-active-lesser-known-signs-of-pregnancy-you-should-know-about/)
 - [safe sex facts](https://health.allwomenstalk.com/safe-sex-facts-about-condoms/)
-- [7 Embarrassing Things Its Healthy for Your Boyfrie...](https://love.allwomenstalk.com/embarrassing-things-its-healthy-for-your-boyfriend-to-see-you-do/)
+- [action in bed](https://love.allwomenstalk.com/no-action-in-the-bedroom-here-are-the-potential-reasons-you-are-not-having-sex/)
+- [Alternate Ways to Get Intimate with Your Man when ...](https://love.allwomenstalk.com/alternate-ways-to-get-intimate-with-your-man-when-youre-not-ready-for-sex/)
 - [7 Myths about Sex Revealed ...](https://health.allwomenstalk.com/7-myths-about-sex-revealed/)
-- [9 Unexpected Things They Dont Tell You about Sex ....](https://love.allwomenstalk.com/unexpected-things-they-dont-tell-you-about-sex/)
+- [9 Unexpected Things They Don't Tell You about Sex ...](https://love.allwomenstalk.com/unexpected-things-they-dont-tell-you-about-sex/)
 
 ## Site Information
 

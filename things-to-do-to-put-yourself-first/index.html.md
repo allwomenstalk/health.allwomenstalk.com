@@ -3,7 +3,7 @@ title: "8 Things to do to Put Yourself First ..."
 description: "Get Moving; New Outfit; Enjoy Snacks; Sleep; Naps; More ..."
 url: "https://health.allwomenstalk.com/things-to-do-to-put-yourself-first/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 8 Things to do to Put Yourself First ...
@@ -48,16 +48,16 @@ Top Image Source: [fashiongonerogue.com](https://www.fashiongonerogue.com/lindse
 
 ## Related Posts
 
+- [7 Healthy Habits for the New Year ...](https://health.allwomenstalk.com/healthy-habits-for-the-new-year/)
 - [8 Great Ways to Grow Your Twitter following ...](https://lifestyle.allwomenstalk.com/great-ways-to-grow-your-twitter-following/)
 - [7 Ways to Take Control of Your Life ...](https://lifestyle.allwomenstalk.com/ways-to-take-control-of-your-life-2/)
-- [8 Clever and Simple Ways to Win at Life ...](https://lifestyle.allwomenstalk.com/clever-and-simple-ways-to-win-at-life/)
 - [top-5-methods-to-boost-your-spirit-naturally](https://health.allwomenstalk.com/beautiful-ways-to-boost-your-spirits/)
+- [8 Excellent Ways to Organize Yourself ...](https://lifestyle.allwomenstalk.com/excellent-ways-to-organize-yourself/)
 - [8 Tips for Finding Happiness in Your Life ...](https://health.allwomenstalk.com/tips-for-finding-happiness-in-your-life/)
-- [7 Healthy Habits for the New Year ...](https://health.allwomenstalk.com/healthy-habits-for-the-new-year/)
-- [new year resolutions how to keep them](https://lifestyle.allwomenstalk.com/ways-to-keep-your-new-years-resolution/)
 - [8 Methods to Build Your Confidence ...](https://lifestyle.allwomenstalk.com/methods-to-build-your-confidence/)
 - [9 Ways Laughter Improves Your Life ...](https://health.allwomenstalk.com/ways-laughter-improves-your-life/)
-- [8 Excellent Ways to Organize Yourself ...](https://lifestyle.allwomenstalk.com/excellent-ways-to-organize-yourself/)
+- [8 Clever and Simple Ways to Win at Life ...](https://lifestyle.allwomenstalk.com/clever-and-simple-ways-to-win-at-life/)
+- [new year resolutions how to keep them](https://lifestyle.allwomenstalk.com/ways-to-keep-your-new-years-resolution/)
 - [8 Ways to Make Yourself a Better Person ...](https://lifestyle.allwomenstalk.com/ways-to-make-yourself-a-better-person/)
 - [10 Top Ways to Take Control of Your Life ...](https://health.allwomenstalk.com/top-ways-to-take-control-of-your-life/)
 

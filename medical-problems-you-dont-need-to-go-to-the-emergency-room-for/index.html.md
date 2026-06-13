@@ -1,12 +1,12 @@
 ---
-title: "7 Medical Problems You Dont Need to Go to the Emergency Room for ..."
+title: "7 Medical Problems You Don't Need to Go to the Emergency Room for ..."
 description: "Minor Injuries; Flu or Colds; Fever; Earache; Minor Burns or Sunburn; More ..."
 url: "https://health.allwomenstalk.com/medical-problems-you-dont-need-to-go-to-the-emergency-room-for/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Medical Problems You Dont Need to Go to the Emergency Room for ...
+# 7 Medical Problems You Don't Need to Go to the Emergency Room for ...
 
 **Please remember that this is NOT medical advice!**
 
@@ -44,17 +44,17 @@ Many illnesses are of short duration and will resolve themselves with rest and f
 
 ## Related Posts
 
-- [7 Vital Things to Remember when Someones Having a ...](https://health.allwomenstalk.com/vital-things-to-remember-when-someones-having-a-seizure/)
-- [Dehydrated This is What Might Be Causing It ...](https://health.allwomenstalk.com/dehydrated-this-is-what-might-be-causing-it/)
-- [Careful of What You Put in Your Mouth: Dont Let Th...](https://beauty.allwomenstalk.com/careful-of-what-you-put-in-your-mouth-dont-let-these-things-ruin-your-smile/)
-- [8 Online Privacy Concerns Any Internet User Needs ...](https://lifestyle.allwomenstalk.com/online-privacy-concerns-any-internet-user-needs-to-know-about/)
-- [7 Important Things to Know about Your Melanoma Ris...](https://skincare.allwomenstalk.com/important-things-to-know-about-your-melanoma-risk/)
+- [Dehydrated? This is What Might Be Causing It ...](https://health.allwomenstalk.com/dehydrated-this-is-what-might-be-causing-it/)
+- [12 Ways to Mark World Cancer Day – Feb 4th 2015 .....](https://health.allwomenstalk.com/ways-to-mark-world-cancer-day-feb-th/)
 - [7 Things You Should Know about Your Tap Water ...](https://health.allwomenstalk.com/things-you-should-know-about-your-tap-water/)
-- [Heres All You Need to Know about Taking Painkiller...](https://health.allwomenstalk.com/heres-all-you-need-to-know-about-taking-painkillers-on-your-period/)
-- [Surprising Things That Affect Your Health You Need...](https://health.allwomenstalk.com/surprising-things-that-affect-your-health-you-need-to-toss-away-today/)
+- [7 Vital Things to Remember when Someone's Having a...](https://health.allwomenstalk.com/vital-things-to-remember-when-someones-having-a-seizure/)
+- [7 Important Things to Know about Your Melanoma Ris...](https://skincare.allwomenstalk.com/important-things-to-know-about-your-melanoma-risk/)
 - [7 Things to Know before Having Neck Enhancement Tr...](https://beauty.allwomenstalk.com/things-to-know-before-having-neck-enhancement-treatments/)
-- [12 Ways to Mark World Cancer Day  Feb 4th 2015 ...](https://health.allwomenstalk.com/ways-to-mark-world-cancer-day-feb-th/)
-- [7 Things You Dont Need to Pack in Your Suitcase .....](https://travel.allwomenstalk.com/things-you-dont-need-to-pack-in-your-suitcase/)
+- [Careful of What You Put in Your Mouth: Don't Let T...](https://beauty.allwomenstalk.com/careful-of-what-you-put-in-your-mouth-dont-let-these-things-ruin-your-smile/)
+- [Surprising Things That Affect Your Health You Need...](https://health.allwomenstalk.com/surprising-things-that-affect-your-health-you-need-to-toss-away-today/)
+- [8 Online Privacy Concerns Any Internet User Needs ...](https://lifestyle.allwomenstalk.com/online-privacy-concerns-any-internet-user-needs-to-know-about/)
+- [Here's All You Need to Know about Taking Painkille...](https://health.allwomenstalk.com/heres-all-you-need-to-know-about-taking-painkillers-on-your-period/)
+- [7 Things You Don't Need to Pack in Your Suitcase ....](https://travel.allwomenstalk.com/things-you-dont-need-to-pack-in-your-suitcase/)
 - [9 Reasons to Go to the Dentist ...](https://health.allwomenstalk.com/9-reasons-to-go-to-the-dentist/)
 
 ## Site Information

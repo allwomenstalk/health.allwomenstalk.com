@@ -1,12 +1,12 @@
 ---
-title: "12 Acts of Self Care You Can do in 5 Minutes or Less ..."
+title: "12 Acts of Self Care You Can do in 5 Minutes ⏱ or Less ..."
 description: "Breathe; Write; Meditate; Elevate Legs; Freshen up; More ..."
 url: "https://health.allwomenstalk.com/acts-of-self-care-you-can-do-in-5-minutes-or-less/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 12 Acts of Self Care You Can do in 5 Minutes  or Less ...
+# 12 Acts of Self Care You Can do in 5 Minutes ⏱ or Less ...
 
 When people talk about self-care, some of the stuff that you hear about the most is big scale actions like huge lifestyle changes, travel, lots of time off of work ... generally, things that take a little bit of fore-planning and can’t be done at the drop of a hat. The whole point of self care though, in my opinion, is doing things that can help to start making you feel better in a really short space of time, not waiting until you have enough money or enough time to ‘do it big’. Here are twelve **acts of self-care you can do in five minutes or less**.
 
@@ -84,15 +84,15 @@ If you have a pet around the house, make more of an effort to play with them. Th
 
 ## Related Posts
 
-- [3 Awesome Ways to Heal Your Energy ...](https://inspiration.allwomenstalk.com/awesome-ways-to-heal-your-energy/)
-- [Relaxation Techniques for Busy  Women ...](https://health.allwomenstalk.com/relaxation-techniques-for-busy-women/)
-- [Stress Triggers in Your Home ...](https://health.allwomenstalk.com/stress-triggers-in-your-home/)
-- [10 High Impact Self Care Ideas to Give Yourself a ...](https://health.allwomenstalk.com/high-impact-self-care-ideas-to-give-yourself-a-break/)
+- [5 Awesome Ways to Kick Anxiety Now ⏰ ...](https://health.allwomenstalk.com/awesome-ways-to-kick-anxiety-now/)
 - [12 Exceptional Tips for Staying Calm at Exam Time ...](https://lifestyle.allwomenstalk.com/exceptional-tips-for-staying-calm-at-exam-time/)
-- [goodbye mondays](https://inspiration.allwomenstalk.com/ways-to-say-goodbye-to-the-monday-morning-blues/)
-- [My Sanity Practice ...](https://health.allwomenstalk.com/my-sanity-practice/)
-- [5 Awesome Ways to Kick Anxiety Now  ...](https://health.allwomenstalk.com/awesome-ways-to-kick-anxiety-now/)
 - [Tips to Manage Workplace Stress ...](https://health.allwomenstalk.com/tips-to-manage-workplace-stress/)
+- [Relaxation Techniques for Busy ⏱ Women ...](https://health.allwomenstalk.com/relaxation-techniques-for-busy-women/)
+- [My Sanity Practice ...](https://health.allwomenstalk.com/my-sanity-practice/)
+- [goodbye mondays](https://inspiration.allwomenstalk.com/ways-to-say-goodbye-to-the-monday-morning-blues/)
+- [3 Awesome Ways to Heal Your Energy ...](https://inspiration.allwomenstalk.com/awesome-ways-to-heal-your-energy/)
+- [10 High Impact Self Care Ideas to Give Yourself a ...](https://health.allwomenstalk.com/high-impact-self-care-ideas-to-give-yourself-a-break/)
+- [Stress Triggers in Your Home ...](https://health.allwomenstalk.com/stress-triggers-in-your-home/)
 - [5 Ways to Control Your Anger ...](https://inspiration.allwomenstalk.com/ways-to-control-your-anger/)
 - [5 Things That Can Help You Relax Today...](https://allwomenstalk.com/5-things-that-can-help-you-relax-today/)
 - [3 Tips to Make Time for Myself ...](https://allwomenstalk.com/how-to-make-time-for-yourself/)

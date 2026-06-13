@@ -3,7 +3,7 @@ title: "Signs You Are a Coffee Addict ..."
 description: "Is It the First Thing You Think about when You Wake up?; Do You Consider Yourself to Be a Heavy Coffee Drinker?; Do You Have Several Types of Coffee at Home?; Is Your Mood Directly Related to How Little Coffee You Have Had?; Can You Go a Full Month without Coffee?; More ..."
 url: "https://health.allwomenstalk.com/signs-you-are-a-coffee-addict/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # Signs You Are a Coffee Addict ...
@@ -194,17 +194,17 @@ Do YOU drink too much coffee?
 
 ## Related Posts
 
-- [Signs You Need a Time out Even More than Your Chil...](https://parenting.allwomenstalk.com/signs-you-need-a-time-out-even-more-than-your-child/)
-- [Signs Youre a Victim of Financial Abuse ...](https://money.allwomenstalk.com/signs-youre-a-victim-of-financial-abuse/)
-- [7 Signs Youre Crazy about Vintage Fashion ...](https://fashion.allwomenstalk.com/signs-youre-crazy-about-vintage-fashion/)
+- [7 Signs You're Crazy about Vintage Fashion ...](https://fashion.allwomenstalk.com/signs-youre-crazy-about-vintage-fashion/)
 - [signs of bad attitude](https://inspiration.allwomenstalk.com/signs-you-need-to-re-adjust-your-attitude-asap/)
-- [Alarming  Signs You Have a Magnesium Deficiency .....](https://health.allwomenstalk.com/alarming-signs-you-have-a-magnesium-deficiency/)
-- [paris riche le stylo golden emerald](https://lifestyle.allwomenstalk.com/signs-your-life-is-going-better-than-you-think/)
-- [7 Signs That Its Time for You to See Your Dermatol...](https://skincare.allwomenstalk.com/signs-that-its-time-for-you-to-see-your-dermatologist/)
-- [17 Signals That You do or do Not Have a Type ...](https://love.allwomenstalk.com/signals-that-you-do-or-do-not-have-a-type/)
+- [Signs You Need a Time out Even More than Your Chil...](https://parenting.allwomenstalk.com/signs-you-need-a-time-out-even-more-than-your-child/)
 - [girls ovulating](https://parenting.allwomenstalk.com/signs-to-know-if-youre-ovulating-for-girls-trying-to-get-pregnant/)
+- [17 Signals That You do or do Not Have a Type ...](https://love.allwomenstalk.com/signals-that-you-do-or-do-not-have-a-type/)
+- [Signs You're a Victim of Financial Abuse ...](https://money.allwomenstalk.com/signs-youre-a-victim-of-financial-abuse/)
+- [Alarming ⏰ Signs You Have a Magnesium Deficiency ....](https://health.allwomenstalk.com/alarming-signs-you-have-a-magnesium-deficiency/)
+- [7 Signs That It's Time for You to See Your Dermato...](https://skincare.allwomenstalk.com/signs-that-its-time-for-you-to-see-your-dermatologist/)
 - [the tell tale signs of a highly sensitive person](https://inspiration.allwomenstalk.com/signs-to-look-for-to-tell-if-youre-a-highly-sensitive-girl/)
-- [8 Signs Youre Addicted to Facebook ...](https://allwomenstalk.com/8-signs-youre-addicted-to-facebook/)
+- [paris riche le stylo golden emerald](https://lifestyle.allwomenstalk.com/signs-your-life-is-going-better-than-you-think/)
+- [8 Signs You're Addicted to Facebook ...](https://allwomenstalk.com/8-signs-youre-addicted-to-facebook/)
 - [8 Signs You Are Addicted to Twilight ...](https://allwomenstalk.com/8-signs-you-are-addicted-to-twilight/)
 
 ## Site Information

@@ -1,12 +1,12 @@
 ---
-title: "7 Things to Remember if Youre Prescribed Antibiotics ..."
+title: "7 Things to Remember if You're Prescribed Antibiotics ..."
 description: "Finish the Course; Take Probiotics; Avoid Alcohol; When to Take Them; Side Effects; More ..."
 url: "https://health.allwomenstalk.com/things-to-remember-if-youre-prescribed-antibiotics/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Things to Remember if Youre Prescribed Antibiotics ...
+# 7 Things to Remember if You're Prescribed Antibiotics ...
 
 What are the things to remember if you're prescribed antibiotics? It's particularly important that this type of medication is taken properly if it is to be completely effective. Not taking it properly could contribute to antibiotic resistance or mean that you need another, stronger course. Here are some things to remember if you're prescribed antibiotics …
 
@@ -42,15 +42,15 @@ Be conscientious about taking your course of antibiotics, in order for it to wor
 
 ## Related Posts
 
-- [7 Things You Should Know about Body Dysmorphia ...](https://mindfulness.allwomenstalk.com/things-you-should-know-about-body-dysmorphia/)
-- [10 Health Facts Discovered in 2014 ...](https://health.allwomenstalk.com/health-facts-discovered-in/)
 - [9 Things You Should Know about Colds and Flu ...](https://health.allwomenstalk.com/things-you-should-know-about-colds-and-flu/)
-- [7 Risks to Take before You Die ...](https://inspiration.allwomenstalk.com/risks-to-take-before-you-die/)
-- [7 Things to Worry about More than Ebola ...](https://health.allwomenstalk.com/things-to-worry-about-more-than-ebola/)
+- [7 Things You Should Know about Body Dysmorphia ...](https://mindfulness.allwomenstalk.com/things-you-should-know-about-body-dysmorphia/)
 - [Be Wary of These Items if You Have a Nickel Allerg...](https://health.allwomenstalk.com/items-to-be-wary-of-if-you-have-a-nickel-allergy/)
 - [Common Pregnancy Skin Conditions You Might Experie...](https://skincare.allwomenstalk.com/pregnancy-skin-conditions-you-might-have-to-deal-with/)
-- [10 Things You Should Know about Depression ...](https://mindfulness.allwomenstalk.com/things-you-should-know-about-depression/)
 - [site:health.allwomenstalk.com](https://health.allwomenstalk.com/common-causes-of-stomach-pain/)
+- [10 Things You Should Know about Depression ...](https://mindfulness.allwomenstalk.com/things-you-should-know-about-depression/)
+- [10 Health Facts Discovered in 2014 ...](https://health.allwomenstalk.com/health-facts-discovered-in/)
+- [7 Things to Worry about More than Ebola ...](https://health.allwomenstalk.com/things-to-worry-about-more-than-ebola/)
+- [7 Risks to Take before You Die ...](https://inspiration.allwomenstalk.com/risks-to-take-before-you-die/)
 - [7 Side Effects of Stress to Look out for ...](https://health.allwomenstalk.com/side-effects-of-stress-to-look-out-for/)
 - [9 Things to Ask Your Doctor ...](https://health.allwomenstalk.com/9-things-to-ask-your-doctor/)
 - [7 Tips to Maintain Good Health ...](https://health.allwomenstalk.com/tips-to-maintain-good-health/)

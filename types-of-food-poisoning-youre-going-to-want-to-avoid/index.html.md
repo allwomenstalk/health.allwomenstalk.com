@@ -1,12 +1,12 @@
 ---
-title: "7 Types of Food Poisoning Youre Going to Want to Avoid ..."
+title: "7 Types of Food Poisoning You're Going to Want to Avoid ..."
 description: "Salmonella; Campylobacter Jejuni; Listeria Monocytogenes; Clostridium Botulinum (Botulism); Bacillus Cereus; More ..."
 url: "https://health.allwomenstalk.com/types-of-food-poisoning-youre-going-to-want-to-avoid/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Types of Food Poisoning Youre Going to Want to Avoid ...
+# 7 Types of Food Poisoning You're Going to Want to Avoid ...
 
 Food poisoning is something everyone dreads but that most have had the misfortune to experience at some point or another, and there are many different types of [food poisoning](https://food.allwomenstalk.com/foods-most-likely-to-cause-food-poisoning/) you're going to want to avoid. Whilst some can be avoided by following simple hygiene practices, some are dependent on the way in which food is stored. Unfortunately, when we dine out, we can't really see what's happening or what happened to our food before it reached our plate and we're at the mercy of restaurant staff to ensure we don't end the evening doubled over in agony or permanently propped on the 'throne' for the duration of the night. Of course, there is no need to be paranoid, just cautious and this isn't me scaremongering, although I have to confess, my mother's suspicion of eateries seems to have rubbed off on me as I've grown older! Here are some types of food poisoning and their common culprits.
 
@@ -44,16 +44,16 @@ Has anyone had the misfortune to suffer from a bout of any of these types of foo
 
 ## Related Posts
 
-- [7 Things You Must Eat to Boost Vitamin E Intake .....](https://food.allwomenstalk.com/things-you-must-eat-to-boost-vitamin-e-intake/)
-- [7 Most Healthy Nutrients for Your Skin to Eat More...](https://eatial.com/most-healthy-nutrients-for-your-skin-to-eat-more-of/)
-- [7 Diets around the World That Are Worth Looking in...](https://vityle.com/diets-around-the-world-that-are-worth-looking-into/)
-- [yummy frozen foods](https://food.allwomenstalk.com/yummy-frozen-foods-that-youll-love/)
-- [7 Healthy Packed Lunch Ideas for Teens ...](https://parenting.allwomenstalk.com/healthy-packed-lunch-ideas-for-teens/)
 - [7 Sneaky Ways the Junk Food Industry Entices You i...](https://food.allwomenstalk.com/sneaky-ways-the-junk-food-industry-entices-you-in/)
-- [7 Food Chemicals You Should Know about ...](https://food.allwomenstalk.com/food-chemicals-you-should-know-about/)
 - [7 Important Nutrients for Your Gut Health ...](https://health.allwomenstalk.com/important-nutrients-for-your-gut-health/)
-- [7 Food Ingredients You Should Avoid ...](https://health.allwomenstalk.com/food-ingredients-you-should-avoid/)
+- [yummy frozen foods](https://food.allwomenstalk.com/yummy-frozen-foods-that-youll-love/)
 - [7 Energy Foods That Will Get You through 2014 ...](https://food.allwomenstalk.com/energy-foods-that-will-get-you-through/)
+- [7 Things You Must Eat to Boost Vitamin E Intake .....](https://food.allwomenstalk.com/things-you-must-eat-to-boost-vitamin-e-intake/)
+- [7 Food Chemicals You Should Know about ...](https://food.allwomenstalk.com/food-chemicals-you-should-know-about/)
+- [7 Food Ingredients You Should Avoid ...](https://health.allwomenstalk.com/food-ingredients-you-should-avoid/)
+- [7 Healthy Packed Lunch Ideas for Teens ...](https://parenting.allwomenstalk.com/healthy-packed-lunch-ideas-for-teens/)
+- [7 Diets around the World That Are Worth Looking in...](https://vityle.com/diets-around-the-world-that-are-worth-looking-into/)
+- [7 Most Healthy Nutrients for Your Skin to Eat More...](https://eatial.com/most-healthy-nutrients-for-your-skin-to-eat-more-of/)
 - [7 Tips to Avoid Vacation Food Poisoning ...](https://travel.allwomenstalk.com/7-tips-to-avoid-vacation-food-poisoning/)
 - [7 Foods to Avoid While Pregnant ...](https://parenting.allwomenstalk.com/7-foods-to-avoid-while-pregnant/)
 

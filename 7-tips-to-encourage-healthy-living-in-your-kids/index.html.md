@@ -3,7 +3,7 @@ title: "7 Tips to Encourage Healthy Living in Your Kids ..."
 description: "Start by Example; Plan Family Activities; Make Eating Healthy Easier; Offer Healthy Replacements; Don't Buy Extra; More ..."
 url: "https://health.allwomenstalk.com/7-tips-to-encourage-healthy-living-in-your-kids/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Tips to Encourage Healthy Living in Your Kids ...
@@ -56,16 +56,16 @@ Top Photo Credit: [sherimiya](https://www.flickr.com/photos/35552506@N08/3821682
 
 ## Related Posts
 
-- [fun kids food](https://lifestyle.allwomenstalk.com/fun-ways-kids-can-eat-their-food/)
-- [good influences](https://lifestyle.allwomenstalk.com/ways-to-be-a-good-influence-on-your-children/)
-- [Parenting: Addressing Adults](https://allwomenstalk.com/parenting-addressing-adults/)
-- [6 Ways to Get Kids Excited about Going Back to Sch...](https://lifestyle.allwomenstalk.com/ways-to-get-kids-excited-about-going-back-to-school/)
-- [crafty ideas](https://lifestyle.allwomenstalk.com/crafty-ideas-to-share-with-the-kids/)
-- [wii game for 4 year old](https://lifestyle.allwomenstalk.com/active-wii-games-for-kids/)
-- [8 Tips to Help Kids Cope with Losing a Pet ...](https://lifestyle.allwomenstalk.com/tips-to-help-kids-cope-with-losing-a-pet/)
-- [Helping Kids Overcome Their Fears and Phobias](https://allwomenstalk.com/3-19/)
 - [Cool Parents Get Him](https://allwomenstalk.com/cool-parents-get-him-2/)
+- [wii game for 4 year old](https://lifestyle.allwomenstalk.com/active-wii-games-for-kids/)
 - [Send Kids Back to School with a Healthy Diet](https://allwomenstalk.com/3-24/)
+- [fun kids food](https://lifestyle.allwomenstalk.com/fun-ways-kids-can-eat-their-food/)
+- [8 Tips to Help Kids Cope with Losing a Pet ...](https://lifestyle.allwomenstalk.com/tips-to-help-kids-cope-with-losing-a-pet/)
+- [Parenting: Addressing Adults](https://allwomenstalk.com/parenting-addressing-adults/)
+- [crafty ideas](https://lifestyle.allwomenstalk.com/crafty-ideas-to-share-with-the-kids/)
+- [good influences](https://lifestyle.allwomenstalk.com/ways-to-be-a-good-influence-on-your-children/)
+- [Helping Kids Overcome Their Fears and Phobias](https://allwomenstalk.com/3-19/)
+- [6 Ways to Get Kids Excited about Going Back to Sch...](https://lifestyle.allwomenstalk.com/ways-to-get-kids-excited-about-going-back-to-school/)
 - [8 Ways to Start a Healthy Lifestyle ...](https://diet.allwomenstalk.com/ways-to-start-a-healthy-lifestyle/)
 - [7 Ways to Keep Your Heart Healthy ...](https://health.allwomenstalk.com/7-ways-to-keep-your-heart-healthy/)
 

@@ -1,12 +1,12 @@
 ---
-title: "7 Blood Tests for Fatigue to Have Your Doctor do if Youre Always Tired ..."
+title: "7 Blood Tests for Fatigue to Have Your Doctor do if You're Always Tired ..."
 description: "TSH; Free T4; Free T3; Cortisol; Hemoglobin A1C; More ..."
 url: "https://health.allwomenstalk.com/blood-tests-for-fatigue-to-have-your-doctor-do-if-youre-always-tired/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Blood Tests for Fatigue to Have Your Doctor do if Youre Always Tired ...
+# 7 Blood Tests for Fatigue to Have Your Doctor do if You're Always Tired ...
 
 If you have been feeling more tired than usual you might want to consider asking your doctor to run certain blood tests for fatigue. Your tiredness could be an indicator that something is wrong. A few years ago, I became very tired and couldn’t explain why I felt so run down. Knowing thyroid problems run in my family, I went to my doctor and asked her to test my thyroid. The results showed I had severe hypothyroidism that was progressively getting worse every day. I was so glad I asked my doctor to run some blood tests for fatigue. If I hadn’t I would have gotten worse without knowing why. Instead, I received the proper treatment and slowly started feeling better.
 
@@ -42,15 +42,15 @@ Fatigue creeps up on everyone now and then, but if you are excessively tired you
 
 ## Related Posts
 
-- [things every woman needs to know about her heart](https://health.allwomenstalk.com/things-every-woman-needs-to-know-about-heart-disease/)
-- [detox symptoms from juicing](https://health.allwomenstalk.com/effects-of-cleansing-to-be-aware-of-before-you-start/)
 - [life saving items](https://lifestyle.allwomenstalk.com/life-saving-items-you-must-keep-in-your-emergency-kit/)
-- [controversial supplements](https://health.allwomenstalk.com/controversial-health-supplements-and-what-you-need-to-know/)
 - [fluoride negative effects](https://health.allwomenstalk.com/negative-effects-of-fluoride-on-your-health/)
 - [the skin book tattoo](https://lifestyle.allwomenstalk.com/things-you-didnt-know-about-getting-a-tattoo/)
-- [ensure anorexia](https://health.allwomenstalk.com/signs-you-may-need-to-take-ensure-supplements/)
+- [things every woman needs to know about her heart](https://health.allwomenstalk.com/things-every-woman-needs-to-know-about-heart-disease/)
 - [minerals your body needs daily](https://health.allwomenstalk.com/minerals-your-body-needs-every-day/)
 - [weird addictions](https://health.allwomenstalk.com/totally-strange-addictions-that-youve-got-to-check-out/)
+- [detox symptoms from juicing](https://health.allwomenstalk.com/effects-of-cleansing-to-be-aware-of-before-you-start/)
+- [ensure anorexia](https://health.allwomenstalk.com/signs-you-may-need-to-take-ensure-supplements/)
+- [controversial supplements](https://health.allwomenstalk.com/controversial-health-supplements-and-what-you-need-to-know/)
 - [things you sign](https://lifestyle.allwomenstalk.com/things-you-should-sign-up-for/)
 - [7 Foods That Give You Energy ...](https://food.allwomenstalk.com/foods-that-give-you-energy/)
 - [7 Things That Drain Your Energy ...](https://allwomenstalk.com/7-things-that-drain-your-energy/)

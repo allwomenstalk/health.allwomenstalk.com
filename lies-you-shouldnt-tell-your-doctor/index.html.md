@@ -1,12 +1,12 @@
 ---
-title: "7 Lies You Shouldnt Tell Your Doctor ..."
+title: "7 Lies You Shouldn't Tell Your Doctor ..."
 description: "I Don’t Drink Regularly…; I Eat Well…; My Digestive System is Fine…; I’m Not Taking Any Meds…; I’m Practicing Safe Sex…; More ..."
 url: "https://health.allwomenstalk.com/lies-you-shouldnt-tell-your-doctor/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Lies You Shouldnt Tell Your Doctor ...
+# 7 Lies You Shouldn't Tell Your Doctor ...
 
 Do you know which lies you shouldn’t tell your doctor? Okay, so we all know that honesty is the best policy, but a study by Columbia University found that half of women aged between 25 and 49 regularly lie to their doctor. And it’s totally normal to stretch the truth a little sometimes, especially when it comes to embarrassing topics, because people don’t like being judged or scolded. There are definitely some lies you shouldn't tell your doctor, though, regardless of how embarrassing they are. Misleading your doctor on these topics can seriously sabotage your health.
 
@@ -42,15 +42,15 @@ If you can, it’s always easiest to be completely honest and upfront about your
 
 ## Related Posts
 
-- [8 Extremely Useful Tips for Living with PCOS ...](https://health.allwomenstalk.com/tips-for-living-with-pcos/)
-- [7 Common Misconceptions about Female Contraception...](https://health.allwomenstalk.com/common-misconceptions-about-female-contraception/)
-- [9 Complementary Therapies Introduced and Explained...](https://health.allwomenstalk.com/complementary-therapies-introduced-and-explained/)
-- [7 Crucial Things Every Woman Should Know about Men...](https://health.allwomenstalk.com/crucial-things-every-woman-should-know-about-menopause/)
-- [7 Things You Absolutely Need to Know about GMOs .....](https://food.allwomenstalk.com/things-you-need-to-know-about-gmos/)
-- [7 Things You Need to Know about Perimenopause ...](https://health.allwomenstalk.com/things-you-need-to-know-about-perimenopause/)
-- [10 Things You Should Know about Your Muscles ...](https://fitene.com/things-you-should-know-about-your-muscles/)
 - [8 Modern Health Issues and How to Solve Them ...](https://health.allwomenstalk.com/modern-health-issues-and-how-to-solve-them/)
+- [10 Things You Should Know about Your Muscles ...](https://fitene.com/things-you-should-know-about-your-muscles/)
+- [8 Extremely Useful Tips for Living with PCOS ...](https://health.allwomenstalk.com/tips-for-living-with-pcos/)
+- [7 Things You Absolutely Need to Know about GMOs .....](https://food.allwomenstalk.com/things-you-need-to-know-about-gmos/)
+- [7 Crucial Things Every Woman Should Know about Men...](https://health.allwomenstalk.com/crucial-things-every-woman-should-know-about-menopause/)
 - [10 Facts You Should Know about Your Heart ...](https://health.allwomenstalk.com/facts-about-your-heart/)
+- [7 Common Misconceptions about Female Contraception...](https://health.allwomenstalk.com/common-misconceptions-about-female-contraception/)
+- [7 Things You Need to Know about Perimenopause ...](https://health.allwomenstalk.com/things-you-need-to-know-about-perimenopause/)
+- [9 Complementary Therapies Introduced and Explained...](https://health.allwomenstalk.com/complementary-therapies-introduced-and-explained/)
 - [7 Common Myths about Older Adults You Should Know ...](https://lifestyle.allwomenstalk.com/common-myths-about-older-adults-you-should-know/)
 - [11 Things to Never Tell Your Man ...](https://allwomenstalk.com/11-things-to-never-tell-your-man/)
 - [9 Lies People Tell and Why ...](https://allwomenstalk.com/9-lies-people-tell-and-why/)

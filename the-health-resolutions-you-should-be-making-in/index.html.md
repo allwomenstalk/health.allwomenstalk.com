@@ -3,7 +3,7 @@ title: "The Health Resolutions You Should Be Making in 2019 ..."
 description: "Work on Cutting down the Physical Trash That Comes along with Your Food. by Trying to Use Less Plastic Etc., You Will Find That You Make Healthier Choices like Getting Fresh Fruit and Vegetables over Takeout when you consciously avoid packaging; Ensure That You Stay Motivated in Your Exercise Regime by Shaking It up a Couple Days a Week. Stray from Your Normal Routine and Add in Some Fun Classes like Spin and Zumba; Stock Your Freezer with Lots of Healthy Fresh Ingredients That You Can Pull out at Short Notice Instead of Relying on Calling for Pizza and Chinese Food. Batch cooking and freezing soups is bang on Trend This Year; Make the Time to Get More Sleep Each Night. the More Refreshed and Restored Your Body is, the Better Life Decisions You Will Make regarding Food and Exercise; Carve out Some Time in Your Day to Practise Meditation. This Could Be as Little as Ten Quiet Minutes to Yourself Where You Block out External Thoughts and Just Focus on Your Own Breathing; More ..."
 url: "https://health.allwomenstalk.com/the-health-resolutions-you-should-be-making-in/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # The Health Resolutions You Should Be Making in 2019 ...
@@ -52,16 +52,16 @@ The start of every year always brings with it a bunch of promises that we make t
 
 ## Related Posts
 
+- [habits to start in your 20s](https://inspiration.allwomenstalk.com/habits-you-need-to-master-in-your-20s-for-an-awesome-future/)
+- [10 Things You Should do to Be the Best Version of ...](https://inspiration.allwomenstalk.com/things-you-should-do-to-be-the-best-version-of-yourself/)
+- [How to Conquer the Challenges of Life like a Super...](https://inspiration.allwomenstalk.com/how-to-conquer-the-challenges-of-life-like-a-superstar/)
 - [how to level up life](https://inspiration.allwomenstalk.com/ways-to-level-up-in-the-game-of-life-in/)
 - [21 Super Easy Ways to Take Better Care of Yourself...](https://health.allwomenstalk.com/super-easy-ways-to-take-better-care-of-yourself/)
-- [habits to start in your 20s](https://inspiration.allwomenstalk.com/habits-you-need-to-master-in-your-20s-for-an-awesome-future/)
-- [How to Be More Adaptable for a More go with the Fl...](https://inspiration.allwomenstalk.com/how-to-be-more-adaptable-for-a-more-go-with-the-flow-life/)
-- [Why Self Care Will Change Your Life ...](https://inspiration.allwomenstalk.com/self-care-will-change-your-life-because/)
 - [Steal These Habits of Happy People for Yourself .....](https://inspiration.allwomenstalk.com/steal-these-habits-of-happy-people-for-yourself/)
-- [How to Conquer the Challenges of Life like a Super...](https://inspiration.allwomenstalk.com/how-to-conquer-the-challenges-of-life-like-a-superstar/)
-- [10 Things You Should do to Be the Best Version of ...](https://inspiration.allwomenstalk.com/things-you-should-do-to-be-the-best-version-of-yourself/)
-- [Step out of Your Comfort Zone One Foot at a Time ....](https://inspiration.allwomenstalk.com/step-out-of-your-comfort-zone-one-foot-at-a-time/)
+- [Why Self Care Will Change Your Life ...](https://inspiration.allwomenstalk.com/self-care-will-change-your-life-because/)
+- [How to Be More Adaptable for a More "go with the F...](https://inspiration.allwomenstalk.com/how-to-be-more-adaptable-for-a-more-go-with-the-flow-life/)
 - [10 Ways to Be a Student of Life ...](https://lifestyle.allwomenstalk.com/tips-to-surviving-college/)
+- [Step out of Your Comfort Zone One Foot at a Time ....](https://inspiration.allwomenstalk.com/step-out-of-your-comfort-zone-one-foot-at-a-time/)
 - [7 Resolutions for a Healthier 2019 ...](https://allwomenstalk.com/resolutions-for-a-healthier/)
 - [18 Steps to a Healthier LIfe You Should Take ...](https://eatial.com/steps-to-a-healthier-life-you-should-take/)
 

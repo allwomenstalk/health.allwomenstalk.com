@@ -1,12 +1,12 @@
 ---
-title: "7 Signs of Crohns Disease and What You Can do about It ..."
+title: "7 Signs of Crohn's Disease and What You Can do about It ..."
 description: "Diarrhea; Cramping; Abdominal Pain; Loss of Appetite; Weight Loss; More ..."
 url: "https://health.allwomenstalk.com/signs-of-crohns-disease-and-what-you-can-do-about-it/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Signs of Crohns Disease and What You Can do about It ...
+# 7 Signs of Crohn's Disease and What You Can do about It ...
 
 Crohn’s Disease is one of the most prevalent types of digestive disorders in the United States and the signs of Crohn’s Disease can often be mistaken for something else. Doctors are actually now calling Crohn’s a chronic disorder because so many people suffer from it. It is thought that this disease is an abnormal immune response which causes the gastrointestinal tract to become inflamed affecting the entire digestive tract from the mouth to the colon. When a person with Crohn’s eats certain foods, many symptoms can occur, namely bloating, pain and problems with digestion and elimination. However, the symptoms can mimic other digestive disorders, and even come at times a patient isn't eating, making it hard to detect. Here are the top 7 signs of Crohn’s Disease and some tips below for what you can do about it.
 
@@ -45,14 +45,14 @@ There are many different treatment options for a person with Crohn’s. Many inc
 
 - [7 Shocking Human Diseases You Should Know about .....](https://health.allwomenstalk.com/shocking-human-diseases-you-should-know-about/)
 - [7 Dangers of Caffeine You Might Not Be Aware of .....](https://health.allwomenstalk.com/dangers-of-caffeine-you-might-not-be-aware-of/)
-- [7 Important Facts about Sweat and Your Body ...](https://health.allwomenstalk.com/important-facts-about-sweat-and-your-body/)
-- [7 Things to Ask Your Gynecologist Next Time Youre ...](https://health.allwomenstalk.com/things-to-ask-your-gynecologist-next-time-youre-in-for-a-visit/)
+- [7 Things to Ask Your Gynecologist Next Time You're...](https://health.allwomenstalk.com/things-to-ask-your-gynecologist-next-time-youre-in-for-a-visit/)
 - [7 Important  Things You Should Know about the Pill...](https://health.allwomenstalk.com/important-things-you-should-know-about-the-pill/)
-- [7 Things You Need to Know about Earbud Headphones ...](https://lifestyle.allwomenstalk.com/things-you-need-to-know-about-earbud-headphones/)
 - [7 Points to Consider regarding Women and Substance...](https://health.allwomenstalk.com/points-to-consider-regarding-woman-and-substance-abuse/)
-- [7 Strange Health Facts That Could Predict Your Fut...](https://health.allwomenstalk.com/strange-health-facts-that-could-predict-your-future/)
-- [7 Doctors Appointments You Need to Make Now ...](https://health.allwomenstalk.com/doctors-appointments-you-need-to-make-now/)
 - [7 Marvelous Things to Know about Functional Medici...](https://health.allwomenstalk.com/marvelous-things-to-know-about-functional-medicine/)
+- [7 Things You Need to Know about Earbud Headphones ...](https://lifestyle.allwomenstalk.com/things-you-need-to-know-about-earbud-headphones/)
+- [7 Doctor's Appointments You Need to Make Now ...](https://health.allwomenstalk.com/doctors-appointments-you-need-to-make-now/)
+- [7 Important Facts about Sweat and Your Body ...](https://health.allwomenstalk.com/important-facts-about-sweat-and-your-body/)
+- [7 Strange Health Facts That Could Predict Your Fut...](https://health.allwomenstalk.com/strange-health-facts-that-could-predict-your-future/)
 - [7 Tips to Maintain Good Health ...](https://health.allwomenstalk.com/tips-to-maintain-good-health/)
 - [7 Tips to a Healthy Digestive System ...](https://allwomenstalk.com/7-tips-to-a-healthy-digestive-system/)
 

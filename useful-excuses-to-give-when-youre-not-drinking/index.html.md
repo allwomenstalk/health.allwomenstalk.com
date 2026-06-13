@@ -1,12 +1,12 @@
 ---
-title: "7 Useful Excuses to Give when Youre Not Drinking ..."
+title: "7 Useful Excuses to Give when You're Not Drinking ..."
 description: "Medication; I'm Driving; Don't like It; Don't Need It; Already Had One; More ..."
 url: "https://health.allwomenstalk.com/useful-excuses-to-give-when-youre-not-drinking/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Useful Excuses to Give when Youre Not Drinking ...
+# 7 Useful Excuses to Give when You're Not Drinking ...
 
 It's often useful to have excuses to give when you're not drinking. Of course, you should just be able to decline a drink without giving reasons, but sometimes people can be annoying and won't just accept that you don't want one. Our culture often revolves around drinking, and people who choose not to participate are seen as boring. That's silly, but won't change overnight. So here are some handy excuses to give when you're not drinking …
 
@@ -42,16 +42,16 @@ You should be able to decline an alcoholic drink without needing to give excuses
 
 ## Related Posts
 
-- [why failing is good](https://inspiration.allwomenstalk.com/surprising-reasons-why-its-okay-to-fail-sometimes/)
-- [is private relationship good](https://love.allwomenstalk.com/good-reasons-to-keep-your-relationship-problems-quiet/)
-- [why you should never give up on your dreams](https://inspiration.allwomenstalk.com/very-important-reasons-not-to-give-up-on-your-dreams/)
-- [how to remain calm when angry](https://lifestyle.allwomenstalk.com/reasons-for-staying-calm-when-someone-has-made-you-angry/)
-- [he texted after first date but not since](https://love.allwomenstalk.com/reasons-why-he-hasnt-called-after-the-first-date/)
-- [being a celebrity is often difficult](https://celebs.allwomenstalk.com/reasons-why-being-famous-isnt-that-great/)
 - [when not to get married](https://love.allwomenstalk.com/reasons-why-its-okay-to-not-get-married/)
+- [why you should never give up on your dreams](https://inspiration.allwomenstalk.com/very-important-reasons-not-to-give-up-on-your-dreams/)
 - [who can i talk to about my marriage problems](https://love.allwomenstalk.com/reason-to-avoid-telling-others-about-problems-in-your-marriage/)
-- [love is overrated meaning](https://love.allwomenstalk.com/reasons-romantic-relationships-are-overrated/)
+- [is private relationship good](https://love.allwomenstalk.com/good-reasons-to-keep-your-relationship-problems-quiet/)
+- [how to remain calm when angry](https://lifestyle.allwomenstalk.com/reasons-for-staying-calm-when-someone-has-made-you-angry/)
+- [being a celebrity is often difficult](https://celebs.allwomenstalk.com/reasons-why-being-famous-isnt-that-great/)
+- [why failing is good](https://inspiration.allwomenstalk.com/surprising-reasons-why-its-okay-to-fail-sometimes/)
 - [why am i trying to be perfect](https://inspiration.allwomenstalk.com/reasons-to-stop-trying-to-be-perfect/)
+- [love is overrated meaning](https://love.allwomenstalk.com/reasons-romantic-relationships-are-overrated/)
+- [he texted after first date but not since](https://love.allwomenstalk.com/reasons-why-he-hasnt-called-after-the-first-date/)
 - [7 Sure Ways to Have Fun without Drinking ...](https://allwomenstalk.com/8-sure-ways-to-have-fun-without-drinking/)
 - [7 Popular Excuses for Calling into Work ...](https://allwomenstalk.com/7-popular-excuses-for-calling-into-work/)
 

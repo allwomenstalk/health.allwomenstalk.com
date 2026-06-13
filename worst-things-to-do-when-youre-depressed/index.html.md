@@ -1,12 +1,12 @@
 ---
-title: "9 Worst Things to do when Youre Depressed ..."
+title: "9 Worst Things to do when You're Depressed ..."
 description: "Emotional Eating; Retail Therapy; Taking It out on Others; Turning to Drugs or Alcohol; Depressing Entertainment; More ..."
 url: "https://health.allwomenstalk.com/worst-things-to-do-when-youre-depressed/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 9 Worst Things to do when Youre Depressed ...
+# 9 Worst Things to do when You're Depressed ...
 
 Some of the worst things to do when you're depressed are, sadly, the things you're more likely to turn to when you feel down. It's true for everyone. You know you should not engage in self destructive behavior, but somehow that's exactly where you go. You pick fights with loved ones, eat too much, shop too much – and none of those things ever help you feel better. To best avoid the worst things to do when you're depressed, you have to familiarize yourself with them first, and then make a game plan consisting of better, more productive things to do instead.
 
@@ -50,16 +50,16 @@ Depression is hard, whether it's a chronic depression or a momentary state that 
 
 ## Related Posts
 
-- [7 Things You Shouldnt Discuss at Work ...](https://lifestyle.allwomenstalk.com/things-you-shouldnt-discuss-at-work/)
-- [7 Things to Stop Doing Right Now ...](https://inspiration.allwomenstalk.com/things-to-stop-doing-right-now-2/)
-- [7 Reasons You Should Not Wear Flip Flops ...](https://shoes.allwomenstalk.com/reasons-you-should-not-wear-flip-flops/)
-- [things that damage your eyesight](https://health.allwomenstalk.com/things-that-damage-your-eyesight-to-stop-doing-right-now/)
 - [9 Silly Habits That Harm Your Relationship to Avoi...](https://love.allwomenstalk.com/silly-habits-that-harm-your-relationship-to-avoid-at-all-costs/)
+- [things that damage your eyesight](https://health.allwomenstalk.com/things-that-damage-your-eyesight-to-stop-doing-right-now/)
 - [kicked off a plane](https://travel.allwomenstalk.com/things-that-could-get-you-kicked-off-a-plane/)
+- [7 Reasons You Should Not Wear Flip Flops ...](https://shoes.allwomenstalk.com/reasons-you-should-not-wear-flip-flops/)
 - [7 Things to Avoid Saying during a First Date ...](https://funny.allwomenstalk.com/things-to-avoid-saying-during-a-first-date/)
-- [7 Things You Should Never Feel Guilty about Doing ...](https://inspiration.allwomenstalk.com/things-you-should-never-feel-guilty-about-doing/)
+- [7 Things You Shouldn't Discuss at Work ...](https://lifestyle.allwomenstalk.com/things-you-shouldnt-discuss-at-work/)
+- [7 Things to Stop Doing Right Now ...](https://inspiration.allwomenstalk.com/things-to-stop-doing-right-now-2/)
 - [7 Things Best Left out of Your Relationship ...](https://love.allwomenstalk.com/worst-things-for-your-relationship-that-are-best-left-out/)
 - [misconceptions of yoga](https://fitness.allwomenstalk.com/misconceptions-about-yoga-youre-better-off-not-believing/)
+- [7 Things You Should Never Feel Guilty about Doing ...](https://inspiration.allwomenstalk.com/things-you-should-never-feel-guilty-about-doing/)
 - [10 Ways to Prevent Depression ...](https://allwomenstalk.com/10-ways-to-prevent-depression/)
 - [10 Ways to Fight Depression ...](https://allwomenstalk.com/10-ways-to-fight-depression/)
 

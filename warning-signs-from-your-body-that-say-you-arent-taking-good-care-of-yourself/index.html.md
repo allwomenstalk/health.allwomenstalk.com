@@ -1,12 +1,12 @@
 ---
-title: "10 Warning Signs from Your Body That Say You Arent Taking Good Care of Yourself ..."
+title: "10 Warning Signs from Your Body That Say You Aren't Taking Good Care of Yourself ..."
 description: "Fatigue; Poor Concentration; Getting Sick; Post Workout Soreness; Stomach Aches; More ..."
 url: "https://health.allwomenstalk.com/warning-signs-from-your-body-that-say-you-arent-taking-good-care-of-yourself/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 10 Warning Signs from Your Body That Say You Arent Taking Good Care of Yourself ...
+# 10 Warning Signs from Your Body That Say You Aren't Taking Good Care of Yourself ...
 
 If you are the kind of person who cares deeply about your family and your friends, then it’s probably safe to assume that you spend more time caring and thinking about them, than you do caring and thinking about yourself! This is the curse of a truly selfless person, but something that you can’t forget is that if you don’t take care of yourself first, then you aren’t going to be able to reach out and take care of others at the same time. Here are 10 **signs you aren't taking good care of yourself**.
 
@@ -52,17 +52,17 @@ If you are all of a sudden feeling a real lack of emotion, a dullness, then that
 
 ## Related Posts
 
-- [10 Ways to Tell if Youre a Shopaholic ...](https://money.allwomenstalk.com/ways-to-tell-if-youre-a-shopaholic/)
-- [4 Signs Its Time for an Aging Parent to Visit an O...](https://allwomenstalk.com/signs-it-is-time-to-visit-an-orthopedic-back-doctor/)
-- [15 Warning Signs You Might Be Addicted to Social M...](https://health.allwomenstalk.com/signs-social-media-addiction/)
-- [5 Signs You Have Ghosts ...](https://twilight.allwomenstalk.com/5-signs-you-have-ghosts/)
-- [Signs You May Have an Addiction ...](https://health.allwomenstalk.com/signs-you-may-have-an-addiction/)
-- [7 Signs You May Have ADHD - Common Symptoms of ADH...](https://allwomenstalk.com/adhd-signs-symptoms-adult-women/)
-- [8 Things Your Headaches Might Be Trying to Tell Yo...](https://allwomenstalk.com/things-your-headache-telling-you/)
-- [10 Signs You Havent Achieved Separation from Your ...](https://lifestyle.allwomenstalk.com/signs-lack-parental-separation/)
-- [7 Signs You Are Ready for a Baby ...](https://lifestyle.allwomenstalk.com/signs-you-are-ready-for-a-baby-2/)
 - [20 Surprising Signs of Anxiety to Check Yourself f...](https://health.allwomenstalk.com/surprising-signs-of-anxiety/)
-- [8 Highly Essential Health Checks You Shouldnt Negl...](https://health.allwomenstalk.com/8-highly-essential-health-checks-you-shouldnt-neglect/)
+- [7 Signs You Are Ready for a Baby ...](https://lifestyle.allwomenstalk.com/signs-you-are-ready-for-a-baby-2/)
+- [7 Signs You May Have ADHD - Common Symptoms of ADH...](https://allwomenstalk.com/adhd-signs-symptoms-adult-women/)
+- [5 Signs You Have Ghosts ...](https://twilight.allwomenstalk.com/5-signs-you-have-ghosts/)
+- [8 Things Your Headaches Might Be Trying to Tell Yo...](https://allwomenstalk.com/things-your-headache-telling-you/)
+- [Signs You May Have an Addiction ...](https://health.allwomenstalk.com/signs-you-may-have-an-addiction/)
+- [15 Warning Signs You Might Be Addicted to Social M...](https://health.allwomenstalk.com/signs-social-media-addiction/)
+- [4 Signs It's Time for an Aging Parent to Visit an ...](https://allwomenstalk.com/signs-it-is-time-to-visit-an-orthopedic-back-doctor/)
+- [10 Ways to Tell if You're a Shopaholic ...](https://money.allwomenstalk.com/ways-to-tell-if-youre-a-shopaholic/)
+- [10 Signs You Haven't Achieved Separation from Your...](https://lifestyle.allwomenstalk.com/signs-lack-parental-separation/)
+- [8 Highly Essential Health Checks You Shouldn't Neg...](https://health.allwomenstalk.com/8-highly-essential-health-checks-you-shouldnt-neglect/)
 - [10 Things to Know to Stay Healthy ...](https://health.allwomenstalk.com/things-to-know-to-stay-healthy/)
 
 ## Site Information

@@ -3,7 +3,7 @@ title: "7 Fun 5k Races to Run ..."
 description: "The Color Run; Columbia Muddy Buddy; The Ugly Sweater Run; The Warrior Dash; Run for Your Lives; More ..."
 url: "https://health.allwomenstalk.com/fun-5k-races-to-run/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Fun 5k Races to Run ...
@@ -44,15 +44,15 @@ Top Image Source: _cbsnews.com_
 
 ## Related Posts
 
-- [budget friendly kids activities](https://parenting.allwomenstalk.com/inexpensive-kid-friendly-activities/)
-- [obvious things](https://travel.allwomenstalk.com/not-so-obvious-things-to-do-in-amsterdam/)
-- [10 Things That Should Be on Your Spring Bucket Lis...](https://lifestyle.allwomenstalk.com/things-that-should-be-on-your-spring-bucket-list/)
-- [7 St. Patricks Day Activities for Kids ...](https://parenting.allwomenstalk.com/st-patricks-day-activities-for-kids/)
-- [7 Things to do in Boston for Free ...](https://travel.allwomenstalk.com/free-things-to-do-in-boston-for-free/)
 - [7 Fun Ideas for This Spring ...](https://lifestyle.allwomenstalk.com/fun-ideas-for-this-spring/)
+- [7 St. Patrick's Day Activities for Kids ...](https://parenting.allwomenstalk.com/st-patricks-day-activities-for-kids/)
 - [cheap fun things to do with friends](https://lifestyle.allwomenstalk.com/cheap-and-fun-things-to-do-with-friends/)
-- [7 Easy and Fun Outdoor Activities for Kids ...](https://parenting.allwomenstalk.com/easy-and-fun-outdoor-activities-for-kids/)
 - [9 Things to do in Branson ...](https://travel.allwomenstalk.com/things-to-do-in-branson/)
+- [7 Easy and Fun Outdoor Activities for Kids ...](https://parenting.allwomenstalk.com/easy-and-fun-outdoor-activities-for-kids/)
+- [10 Things That Should Be on Your Spring Bucket Lis...](https://lifestyle.allwomenstalk.com/things-that-should-be-on-your-spring-bucket-list/)
+- [obvious things](https://travel.allwomenstalk.com/not-so-obvious-things-to-do-in-amsterdam/)
+- [budget friendly kids activities](https://parenting.allwomenstalk.com/inexpensive-kid-friendly-activities/)
+- [7 Things to do in Boston for Free ...](https://travel.allwomenstalk.com/free-things-to-do-in-boston-for-free/)
 - [reykjavik new years eve](https://travel.allwomenstalk.com/ways-to-spend-new-years-eve-around-the-world/)
 - [6 Sports to Try This Spring ...](https://allwomenstalk.com/6-sports-to-try-this-spring/)
 - [5 Fun Things to do...](https://allwomenstalk.com/5-fun-things-to-do/)

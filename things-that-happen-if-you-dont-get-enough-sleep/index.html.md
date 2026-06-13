@@ -1,12 +1,12 @@
 ---
-title: "7 Things That Happen if You Dont Get Enough Sleep ..."
+title: "7 Things That Happen if You Don't Get Enough Sleep ..."
 description: "Lowered Immunity; Physical Symptoms; Difficulty Remembering Things; Increase on the Scales; Drowsiness behind the Wheel; More ..."
 url: "https://health.allwomenstalk.com/things-that-happen-if-you-dont-get-enough-sleep/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Things That Happen if You Dont Get Enough Sleep ...
+# 7 Things That Happen if You Don't Get Enough Sleep ...
 
 I work an overnight shift once a month, and as a result have been researching things that happen if you don’t get enough sleep, on a frequent basis. I understand that it’s not good to have a sleep deficit during the week and then sleep 12 hours at the weekend to compensate either, so there has to be a balance. It's also all about quality too instead of quantity; everyone's experienced those awful nights tossing and turning, haven't they? Sleep is definitely a function of the body that helps us feel better and scientists are still trying to determine precisely why we need to sleep, but the general consensus seems to be related to the fact that our brain cells need to rest and restore themselves so that our bodies can function at their prime. Anyway, here are some horrible things that happen if you don’t get enough sleep.
 
@@ -44,16 +44,16 @@ Although our western societies are getting used to being sleep deprived, our bod
 
 ## Related Posts
 
-- [Are These the Reasons You Arent Getting Enough Sle...](https://health.allwomenstalk.com/reasons-youre-not-sleeping-enough/)
-- [7 Tips for Feeling More Refreshed in the Morning ....](https://lifestyle.allwomenstalk.com/tips-for-feeling-more-refreshed-in-the-morning/)
 - [7 Tips for Choosing the Perfect Bed ...](https://health.allwomenstalk.com/tips-for-choosing-the-perfect-bed/)
-- [7 Tips for Feeling More Awake if Youre Not a Morni...](https://health.allwomenstalk.com/tips-for-feeling-more-awake-if-youre-not-a-morning-person/)
-- [night out for a better morning after](https://health.allwomenstalk.com/things-to-do-after-a-big-night-out/)
-- [pillows without chemicals](https://health.allwomenstalk.com/types-of-non-toxic-pillows-that-will-make-you-think-you-are-sleeping-on-a-cloud/)
-- [7 Ways to Wake up without Caffeine ...](https://health.allwomenstalk.com/ways-to-wake-up-without-caffeine/)
-- [9 Things to Avoid when You Cant Sleep ...](https://health.allwomenstalk.com/things-to-avoid-when-you-cant-sleep/)
-- [7 Ways That Lack of Sleep Can Mess with Your Looks...](https://beauty.allwomenstalk.com/ways-that-lack-of-sleep-can-mess-with-your-looks/)
 - [7 Excellent Yoga Poses to Help You Sleep Better .....](https://fitness.allwomenstalk.com/excellent-yoga-poses-to-help-you-sleep-better/)
+- [night out for a better morning after](https://health.allwomenstalk.com/things-to-do-after-a-big-night-out/)
+- [Are These the Reasons You Aren't Getting Enough Sl...](https://health.allwomenstalk.com/reasons-youre-not-sleeping-enough/)
+- [pillows without chemicals](https://health.allwomenstalk.com/types-of-non-toxic-pillows-that-will-make-you-think-you-are-sleeping-on-a-cloud/)
+- [7 Tips for Feeling More Awake if You're Not a Morn...](https://health.allwomenstalk.com/tips-for-feeling-more-awake-if-youre-not-a-morning-person/)
+- [7 Ways That Lack of Sleep Can Mess with Your Looks...](https://beauty.allwomenstalk.com/ways-that-lack-of-sleep-can-mess-with-your-looks/)
+- [7 Tips for Feeling More Refreshed in the Morning ....](https://lifestyle.allwomenstalk.com/tips-for-feeling-more-refreshed-in-the-morning/)
+- [7 Ways to Wake up without Caffeine ...](https://health.allwomenstalk.com/ways-to-wake-up-without-caffeine/)
+- [9 Things to Avoid when You Can't Sleep ...](https://health.allwomenstalk.com/things-to-avoid-when-you-cant-sleep/)
 - [7 Signs You Have Sleeping Problems ...](https://allwomenstalk.com/7-signs-you-have-sleeping-problems/)
 - [8 Signs of Sleep Deprivation ...](https://allwomenstalk.com/8-signs-of-sleep-deprivation/)
 

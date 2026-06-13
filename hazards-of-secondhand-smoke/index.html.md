@@ -3,7 +3,7 @@ title: "7 Hazards of Secondhand Smoke ..."
 description: "There is No Risk-Free Exposure Level; Increased Risk of Heart Attacks; Lung Cancer; Disease and Premature Death; Risk of SIDS; More ..."
 url: "https://health.allwomenstalk.com/hazards-of-secondhand-smoke/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Hazards of Secondhand Smoke ...
@@ -42,16 +42,16 @@ According to the American Lung Association, secondhand smoke causes around 3,400
 
 ## Related Posts
 
-- [10 Facts You Should Know about Your Heart ...](https://health.allwomenstalk.com/facts-about-your-heart/)
-- [7 Lies You Shouldnt Tell Your Doctor ...](https://health.allwomenstalk.com/lies-you-shouldnt-tell-your-doctor/)
-- [10 Things You Should Know about Your Muscles ...](https://fitene.com/things-you-should-know-about-your-muscles/)
-- [8 Extremely Useful Tips for Living with PCOS ...](https://health.allwomenstalk.com/tips-for-living-with-pcos/)
-- [8 Modern Health Issues and How to Solve Them ...](https://health.allwomenstalk.com/modern-health-issues-and-how-to-solve-them/)
+- [7 Lies You Shouldn't Tell Your Doctor ...](https://health.allwomenstalk.com/lies-you-shouldnt-tell-your-doctor/)
 - [7 Things You Need to Know about Perimenopause ...](https://health.allwomenstalk.com/things-you-need-to-know-about-perimenopause/)
 - [7 Common Misconceptions about Female Contraception...](https://health.allwomenstalk.com/common-misconceptions-about-female-contraception/)
-- [7 Things You Absolutely Need to Know about GMOs .....](https://food.allwomenstalk.com/things-you-need-to-know-about-gmos/)
 - [9 Complementary Therapies Introduced and Explained...](https://health.allwomenstalk.com/complementary-therapies-introduced-and-explained/)
+- [8 Extremely Useful Tips for Living with PCOS ...](https://health.allwomenstalk.com/tips-for-living-with-pcos/)
+- [8 Modern Health Issues and How to Solve Them ...](https://health.allwomenstalk.com/modern-health-issues-and-how-to-solve-them/)
 - [7 Common Myths about Older Adults You Should Know ...](https://lifestyle.allwomenstalk.com/common-myths-about-older-adults-you-should-know/)
+- [7 Things You Absolutely Need to Know about GMOs .....](https://food.allwomenstalk.com/things-you-need-to-know-about-gmos/)
+- [10 Facts You Should Know about Your Heart ...](https://health.allwomenstalk.com/facts-about-your-heart/)
+- [10 Things You Should Know about Your Muscles ...](https://fitene.com/things-you-should-know-about-your-muscles/)
 - [7 Consequences of Fetal Alcohol Syndrome ...](https://parenting.allwomenstalk.com/7-consequences-of-fetal-alcohol-syndrome/)
 - [7 Worst Jobs for the Health of Your Lungs ...](https://health.allwomenstalk.com/7-worst-jobs-for-the-health-of-your-lungs/)
 

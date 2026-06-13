@@ -1,12 +1,12 @@
 ---
-title: "8 Rare Diseases Youve Probably Not Heard of ..."
+title: "8 Rare Diseases You've Probably Not Heard of ..."
 description: "Stevens-Johnson Syndrome; Pompe Disease; Laryngeal Papillomatosis; Batten Disease; Eumycetoma; More ..."
 url: "https://health.allwomenstalk.com/8-rare-diseases-youve-probably-not-heard-of/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 8 Rare Diseases Youve Probably Not Heard of ...
+# 8 Rare Diseases You've Probably Not Heard of ...
 
 I’ve read up on a lot of diseases and disorders, but the following list contains descriptions of disease that I didn’t know about. These are 8 rare diseases you’ve probably no t heard of either. Take a look at the list and see if you recognize any of them.
 
@@ -48,16 +48,16 @@ Top Photo Credit: [InWaves](https://www.flickr.com/photos/inwaves/3928004716/)
 
 ## Related Posts
 
-- [sunburn bags under eyes](https://allwomenstalk.com/4-things-that-cause-your-under-eye-dark-circles-and-puffiness/)
-- [detox facts](https://allwomenstalk.com/15-important-facts-about-detox-you-must-know/)
-- [Eye Care What You Should Know ...](https://allwomenstalk.com/eye-care-what-you-should-know-2/)
-- [pros and cons to liposuction](https://allwomenstalk.com/10-liposuction-pros-and-cons/)
-- [Common Foot Problems ...](https://allwomenstalk.com/common-foot-problems/)
-- [disadvantages of pads](https://allwomenstalk.com/10-pros-and-cons-of-using-pads-for-your-period/)
-- [pros and cons of the pill](https://allwomenstalk.com/18-pros-and-cons-of-birth-control-pills/)
-- [11 Things You Should Know about Farmers Markets .....](https://lifestyle.allwomenstalk.com/things-you-should-know-about-farmers-markets/)
+- [11 Things You Should Know about Farmer's Markets ....](https://lifestyle.allwomenstalk.com/things-you-should-know-about-farmers-markets/)
 - [5 Mysterious Medical Issues Men Face ...](https://lifestyle.allwomenstalk.com/mysterious-medical-issues-men-face/)
+- [Common Foot Problems ...](https://allwomenstalk.com/common-foot-problems/)
+- [sunburn bags under eyes](https://allwomenstalk.com/4-things-that-cause-your-under-eye-dark-circles-and-puffiness/)
+- [disadvantages of pads](https://allwomenstalk.com/10-pros-and-cons-of-using-pads-for-your-period/)
+- [pros and cons to liposuction](https://allwomenstalk.com/10-liposuction-pros-and-cons/)
+- [Eye Care, What You Should Know ...](https://allwomenstalk.com/eye-care-what-you-should-know-2/)
 - [disadvantage of tampons](https://allwomenstalk.com/10-pros-and-cons-of-using-tampons-for-your-period/)
+- [pros and cons of the pill](https://allwomenstalk.com/18-pros-and-cons-of-birth-control-pills/)
+- [detox facts](https://allwomenstalk.com/15-important-facts-about-detox-you-must-know/)
 - [8 Horrifying Problems Faced by Children across the...](https://parenting.allwomenstalk.com/8-horrifying-problems-faced-by-children-across-the-world/)
 - [8 Incurable Diseases ...](https://health.allwomenstalk.com/incurable-diseases/)
 

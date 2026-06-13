@@ -1,12 +1,12 @@
 ---
-title: "Never Eat or Drink These Things when Youre on Medications ..."
+title: "Never Eat or Drink These Things when You're on Medications ..."
 description: "Pain Pills and Booze Don’t Mix; Limit Dairy Foods if You Take Antacids; Grapefruit Can Be a Problem with Several Meds; Don’t Mix Bananas with ACE Inhibitors; Tetracycline Antibiotics and Milk Are a Bad Combo; More ..."
 url: "https://health.allwomenstalk.com/never-eat-or-drink-these-things-when-youre-on-medications/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Never Eat or Drink These Things when Youre on Medications ...
+# Never Eat or Drink These Things when You're on Medications ...
 
 When you take prescription meds, you have to be careful about what you’re eating and drinking, as well as what supplements and other medications you’re taking. That’s because certain meds interact in a negative way, which can lead to health consequences and even death. Anytime your doctor prescribes a new medication, make sure you ask him about what you can and can’t take with the med. It’s also a good idea to keep the information that comes with the pills on hand in case you need to refer to them. In general, these are things you should avoid.
 
@@ -58,16 +58,16 @@ Are you on any of these meds? You aren’t eating these foods with them are you?
 
 - [NEVER do These Things when Things Are Heating up i...](https://love.allwomenstalk.com/never-do-these-things-when-things-are-heating-up-in-the-bedroom/)
 - [17 Silly Things Never to do Just Because of a Boy ...](https://love.allwomenstalk.com/silly-things-you-should-never-do-because-of-a-boy/)
-- [Be Safe in a World of Crazy : Never  Post These on...](https://apps.allwomenstalk.com/personal-info-to-never-post-on-social-media-for-girls-who-want-to-be-safe/)
-- [People Suck - and These Are the Types You Need to ...](https://lifestyle.allwomenstalk.com/types-of-people-you-dont-need-to-be-nice-to-ever/)
-- [what is the business of fred and sarahs conversati...](https://love.allwomenstalk.com/things-you-should-never-ever-do-when-flirting/)
+- [Rules of Denim You Shouldn't Follow ...](https://fashion.allwomenstalk.com/rules-of-denim-you-shouldnt-follow/)
+- [Ridiculous Relationship Advice That You Should Alw...](https://love.allwomenstalk.com/ridiculous-relationship-advice-that-you-should-always-ignore/)
+- [Be Safe in a World of Crazy : Never 🤚 Post These ...](https://apps.allwomenstalk.com/personal-info-to-never-post-on-social-media-for-girls-who-want-to-be-safe/)
+- [what is the business of fred and sarah's conversat...](https://love.allwomenstalk.com/things-you-should-never-ever-do-when-flirting/)
 - [gym pics we cant unsee](https://inspiration.allwomenstalk.com/this-is-why-bodyshaming-is-never-cool-even-in-private/)
 - [9 People You Might Want to Block on Snapchat ...](https://gadgets.allwomenstalk.com/people-you-might-want-to-block-on-snapchat/)
-- [Rules of Denim You Shouldnt Follow ...](https://fashion.allwomenstalk.com/rules-of-denim-you-shouldnt-follow/)
-- [Ridiculous Relationship Advice That You Should Alw...](https://love.allwomenstalk.com/ridiculous-relationship-advice-that-you-should-always-ignore/)
 - [Awkward Questions to Avoid on a First Date if You ...](https://love.allwomenstalk.com/awkward-questions-to-avoid-on-a-first-date-if-you-want-a-second-date/)
+- [People Suck - and These Are the Types You Need to ...](https://lifestyle.allwomenstalk.com/types-of-people-you-dont-need-to-be-nice-to-ever/)
 - [7 Reasons to Put That Soda down and Choose a Healt...](https://health.allwomenstalk.com/reasons-to-put-that-soda-down-and-choose-a-healthy-drink-instead/)
-- [Beneficial Reasons to Avoid Fast Food like Its the...](https://food.allwomenstalk.com/reasons-to-avoid-fast-food-like-its-the-plague/)
+- [Beneficial Reasons to Avoid Fast Food like It's th...](https://food.allwomenstalk.com/reasons-to-avoid-fast-food-like-its-the-plague/)
 
 ## Site Information
 

@@ -1,12 +1,12 @@
 ---
-title: "7 Totally Strange Addictions That Youve Got to Check out ..."
+title: "7 Totally Strange Addictions That You've Got to Check out ..."
 description: "Ice Chewing; Hair Pulling; Craving and Eating Dirt; Addiction to Tanning, I.e. Tanorexia; IPhone/Blackberry Obsession; More ..."
 url: "https://health.allwomenstalk.com/totally-strange-addictions-that-youve-got-to-check-out/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Totally Strange Addictions That Youve Got to Check out ...
+# 7 Totally Strange Addictions That You've Got to Check out ...
 
 Looking into the strange addictions that many suffer from is interesting and often times shocking. Addictions that manifest in an odd way are usually the result of an underlying cause, such as a nutrient deficiency or psychological disorder. There is no need to be scared or feel weird if you suffer from a strange addiction because help is more than available for those who seek it out! Remember, if you see someone who may exhibit strange addictive behaviors, make sure you don't ridicule or pass judgement on them, but express your concern for their need to get help and offer your support in their path to recovery. With that being said, here are 7 totally strange addictions that you've got to check out!
 
@@ -44,16 +44,16 @@ These are all addictions that may seem slightly humorous or shocking, but people
 
 ## Related Posts
 
-- [ensure anorexia](https://health.allwomenstalk.com/signs-you-may-need-to-take-ensure-supplements/)
-- [what gives away your age](https://beauty.allwomenstalk.com/body-parts-that-can-give-away-your-age/)
-- [food after fainting](https://health.allwomenstalk.com/things-to-do-after-you-faint/)
-- [what do feet tell you about your health](https://health.allwomenstalk.com/things-your-feet-can-tell-you-about-your-health/)
 - [detox symptoms from juicing](https://health.allwomenstalk.com/effects-of-cleansing-to-be-aware-of-before-you-start/)
 - [fluoride negative effects](https://health.allwomenstalk.com/negative-effects-of-fluoride-on-your-health/)
-- [things you sign](https://lifestyle.allwomenstalk.com/things-you-should-sign-up-for/)
+- [what do feet tell you about your health](https://health.allwomenstalk.com/things-your-feet-can-tell-you-about-your-health/)
+- [what gives away your age](https://beauty.allwomenstalk.com/body-parts-that-can-give-away-your-age/)
 - [controversial supplements](https://health.allwomenstalk.com/controversial-health-supplements-and-what-you-need-to-know/)
-- [what to know before getting a tattoo](https://lifestyle.allwomenstalk.com/things-to-consider-before-getting-a-tattoo/)
+- [ensure anorexia](https://health.allwomenstalk.com/signs-you-may-need-to-take-ensure-supplements/)
 - [minerals your body needs daily](https://health.allwomenstalk.com/minerals-your-body-needs-every-day/)
+- [food after fainting](https://health.allwomenstalk.com/things-to-do-after-you-faint/)
+- [things you sign](https://lifestyle.allwomenstalk.com/things-you-should-sign-up-for/)
+- [what to know before getting a tattoo](https://lifestyle.allwomenstalk.com/things-to-consider-before-getting-a-tattoo/)
 - [7 Strangest Myths from around the World ...](https://allwomenstalk.com/7-strangest-myths-from-around-the-world/)
 - [7 Strangest Addictions ...](https://allwomenstalk.com/7-strangest-addictions/)
 

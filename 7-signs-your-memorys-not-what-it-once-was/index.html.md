@@ -1,12 +1,12 @@
 ---
-title: "7 Signs Your Memorys Not What It Once Was ..."
+title: "7 Signs Your Memory's Not What It Once Was ..."
 description: "What Did I Want?; Forgetting Who Someone is; Forgetting Birthdays; Lists; Bulk Buys; More ..."
 url: "https://health.allwomenstalk.com/7-signs-your-memorys-not-what-it-once-was/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Signs Your Memorys Not What It Once Was ...
+# 7 Signs Your Memory's Not What It Once Was ...
 
 I have to warn our younger readers of something that lies in their future. One day, a worrying change will occur. This involves the memory. Yes, it’s probably no surprise to you that the memory gets worse as you get older. What will prove a shock though is that you don’t need to be that old. As early as your thirties you find that you’re forgetting things. Here are some of the signs that will show that your memory is not what it once was …
 
@@ -44,16 +44,16 @@ Top Photo Credit: [MarshaRedmon](https://www.flickr.com/photos/60757175@N02/5537
 
 ## Related Posts
 
-- [signs shes a ho](https://love.allwomenstalk.com/signs-you-might-be-a-slut/)
-- [7 Easy to Remember Signs You Might Be Ovulating .....](https://health.allwomenstalk.com/easy-to-remember-signs-you-might-be-ovulating/)
 - [7 Signs Contacts Might Not Be for You ...](https://health.allwomenstalk.com/7-signs-contacts-might-not-be-for-you/)
-- [Knowing when to Bring in Your Dont Mess with Me Si...](https://allwomenstalk.com/knowing-when-to-bring-in-your-dont-mess-with-me-sign/)
-- [being cheap](https://lifestyle.allwomenstalk.com/7-signs-that-you-are-a-cheapskate/)
-- [7 Signs That You Need to Find a New Salon ...](https://hair.allwomenstalk.com/signs-that-you-need-to-find-a-new-salon/)
-- [7 signs of adhd](https://health.allwomenstalk.com/7-signs-of-adhd/)
-- [thought we friends jeans](https://fashion.allwomenstalk.com/signs-its-time-to-breakup-with-your-jeans/)
-- [made redundant](https://lifestyle.allwomenstalk.com/signs-you-will-be-made-redundant/)
 - [signs you look like a model](https://love.allwomenstalk.com/signs-you-might-be-bad-at-sex/)
+- [Knowing when to Bring in Your "Don't Mess with Me"...](https://allwomenstalk.com/knowing-when-to-bring-in-your-dont-mess-with-me-sign/)
+- [7 Signs That You Need to Find a New Salon ...](https://hair.allwomenstalk.com/signs-that-you-need-to-find-a-new-salon/)
+- [made redundant](https://lifestyle.allwomenstalk.com/signs-you-will-be-made-redundant/)
+- [7 Easy to Remember Signs You Might Be Ovulating .....](https://health.allwomenstalk.com/easy-to-remember-signs-you-might-be-ovulating/)
+- [signs shes a ho](https://love.allwomenstalk.com/signs-you-might-be-a-slut/)
+- [being cheap](https://lifestyle.allwomenstalk.com/7-signs-that-you-are-a-cheapskate/)
+- [thought we friends jeans](https://fashion.allwomenstalk.com/signs-its-time-to-breakup-with-your-jeans/)
+- [7 signs of adhd](https://health.allwomenstalk.com/7-signs-of-adhd/)
 - [7 Things You Should Not Take for Granted ...](https://health.allwomenstalk.com/things-you-should-not-take-for-granted/)
 - [7 Signs You Have an Addiction Problem ...](https://allwomenstalk.com/7-signs-you-have-an-addiction-problem/)
 

@@ -1,12 +1,12 @@
 ---
-title: "7 Vital Things to Remember when Someones Having a Seizure ..."
+title: "7 Vital Things to Remember when Someone's Having a Seizure ..."
 description: "Don't Restrain; Mouth; Stop a Fall; Safe Surface; Dignity; More ..."
 url: "https://health.allwomenstalk.com/vital-things-to-remember-when-someones-having-a-seizure/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Vital Things to Remember when Someones Having a Seizure ...
+# 7 Vital Things to Remember when Someone's Having a Seizure ...
 
 Seeing someone have a seizure can be super scary and any one of us might be in a situation where they have to act to help someone who is having a seizure. If you're trained in first aid or you have grown up with someone who suffers from regular seizures then you might already have some knowledge of what to do in this situation. If you don't, then here are some vital things to remember if you see someone having a seizure.
 
@@ -45,15 +45,15 @@ Sources: [nhs.uk](https://www.nhs.uk/conditions/what-to-do-if-someone-has-a-seiz
 ## Related Posts
 
 - [Surprising Things That Affect Your Health You Need...](https://health.allwomenstalk.com/surprising-things-that-affect-your-health-you-need-to-toss-away-today/)
-- [Stop Think Things to Consider before You Remove Yo...](https://beauty.allwomenstalk.com/stop-think-things-to-consider-before-you-remove-your-pubes/)
-- [Dont Forget to Floss  Heres Why Every Woman Should...](https://beauty.allwomenstalk.com/dont-forget-to-floss-heres-why-every-woman-should-do-it/)
-- [What the Average Woman Doesnt Know about Her Breas...](https://health.allwomenstalk.com/what-the-average-woman-doesnt-know-about-her-breasts-but-should/)
-- [how to fly with your body](https://travel.allwomenstalk.com/this-is-what-happens-to-your-body-when-you-fly/)
 - [7 Unusual Causes of Anxiety That Could Be Plaguing...](https://health.allwomenstalk.com/unusual-causes-of-anxiety-that-could-be-plaguing-you/)
-- [Dehydrated This is What Might Be Causing It ...](https://health.allwomenstalk.com/dehydrated-this-is-what-might-be-causing-it/)
-- [Who Says Technology is Bad How Your Cell Can Help ...](https://health.allwomenstalk.com/who-says-technology-is-bad-how-your-cell-can-help-you-stay-healthy/)
-- [Heres All You Need to Know about Taking Painkiller...](https://health.allwomenstalk.com/heres-all-you-need-to-know-about-taking-painkillers-on-your-period/)
-- [Careful of What You Put in Your Mouth: Dont Let Th...](https://beauty.allwomenstalk.com/careful-of-what-you-put-in-your-mouth-dont-let-these-things-ruin-your-smile/)
+- [Careful of What You Put in Your Mouth: Don't Let T...](https://beauty.allwomenstalk.com/careful-of-what-you-put-in-your-mouth-dont-let-these-things-ruin-your-smile/)
+- [Don't Forget to Floss – Here's Why Every Woman Sho...](https://beauty.allwomenstalk.com/dont-forget-to-floss-heres-why-every-woman-should-do-it/)
+- [Who Says Technology is Bad? How Your Cell Can Help...](https://health.allwomenstalk.com/who-says-technology-is-bad-how-your-cell-can-help-you-stay-healthy/)
+- [Here's All You Need to Know about Taking Painkille...](https://health.allwomenstalk.com/heres-all-you-need-to-know-about-taking-painkillers-on-your-period/)
+- [What the Average Woman Doesn't Know about Her Brea...](https://health.allwomenstalk.com/what-the-average-woman-doesnt-know-about-her-breasts-but-should/)
+- [how to fly with your body](https://travel.allwomenstalk.com/this-is-what-happens-to-your-body-when-you-fly/)
+- [Dehydrated? This is What Might Be Causing It ...](https://health.allwomenstalk.com/dehydrated-this-is-what-might-be-causing-it/)
+- [Stop! Think! Things to Consider before You Remove ...](https://beauty.allwomenstalk.com/stop-think-things-to-consider-before-you-remove-your-pubes/)
 - [7 Things to Remember when Going to Your OB Doc ...](https://parenting.allwomenstalk.com/7-things-to-remember-when-going-to-your-ob-doc/)
 - [8 Tips on Dealing with an Epileptic Child ...](https://health.allwomenstalk.com/tips-on-dealing-with-an-epileptic-child/)
 

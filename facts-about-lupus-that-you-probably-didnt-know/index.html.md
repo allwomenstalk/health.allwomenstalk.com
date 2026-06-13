@@ -1,12 +1,12 @@
 ---
-title: "7 Facts about Lupus That You Probably Didnt Know ..."
+title: "7 Facts about Lupus That You Probably Didn't Know ..."
 description: "Many Symptoms; Takes a Long Time to Diagnose; Many Body Systems Are Affected; The Medications Are Powerful; Diet is a Factor; More ..."
 url: "https://health.allwomenstalk.com/facts-about-lupus-that-you-probably-didnt-know/"
 category: "health"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Facts about Lupus That You Probably Didnt Know ...
+# 7 Facts about Lupus That You Probably Didn't Know ...
 
 Although it doesn’t receive much attention in the media, lupus is a serious disease and there are some facts about lupus that everyone should know. Lupus is a chronic autoimmune disease that can damage any part of the body. When a person has lupus, their immune system can’t tell the difference between foreign invaders and the body’s own cells. As a result, the immune system destroys healthy tissue. Like any autoimmune disease, lupus can be difficult to deal with. Yet, knowing the facts about lupus can help people understand this mystery disease much better.
 
@@ -44,18 +44,18 @@ There are so many important facts to know about lupus. These facts cover some of
 
 ## Related Posts
 
-- [things that leave you speechless](https://lifestyle.allwomenstalk.com/amazing-random-facts-that-will-leave-you-speechless/)
-- [emma watson fun facts](https://movies.allwomenstalk.com/fun-facts-about-the-harry-potter-cast/)
-- [11 fun facts about tulips](https://travel.allwomenstalk.com/facts-about-disney-parks-that-you-probably-didnt-know/)
-- [brotp mean](https://movies.allwomenstalk.com/fan-terms-that-you-may-not-know/)
-- [fleagram season 4](https://movies.allwomenstalk.com/surprising-facts-about-netflix-that-you-didnt-know/)
-- [introverts facts](https://lifestyle.allwomenstalk.com/extremely-important-facts-about-introverts/)
-- [grapefruit facts](https://food.allwomenstalk.com/facts-about-grapefruits-that-you-should-know/)
-- [why do irish dancers dance with their arms straigh...](https://fitness.allwomenstalk.com/fun-facts-about-irish-dancing/)
 - [antioxidant facts](https://health.allwomenstalk.com/surprising-but-interesting-facts-about-antioxidants/)
+- [grapefruit facts](https://food.allwomenstalk.com/facts-about-grapefruits-that-you-should-know/)
+- [brotp mean](https://movies.allwomenstalk.com/fan-terms-that-you-may-not-know/)
+- [introverts facts](https://lifestyle.allwomenstalk.com/extremely-important-facts-about-introverts/)
+- [fleagram season 4](https://movies.allwomenstalk.com/surprising-facts-about-netflix-that-you-didnt-know/)
+- [11 fun facts about tulips](https://travel.allwomenstalk.com/facts-about-disney-parks-that-you-probably-didnt-know/)
 - [simba getting thrown off cliff gif](https://movies.allwomenstalk.com/fun-facts-about-disneys-the-lion-king-you-didnt-know/)
+- [why do irish dancers dance with their arms straigh...](https://fitness.allwomenstalk.com/fun-facts-about-irish-dancing/)
+- [emma watson fun facts](https://movies.allwomenstalk.com/fun-facts-about-the-harry-potter-cast/)
+- [things that leave you speechless](https://lifestyle.allwomenstalk.com/amazing-random-facts-that-will-leave-you-speechless/)
 - [5 Facts on Salvia You Did Not Know ...](https://gardening.allwomenstalk.com/5-facts-on-salvia/)
-- [8 Rare Diseases Youve Probably Not Heard of ...](https://health.allwomenstalk.com/8-rare-diseases-youve-probably-not-heard-of/)
+- [8 Rare Diseases You've Probably Not Heard of ...](https://health.allwomenstalk.com/8-rare-diseases-youve-probably-not-heard-of/)
 
 ## Site Information
 
