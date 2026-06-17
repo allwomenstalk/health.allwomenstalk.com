@@ -3,7 +3,7 @@ title: "7 Common Myths about Sexually Transmitted Diseases and Infections ..."
 description: "\"Birth Control Pills Prevent STDs\"; \"a Person Can't Get an STD by Having Sex Only Once\"; \"Anyone Who Has an STD Will Show Signs of It\"; \"a Person Cannot Get More than One STD at a Time\"; \"if a Person Gets an STD Once, He or She Cannot Get It Again\"; More ..."
 url: "https://health.allwomenstalk.com/common-myths-about-sexually-transmitted-diseases-and-infections/"
 category: "health"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Common Myths about Sexually Transmitted Diseases and Infections ...
@@ -44,16 +44,16 @@ Most sexually transmitted diseases and infections are preventable through method
 
 ## Related Posts
 
-- [multivitamin without titanium dioxide](https://health.allwomenstalk.com/toxic-ingredients-to-avoid-when-buying-supplements/)
 - [bad things for your heart](https://health.allwomenstalk.com/bad-habits-that-could-damage-your-heart/)
-- [tired all the time blood test](https://health.allwomenstalk.com/blood-tests-for-fatigue-to-have-your-doctor-do-if-youre-always-tired/)
-- [does hot yoga tone your body](https://lifestyle.allwomenstalk.com/pros-and-cons-of-hot-yoga-that-you-should-know/)
-- [how to educate yourself on politics](https://lifestyle.allwomenstalk.com/important-political-issues-you-need-to-educate-yourself-on/)
 - [the skin book tattoo](https://lifestyle.allwomenstalk.com/things-you-didnt-know-about-getting-a-tattoo/)
-- [things every woman needs to know about her heart](https://health.allwomenstalk.com/things-every-woman-needs-to-know-about-heart-disease/)
+- [how to educate yourself on politics](https://lifestyle.allwomenstalk.com/important-political-issues-you-need-to-educate-yourself-on/)
 - [life saving items](https://lifestyle.allwomenstalk.com/life-saving-items-you-must-keep-in-your-emergency-kit/)
-- [men and anorexia](https://health.allwomenstalk.com/facts-about-male-anorexia-that-you-probably-dont-know-but-should/)
+- [tired all the time blood test](https://health.allwomenstalk.com/blood-tests-for-fatigue-to-have-your-doctor-do-if-youre-always-tired/)
 - [what to look for in a juicer](https://health.allwomenstalk.com/essential-things-to-consider-when-buying-a-juicer/)
+- [multivitamin without titanium dioxide](https://health.allwomenstalk.com/toxic-ingredients-to-avoid-when-buying-supplements/)
+- [does hot yoga tone your body](https://lifestyle.allwomenstalk.com/pros-and-cons-of-hot-yoga-that-you-should-know/)
+- [men and anorexia](https://health.allwomenstalk.com/facts-about-male-anorexia-that-you-probably-dont-know-but-should/)
+- [things every woman needs to know about her heart](https://health.allwomenstalk.com/things-every-woman-needs-to-know-about-heart-disease/)
 - [7 Myths about Sex Revealed ...](https://health.allwomenstalk.com/7-myths-about-sex-revealed/)
 - [8 Myths about Sexual Health Busted ...](https://health.allwomenstalk.com/8-myths-about-sexual-health-busted/)
 

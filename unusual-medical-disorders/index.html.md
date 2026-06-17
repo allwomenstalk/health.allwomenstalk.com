@@ -3,7 +3,7 @@ title: "7 Unusual Medical Disorders ..."
 description: "Shut Eye for Days; Persistent Sexual Arousal Syndrome; Resistance to Cold; Allergy to Cold; Long Term Insomnia; More ..."
 url: "https://health.allwomenstalk.com/unusual-medical-disorders/"
 category: "health"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Unusual Medical Disorders ...
@@ -44,16 +44,16 @@ Top image source: _cbsnews.com_
 
 ## Related Posts
 
-- [7 Things You Have to do to Maintain Good Health of...](https://health.allwomenstalk.com/7-things-you-have-to-do-to-maintain-good-health-of-your-reproductive-organs/)
-- [7 Dangers of a Nuclear Leak ...](https://health.allwomenstalk.com/7-dangers-of-a-nuclear-leak/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/7-dangers-of-becoming-anemic/)
-- [8 Incurable Diseases ...](https://health.allwomenstalk.com/incurable-diseases/)
-- [8 Harmful Heart Habits ...](https://health.allwomenstalk.com/8-harmful-heart-habits/)
-- [7 Vitamins You Might Be Lacking ...](https://health.allwomenstalk.com/vitamins-you-might-be-lacking/)
-- [8 Reasons to Beware of Online Medical Advice ...](https://health.allwomenstalk.com/reasons-to-beware-of-online-medical-advice/)
-- [8 Steps to Prevent Breast Cancer ...](https://health.allwomenstalk.com/steps-to-prevent-breast-cancer/)
 - [7 Essential Points for Contact Lens Wearers ...](https://health.allwomenstalk.com/essential-points-for-contact-lens-wearers/)
+- [8 Reasons to Beware of Online Medical Advice ...](https://health.allwomenstalk.com/reasons-to-beware-of-online-medical-advice/)
+- [7 Dangers of a Nuclear Leak ...](https://health.allwomenstalk.com/7-dangers-of-a-nuclear-leak/)
+- [7 Vitamins You Might Be Lacking ...](https://health.allwomenstalk.com/vitamins-you-might-be-lacking/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/7-dangers-of-becoming-anemic/)
+- [7 Things You Have to do to Maintain Good Health of...](https://health.allwomenstalk.com/7-things-you-have-to-do-to-maintain-good-health-of-your-reproductive-organs/)
+- [8 Incurable Diseases ...](https://health.allwomenstalk.com/incurable-diseases/)
 - [7 Helpful Hints for Dealing with Medical Condition...](https://health.allwomenstalk.com/helpful-hints-for-dealing-with-medical-conditions/)
+- [8 Steps to Prevent Breast Cancer ...](https://health.allwomenstalk.com/steps-to-prevent-breast-cancer/)
+- [8 Harmful Heart Habits ...](https://health.allwomenstalk.com/8-harmful-heart-habits/)
 - [7 Wonderfully Remarkable Celebrity Cancer Survivor...](https://celebs.allwomenstalk.com/wonderfully-remarkable-celebrity-cancer-survivor-stories/)
 - [7 Prescription Drugs with Strange Side Effects ...](https://health.allwomenstalk.com/prescription-drugs-with-strange-side-effects/)
 

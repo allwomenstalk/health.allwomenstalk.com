@@ -3,7 +3,7 @@ title: "7 Nice Things to do for Yourself when You Are Sick ..."
 description: "Rest; Watch Television; Let the Chores Go; Do a Little Online Shopping; Play Favorites; More ..."
 url: "https://health.allwomenstalk.com/nice-things-to-do-for-yourself-when-you-are-sick/"
 category: "health"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Nice Things to do for Yourself when You Are Sick ...
@@ -42,15 +42,15 @@ These are some nice things you can do for yourself when you are sick. What do yo
 
 ## Related Posts
 
-- [fun things to do when retired](https://parenting.allwomenstalk.com/fun-ways-to-spend-time-with-your-retired-parent/)
 - [7 Unusual Holidays to Celebrate in June ...](https://lifestyle.allwomenstalk.com/unusual-holidays-to-celebrate-in-june/)
-- [what to do with a windfall](https://money.allwomenstalk.com/practical-things-to-do-with-a-windfall/)
 - [7 Kid-Friendly Water Activities to Try This Year ....](https://parenting.allwomenstalk.com/kid-friendly-water-activities-to-try-this-year/)
 - [7 Unique Ways to Celebrate Your Birthday ...](https://lifestyle.allwomenstalk.com/unique-ways-to-celebrate-your-birthday/)
-- [7 Summer Activities for Kids That Will Keep Boredo...](https://parenting.allwomenstalk.com/summer-activities-for-kids-that-will-keep-boredom-at-bay/)
-- [cheap fun things to do in philly](https://travel.allwomenstalk.com/fun-things-to-do-in-philadelphia/)
+- [what to do with a windfall](https://money.allwomenstalk.com/practical-things-to-do-with-a-windfall/)
+- [fun things to do when retired](https://parenting.allwomenstalk.com/fun-ways-to-spend-time-with-your-retired-parent/)
 - [7 Activities to do with Your Kids on Weekends ...](https://parenting.allwomenstalk.com/activities-to-do-with-your-kids-on-weekends/)
+- [cheap fun things to do in philly](https://travel.allwomenstalk.com/fun-things-to-do-in-philadelphia/)
 - [7 Ways to Entertain Yourself if You're Stuck on Be...](https://health.allwomenstalk.com/ways-to-entertain-yourself-if-youre-stuck-on-bed-rest/)
+- [7 Summer Activities for Kids That Will Keep Boredo...](https://parenting.allwomenstalk.com/summer-activities-for-kids-that-will-keep-boredom-at-bay/)
 - [7 Super Cheap Things to do with Your Kids in the S...](https://parenting.allwomenstalk.com/super-cheap-things-to-do-with-your-kids-in-the-spring/)
 - [7 Things to do While You Are Sick ...](https://health.allwomenstalk.com/7-things-to-do-while-you-are-sick/)
 - [10 Ways to Cheer Yourself up ...](https://allwomenstalk.com/10-ways-to-cheer-yourself-up/)

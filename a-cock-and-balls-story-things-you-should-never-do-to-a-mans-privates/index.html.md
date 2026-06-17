@@ -3,7 +3,7 @@ title: "A Cock and Balls Story: Things You Should Never do to a Man's Privates .
 description: "Do Not Knee Him in His Balls; Do Not Bite; Do Not Suck Them Too Hard; Never Twist His Testicles in Any Way; Be Careful if You Decide to Squeeze His Privates; More ..."
 url: "https://health.allwomenstalk.com/a-cock-and-balls-story-things-you-should-never-do-to-a-mans-privates/"
 category: "health"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # A Cock and Balls Story: Things You Should Never do to a Man's Privates ...
@@ -42,16 +42,16 @@ You can have great fun playing with your man’s private parts (and he’ll enjo
 
 ## Related Posts
 
-- [dangerous things on the road](https://lifestyle.allwomenstalk.com/avoid-doing-these-dangerous-things-while-driving-friends-around/)
-- [never ever text](https://love.allwomenstalk.com/things-you-should-never-ever-text-your-ex/)
-- [funny things couples fight about](https://love.allwomenstalk.com/the-absolute-silliest-things-couples-fight-over/)
-- [if you have to choose between me and her](https://love.allwomenstalk.com/things-your-bf-hopes-youll-never-do/)
 - [mistakes to avoid in a new relationship](https://love.allwomenstalk.com/mistakes-new-couples-should-avoid-making/)
-- [wish i didnt but i do](https://teen.allwomenstalk.com/things-i-wish-i-didnt-do-as-a-teenager/)
-- [include advice avoid](https://lifestyle.allwomenstalk.com/situations-where-its-best-to-avoid-giving-advice/)
-- [things you should never say to your partner](https://love.allwomenstalk.com/things-you-should-never-say-to-someone-you-care-about/)
+- [dangerous things on the road](https://lifestyle.allwomenstalk.com/avoid-doing-these-dangerous-things-while-driving-friends-around/)
 - [why do guys pressure you](https://love.allwomenstalk.com/things-you-should-never-let-a-guy-pressure-you-into/)
 - [how many words per chapter in a novel](https://lifestyle.allwomenstalk.com/cliche-tropes-to-avoid-in-your-fiction-writing/)
+- [never ever text](https://love.allwomenstalk.com/things-you-should-never-ever-text-your-ex/)
+- [funny things couples fight about](https://love.allwomenstalk.com/the-absolute-silliest-things-couples-fight-over/)
+- [wish i didnt but i do](https://teen.allwomenstalk.com/things-i-wish-i-didnt-do-as-a-teenager/)
+- [include advice avoid](https://lifestyle.allwomenstalk.com/situations-where-its-best-to-avoid-giving-advice/)
+- [if you have to choose between me and her](https://love.allwomenstalk.com/things-your-bf-hopes-youll-never-do/)
+- [things you should never say to your partner](https://love.allwomenstalk.com/things-you-should-never-say-to-someone-you-care-about/)
 - [11 Things to Never Tell Your Man ...](https://allwomenstalk.com/11-things-to-never-tell-your-man/)
 - [10 Things You Should Never Admit to Anyone ...](https://allwomenstalk.com/10-things-you-should-never-admit-to-anyone/)
 

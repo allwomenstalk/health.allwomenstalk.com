@@ -3,7 +3,7 @@ title: "7 Things to Avoid when You're on Your Period ..."
 description: "Exercise Unfit for the Occasion; Saturated Fats; Being a Martyr to Chocolate Cravings; Getting Dehydrated; Overlooking the Importance of Fiber in Your Diet; More ..."
 url: "https://health.allwomenstalk.com/things-to-avoid-when-youre-on-your-period/"
 category: "health"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Things to Avoid when You're on Your Period ...
@@ -42,16 +42,16 @@ All of these are based on good health principles that you can adopt as a lifesty
 
 ## Related Posts
 
-- [should love be earned](https://love.allwomenstalk.com/things-you-shouldnt-have-to-do-to-earn-his-love/)
-- [Stop Doing These Things That Make You Look Less Cl...](https://fashion.allwomenstalk.com/stop-doing-these-things-that-make-you-look-less-classy/)
-- [7 Things Single Ladies Hate Hearing ...](https://love.allwomenstalk.com/things-single-ladies-hate-hearing/)
-- [These 7 Things Will Make Your PMS Even Worse ...](https://health.allwomenstalk.com/these-things-will-make-your-pms-even-worse/)
-- [17 Unhealthy Things That Won't Help Raise Your Sel...](https://beauty.allwomenstalk.com/unhealthy-things-that-wont-help-raise-your-self-esteem/)
-- [7 Hurtful Things That Can Lead to Cheating ...](https://love.allwomenstalk.com/hurtful-things-that-can-lead-to-cheating/)
-- [Never Write These Things in a Professional Email ....](https://lifestyle.allwomenstalk.com/never-write-these-things-in-a-professional-email/)
-- [7 Expectations You Shouldn't Set for Your BF ...](https://love.allwomenstalk.com/expectations-you-shouldnt-set-for-your-bf/)
 - [how to break up with hairdresser who is a friend](https://hair.allwomenstalk.com/never-do-these-things-at-a-hair-salon/)
+- [Never Write These Things in a Professional Email ....](https://lifestyle.allwomenstalk.com/never-write-these-things-in-a-professional-email/)
+- [should love be earned](https://love.allwomenstalk.com/things-you-shouldnt-have-to-do-to-earn-his-love/)
+- [These 7 Things Will Make Your PMS Even Worse ...](https://health.allwomenstalk.com/these-things-will-make-your-pms-even-worse/)
+- [7 Expectations You Shouldn't Set for Your BF ...](https://love.allwomenstalk.com/expectations-you-shouldnt-set-for-your-bf/)
+- [Stop Doing These Things That Make You Look Less Cl...](https://fashion.allwomenstalk.com/stop-doing-these-things-that-make-you-look-less-classy/)
 - [17 Secrets You Should Never Keep from Your Boyfrie...](https://love.allwomenstalk.com/secrets-you-should-never-keep-from-your-boyfriend/)
+- [7 Things Single Ladies Hate Hearing ...](https://love.allwomenstalk.com/things-single-ladies-hate-hearing/)
+- [7 Hurtful Things That Can Lead to Cheating ...](https://love.allwomenstalk.com/hurtful-things-that-can-lead-to-cheating/)
+- [17 Unhealthy Things That Won't Help Raise Your Sel...](https://beauty.allwomenstalk.com/unhealthy-things-that-wont-help-raise-your-self-esteem/)
 - [10 Pros and Cons of Using Pads for Your Period ...](https://allwomenstalk.com/10-pros-and-cons-of-using-pads-for-your-period/)
 - [10 Things about Your Period You Should Know ...](https://allwomenstalk.com/10-things-about-your-period-you-should-know/)
 

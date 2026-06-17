@@ -3,7 +3,7 @@ title: "9 Health Resolutions You Might Want to Make for 2015 ..."
 description: "Sleep on Time; Exercise; Beat the Caffeine Addiction; Drink More Water; Don’t Skip Meals; More ..."
 url: "https://health.allwomenstalk.com/health-resolutions-you-might-want-to-make-for/"
 category: "health"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 9 Health Resolutions You Might Want to Make for 2015 ...
@@ -50,16 +50,16 @@ Your health is the most important thing you have. And you need to remember to ta
 
 ## Related Posts
 
-- [January Jumpstart: Start the New Year off Right wi...](https://inspiration.allwomenstalk.com/things-to-do-in-january-for-a-great-start-to-the-new-year/)
 - [Small but Vital Changes to Improve Your Life in th...](https://inspiration.allwomenstalk.com/small-changes-to-improve-your-life-in-the-new-year/)
 - [how can i help make the world a better place](https://inspiration.allwomenstalk.com/ways-you-can-help-make-the-world-a-better-place/)
-- [craziest new year's resolutions](https://inspiration.allwomenstalk.com/new-years-resolutions-to-consider/)
 - [7 Vital Pieces of Advice for Teens Struggling to L...](https://teen.allwomenstalk.com/vital-pieces-of-advice-for-teens-struggling-to-love-themselves/)
+- [craziest new year's resolutions](https://inspiration.allwomenstalk.com/new-years-resolutions-to-consider/)
+- [Seeking Excitement Every Day Will Improve Your Lif...](https://inspiration.allwomenstalk.com/ways-seeking-everyday-excitement-can-improve-your-life/)
 - [The Secret to Success, Even if You're Young ...](https://inspiration.allwomenstalk.com/ways-to-be-successful-while-youre-still-young/)
 - [7 Healthy Things to do Every Day ...](https://health.allwomenstalk.com/healthy-things-to-do-every-day/)
 - [how to be more resilient](https://lifestyle.allwomenstalk.com/ways-to-be-more-resilient/)
 - [7 Mentalities That Keep You from Getting Healthy a...](https://health.allwomenstalk.com/mentalities-that-keep-you-from-getting-healthy-and-how-to-fix-them/)
-- [Seeking Excitement Every Day Will Improve Your Lif...](https://inspiration.allwomenstalk.com/ways-seeking-everyday-excitement-can-improve-your-life/)
+- [January Jumpstart: Start the New Year off Right wi...](https://inspiration.allwomenstalk.com/things-to-do-in-january-for-a-great-start-to-the-new-year/)
 - [9 Classic New Years Resolutions You Should Conside...](https://lifestyle.allwomenstalk.com/classic-new-years-resolutions-you-should-consider/)
 - [13 Fashion Resolutions for the New Year ...](https://fashion.allwomenstalk.com/fashion-resolutions-for-the-new-year/)
 

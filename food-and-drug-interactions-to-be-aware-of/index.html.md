@@ -3,7 +3,7 @@ title: "7 Food and Drug Interactions to Be Aware of ..."
 description: "Dairy and Thyroid Medication; Coffee and Antidepressants; Leafy Green Vegetables and Blood Thinners; Caffeine and Bronchodilators; Grapefruit Juice and Oral Contraceptives; More ..."
 url: "https://health.allwomenstalk.com/food-and-drug-interactions-to-be-aware-of/"
 category: "health"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Food and Drug Interactions to Be Aware of ...
@@ -45,15 +45,15 @@ Cohen, Suzy. Drug Muggers. New York: Rodale, 2011. Print.
 ## Related Posts
 
 - [rubbing alcohol fruit flies](https://diy.allwomenstalk.com/uses-of-rubbing-alcohol-you-might-have-wondered-about/)
-- [hybiclens](https://health.allwomenstalk.com/necessary-things-to-know-about-mrsa/)
-- [things urine can tell about health](https://health.allwomenstalk.com/things-your-urine-can-tell-you-about-your-health/)
-- [7 Things You Need to Know about Self-Breast Exams ...](https://health.allwomenstalk.com/things-you-need-to-know-about-self-breast-exams/)
-- [7 Things to Know about Instant Breast Enlargement ...](https://beauty.allwomenstalk.com/things-to-know-about-instant-breast-enlargement/)
 - [Debunking Common Misconceptions about Obsessive-Co...](https://health.allwomenstalk.com/misconceptions-about-obsessive-compulsive-disorder/)
-- [The Most Important Facts You Should Know about Ath...](https://skincare.allwomenstalk.com/important-facts-about-athletes-foot/)
+- [7 Things to Know about Instant Breast Enlargement ...](https://beauty.allwomenstalk.com/things-to-know-about-instant-breast-enlargement/)
+- [things urine can tell about health](https://health.allwomenstalk.com/things-your-urine-can-tell-you-about-your-health/)
 - [7 Things You Need to Know about ALS ...](https://health.allwomenstalk.com/things-you-need-to-know-about-als/)
+- [7 Things You Need to Know about Self-Breast Exams ...](https://health.allwomenstalk.com/things-you-need-to-know-about-self-breast-exams/)
+- [The Most Important Facts You Should Know about Ath...](https://skincare.allwomenstalk.com/important-facts-about-athletes-foot/)
 - [Every Woman Should Be Aware of These Heart Attack ...](https://health.allwomenstalk.com/symptoms-of-heart-attack-every-women-should-know/)
 - [7 Things You Should Know before Going Vegan ...](https://health.allwomenstalk.com/things-you-should-know-before-going-vegan-2/)
+- [hybiclens](https://health.allwomenstalk.com/necessary-things-to-know-about-mrsa/)
 - [5 Herbs to Take Caution with ...](https://gardening.allwomenstalk.com/5-herbs-to-take-caution-with/)
 - [7 Things to Keep in Your Medicine Cabinet ...](https://allwomenstalk.com/7-things-to-keep-in-your-medicine-cabinet/)
 
