@@ -3,7 +3,7 @@ title: "17 Things You Should Never do While Drunk ..."
 description: "Drive; Text Your Ex; Text Your Parents; Do Your Homework; Send Important Emails; More ..."
 url: "https://health.allwomenstalk.com/things-you-should-never-do-while-drunk/"
 category: "health"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 17 Things You Should Never do While Drunk ...
@@ -108,16 +108,16 @@ Drinking responsibly means that you won't do anything foolish while under the in
 
 ## Related Posts
 
-- [sexual couple questions](https://love.allwomenstalk.com/never-ask-a-same-sex-couple-these-ridiculous-questions/)
-- [what makes someone nosey](https://apps.allwomenstalk.com/types-of-people-you-should-un-friend-on-facebook/)
-- [can i lie in my resume](https://money.allwomenstalk.com/things-you-should-never-lie-about-on-a-resume/)
-- [shouldbesociallyacceptable](https://lifestyle.allwomenstalk.com/things-that-should-be-socially-acceptable/)
 - [what not to talk about on a first date](https://love.allwomenstalk.com/never-talk-about-these-things-during-a-first-date/)
 - [cool girl definition](https://love.allwomenstalk.com/cool-girl-traits-you-dont-want-to-have/)
+- [sexual couple questions](https://love.allwomenstalk.com/never-ask-a-same-sex-couple-these-ridiculous-questions/)
+- [can i lie in my resume](https://money.allwomenstalk.com/things-you-should-never-lie-about-on-a-resume/)
+- [shouldbesociallyacceptable](https://lifestyle.allwomenstalk.com/things-that-should-be-socially-acceptable/)
+- [how to complain to your boyfriend](https://love.allwomenstalk.com/complaints-you-shouldnt-have-about-your-boyfriend/)
 - [don't let him in](https://love.allwomenstalk.com/dont-let-him-in-your-pants-if-he-does-these-things/)
 - [riche stylo amour](https://love.allwomenstalk.com/dont-mistake-these-things-for-love/)
-- [how to complain to your boyfriend](https://love.allwomenstalk.com/complaints-you-shouldnt-have-about-your-boyfriend/)
 - [awkward first date](https://love.allwomenstalk.com/awkward-first-date-moments-you-hope-to-avoid/)
+- [what makes someone nosey](https://apps.allwomenstalk.com/types-of-people-you-should-un-friend-on-facebook/)
 - [10 Things to Not do in Bed ...](https://allwomenstalk.com/10-things-to-not-do-in-bed/)
 - [10 Reasons to Avoid Going to Bars ...](https://allwomenstalk.com/10-reasons-to-avoid-going-to-bars/)
 

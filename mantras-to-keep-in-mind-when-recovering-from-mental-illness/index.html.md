@@ -3,7 +3,7 @@ title: "7 Mantras to Keep in Mind when Recovering from Mental Illness ..."
 description: "Never Give up; It Gets Better; Stop, Breathe and Be; The Same Sky; Play Your Cards; More ..."
 url: "https://health.allwomenstalk.com/mantras-to-keep-in-mind-when-recovering-from-mental-illness/"
 category: "health"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 Mantras to Keep in Mind when Recovering from Mental Illness ...
@@ -43,15 +43,15 @@ These are some of my personal favorite mantras to keep in mind when recovering f
 ## Related Posts
 
 - [how to heal yourself emotionally](https://inspiration.allwomenstalk.com/ways-to-emotionally-heal-yourself-and-be-set-free/)
-- [depression tips and tricks](https://health.allwomenstalk.com/mental-tricks-to-fight-depression-that-really-do-work/)
-- [grouch meaning](https://inspiration.allwomenstalk.com/helpful-hints-on-how-to-stop-being-a-grouch/)
-- [how successful people stay calm](https://inspiration.allwomenstalk.com/very-interesting-ways-successful-people-stay-calm/)
-- [how to listen to your body](https://health.allwomenstalk.com/effective-ways-to-listen-to-your-body/)
 - [you had a long day](https://health.allwomenstalk.com/very-useful-tips-on-how-to-recover-after-a-long-day-at-work/)
-- [mental health approaches](https://health.allwomenstalk.com/therapeutic-approaches-to-overcoming-mental-illness/)
-- [calming things to do](https://inspiration.allwomenstalk.com/calming-things-to-do-when-everything-else-seems-to-fail/)
-- [how to deal with senioritis in high school](https://teen.allwomenstalk.com/tips-on-how-to-deal-with-senioritis/)
 - [websites to calm you down](https://health.allwomenstalk.com/zen-friendly-websites-to-keep-you-calm-and-productive/)
+- [calming things to do](https://inspiration.allwomenstalk.com/calming-things-to-do-when-everything-else-seems-to-fail/)
+- [how to listen to your body](https://health.allwomenstalk.com/effective-ways-to-listen-to-your-body/)
+- [mental health approaches](https://health.allwomenstalk.com/therapeutic-approaches-to-overcoming-mental-illness/)
+- [how to deal with senioritis in high school](https://teen.allwomenstalk.com/tips-on-how-to-deal-with-senioritis/)
+- [how successful people stay calm](https://inspiration.allwomenstalk.com/very-interesting-ways-successful-people-stay-calm/)
+- [grouch meaning](https://inspiration.allwomenstalk.com/helpful-hints-on-how-to-stop-being-a-grouch/)
+- [depression tips and tricks](https://health.allwomenstalk.com/mental-tricks-to-fight-depression-that-really-do-work/)
 - [7 Great Books on Mental Illness ...](https://health.allwomenstalk.com/great-books-on-mental-illness/)
 - [7 Ways to Feel Better ...](https://health.allwomenstalk.com/ways-to-feel-better/)
 

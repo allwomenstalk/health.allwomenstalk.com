@@ -3,7 +3,7 @@ title: "11 Effective Ways to Talk to Your Friend about Her Eating Disorder ..."
 description: "Don’t Judge; Do It at the Right Time; Don’t Parent; Do Your Research; Be Prepared; More ..."
 url: "https://health.allwomenstalk.com/effective-ways-to-talk-to-your-friend-about-her-eating-disorder/"
 category: "health"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 11 Effective Ways to Talk to Your Friend about Her Eating Disorder ...
@@ -59,15 +59,15 @@ If your friend has an eating disorder, I advise you to visit the NEDA website im
 ## Related Posts
 
 - [bad conversationalist](https://inspiration.allwomenstalk.com/tips-for-handling-a-bad-conversationalist-2/)
-- [little t road rage](https://travel.allwomenstalk.com/ways-to-control-your-road-rage/)
-- [manage others](https://inspiration.allwomenstalk.com/ways-to-manage-others-and-get-the-very-best-from-them/)
 - [7 Ways to Get Your Voice Heard ...](https://inspiration.allwomenstalk.com/ways-to-get-your-voice-heard/)
 - [7 Helpful Ways to Cope with Bullying ...](https://teen.allwomenstalk.com/helpful-ways-to-cope-with-bullying/)
-- [7 Steps to Identifying a Negative Person ...](https://inspiration.allwomenstalk.com/steps-to-identifying-a-negative-person/)
-- [7 Useful Tips for Learning the Gentle Art of Sayin...](https://inspiration.allwomenstalk.com/useful-tips-for-learning-the-gentle-art-of-saying-no/)
-- [how to deal with narcissists](https://inspiration.allwomenstalk.com/ways-to-deal-with-narcissists-in-your-life/)
 - [11 US Organizations to Turn to if You're Suffering...](https://health.allwomenstalk.com/us-organizations-to-turn-to-if-youre-suffering-domestic-violence/)
+- [how to deal with narcissists](https://inspiration.allwomenstalk.com/ways-to-deal-with-narcissists-in-your-life/)
+- [7 Useful Tips for Learning the Gentle Art of Sayin...](https://inspiration.allwomenstalk.com/useful-tips-for-learning-the-gentle-art-of-saying-no/)
+- [manage others](https://inspiration.allwomenstalk.com/ways-to-manage-others-and-get-the-very-best-from-them/)
+- [little t road rage](https://travel.allwomenstalk.com/ways-to-control-your-road-rage/)
 - [11 Interesting Ways to Identify a Negative Friends...](https://inspiration.allwomenstalk.com/interesting-ways-to-identify-a-negative-friendship/)
+- [7 Steps to Identifying a Negative Person ...](https://inspiration.allwomenstalk.com/steps-to-identifying-a-negative-person/)
 - [7 Ways to Repair Your Relationship with Food ...](https://diet.allwomenstalk.com/ways-to-repair-your-relationship-with-food/)
 - [10 Ways to Beat Dysfunctional Eating Habits ...](https://diet.allwomenstalk.com/ways-to-beat-dysfunctional-eating-habits/)
 

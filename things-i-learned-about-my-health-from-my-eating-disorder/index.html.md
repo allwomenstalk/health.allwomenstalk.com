@@ -3,7 +3,7 @@ title: "7 Things I Learned about My Health from My Eating Disorder ..."
 description: "Calories Are a Good Thing; Physical Appearance; It Wrecks Your Metabolism; Low Thyroid; Digestion is Altered; More ..."
 url: "https://health.allwomenstalk.com/things-i-learned-about-my-health-from-my-eating-disorder/"
 category: "health"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 Things I Learned about My Health from My Eating Disorder ...
@@ -44,15 +44,15 @@ If you’ve ever had an eating disorder, what have you learned about your health
 
 ## Related Posts
 
-- [7 Really Important Health and Fitness Reasons You ...](https://fitness.allwomenstalk.com/really-important-health-and-fitness-reasons-you-should-eat-breakfast/)
-- [7 Reasons to Eat Superfoods when You're Dieting .....](https://diet.allwomenstalk.com/reasons-to-eat-superfoods-when-youre-dieting/)
-- [Why You Should Keep a Food Diary to Lose Weight .....](https://diet.allwomenstalk.com/reasons-to-keep-a-food-diary-and-how-it-could-make-you-slimmer/)
 - [7 Reasons to Reject a One Size Fits All Attitude a...](https://health.allwomenstalk.com/reasons-to-reject-a-one-size-fits-all-attitude-and-learn-to-be-healthy/)
-- [7 Downfalls of Dieting to Be Aware of ...](https://diet.allwomenstalk.com/downfalls-of-dieting-to-be-aware-of/)
+- [food trauma childhood](https://diet.allwomenstalk.com/ways-your-childhood-can-reveal-about-your-relationship-with-food/)
+- [7 Reasons to Eat Superfoods when You're Dieting .....](https://diet.allwomenstalk.com/reasons-to-eat-superfoods-when-youre-dieting/)
+- [7 Really Important Health and Fitness Reasons You ...](https://fitness.allwomenstalk.com/really-important-health-and-fitness-reasons-you-should-eat-breakfast/)
+- [7 Ways Dieting Can Affect Your Digestion Negativel...](https://diet.allwomenstalk.com/ways-dieting-can-affect-your-digestion-negatively/)
 - [7 Habits That Could Be Giving You a Sluggish Metab...](https://diet.allwomenstalk.com/habits-that-could-be-giving-you-a-sluggish-metabolism/)
 - [7 Reasons to Steer Clear of Juice Cleanses ...](https://health.allwomenstalk.com/reasons-to-steer-clear-of-juice-cleanses/)
-- [7 Ways Dieting Can Affect Your Digestion Negativel...](https://diet.allwomenstalk.com/ways-dieting-can-affect-your-digestion-negatively/)
-- [food trauma childhood](https://diet.allwomenstalk.com/ways-your-childhood-can-reveal-about-your-relationship-with-food/)
+- [Why You Should Keep a Food Diary to Lose Weight .....](https://diet.allwomenstalk.com/reasons-to-keep-a-food-diary-and-how-it-could-make-you-slimmer/)
+- [7 Downfalls of Dieting to Be Aware of ...](https://diet.allwomenstalk.com/downfalls-of-dieting-to-be-aware-of/)
 - [7 Breakfast Mistakes That Can Cause Weight Gain an...](https://diet.allwomenstalk.com/breakfast-mistakes-that-can-cause-weight-gain-and-how-you-can-combat-this/)
 - [10 Lessons I've Learned on My Weight-Loss Journey ...](https://allwomenstalk.com/10-lessons-ive-learned-on-my-weight-loss-journey/)
 - [10 Ways to Beat Dysfunctional Eating Habits ...](https://diet.allwomenstalk.com/ways-to-beat-dysfunctional-eating-habits/)

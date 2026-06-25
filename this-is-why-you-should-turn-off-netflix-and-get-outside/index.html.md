@@ -3,7 +3,7 @@ title: "This is Why You Should Turn off Netflix and Get outside ..."
 description: "It’s Sedentary; TV Jealousy; Conversation; No Tan; Automatic Habit; More ..."
 url: "https://health.allwomenstalk.com/this-is-why-you-should-turn-off-netflix-and-get-outside/"
 category: "health"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # This is Why You Should Turn off Netflix and Get outside ...
@@ -50,16 +50,16 @@ You don’t have to give up Netflix. Just remember there’s more to life!
 
 ## Related Posts
 
-- [8 Hilarious Things to Watch on YouTube (that Happe...](https://funny.allwomenstalk.com/hilarious-things-to-watch-on-youtube-that-happened-irl/)
-- [This Russian Artist's Sketches Will Have You Searc...](https://lifestyle.allwomenstalk.com/this-russian-artists-sketches-will-have-you-searching-for-your-pencils-stat/)
-- [Here Are the 8 Superhumans Who Just Made the U.S. ...](https://celebs.allwomenstalk.com/here-are-the-goddesses-who-just-made-the-u-s-olympic-gymnastics-team/)
-- [From Africa with Love ...](https://lifestyle.allwomenstalk.com/from-africa-with-love/)
-- [OMG! Making a Murderer is Coming to Netflix and He...](https://movies.allwomenstalk.com/omg-making-a-murderer-is-coming-to-netflix-and-heres-why-you-need-to-watch-it/)
-- [This is Why a Harry Potter Version of Pokmon Go Wo...](https://apps.allwomenstalk.com/this-is-why-a-harry-potter-version-of-pokemon-go-would-be-even-better/)
-- ["Once upon a Time" is Back and Here's Why You Need...](https://movies.allwomenstalk.com/once-upon-a-time-is-back-and-heres-why-you-need-to-watch-it/)
-- [This New Alzheimer's Treatment Fully Restores Memo...](https://health.allwomenstalk.com/this-new-alzheimers-treatment-fully-restores-memory-function/)
-- [Don't Miss the New Seasons of These Addictive TV S...](https://movies.allwomenstalk.com/dont-miss-the-new-seasons-of-these-addictive-tv-shows/)
 - [18 Times Our Crushes Made Us Act a Little Crazy .....](https://love.allwomenstalk.com/times-our-crushes-made-us-act-a-little-crazy/)
+- [From Africa with Love ...](https://lifestyle.allwomenstalk.com/from-africa-with-love/)
+- [This New Alzheimer's Treatment Fully Restores Memo...](https://health.allwomenstalk.com/this-new-alzheimers-treatment-fully-restores-memory-function/)
+- [Here Are the 8 Superhumans Who Just Made the U.S. ...](https://celebs.allwomenstalk.com/here-are-the-goddesses-who-just-made-the-u-s-olympic-gymnastics-team/)
+- [This Russian Artist's Sketches Will Have You Searc...](https://lifestyle.allwomenstalk.com/this-russian-artists-sketches-will-have-you-searching-for-your-pencils-stat/)
+- [This is Why a Harry Potter Version of Pokmon Go Wo...](https://apps.allwomenstalk.com/this-is-why-a-harry-potter-version-of-pokemon-go-would-be-even-better/)
+- [8 Hilarious Things to Watch on YouTube (that Happe...](https://funny.allwomenstalk.com/hilarious-things-to-watch-on-youtube-that-happened-irl/)
+- [OMG! Making a Murderer is Coming to Netflix and He...](https://movies.allwomenstalk.com/omg-making-a-murderer-is-coming-to-netflix-and-heres-why-you-need-to-watch-it/)
+- [Don't Miss the New Seasons of These Addictive TV S...](https://movies.allwomenstalk.com/dont-miss-the-new-seasons-of-these-addictive-tv-shows/)
+- ["Once upon a Time" is Back and Here's Why You Need...](https://movies.allwomenstalk.com/once-upon-a-time-is-back-and-heres-why-you-need-to-watch-it/)
 - [How TV Disrupts Your Life!](https://allwomenstalk.com/how-tv-disrupts-your-life/)
 - [8 Reasons to Quit Your Day Job ...](https://allwomenstalk.com/8-reasons-to-quit-your-day-job/)
 

@@ -3,7 +3,7 @@ title: "7 Things to Stop Doing Right Now ..."
 description: "Smoking; Binge Drinking; Eating out; Having Unsafe Sex; Sitting on the Couch; More ..."
 url: "https://health.allwomenstalk.com/things-to-stop-doing-right-now/"
 category: "health"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 Things to Stop Doing Right Now ...
@@ -56,16 +56,16 @@ There are a lot of things to stop doing, aren't there? Which of these bad habits
 
 ## Related Posts
 
-- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/worst-interview-mistakes/)
-- [7 things you should always keep secret](https://lifestyle.allwomenstalk.com/things-you-should-keep-secret/)
-- [topics to talk with friends](https://lifestyle.allwomenstalk.com/conversation-topics-you-dont-want-to-bring-up-too-soon/)
-- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
-- [stop saying, "if you will"](https://lifestyle.allwomenstalk.com/negative-things-you-should-stop-saying/)
 - [lgbt sterotypes](https://lifestyle.allwomenstalk.com/common-gay-stereotypes-you-should-avoid/)
+- [stop saying, "if you will"](https://lifestyle.allwomenstalk.com/negative-things-you-should-stop-saying/)
 - [8 Habits That Are Bad for Your Heart ...](https://health.allwomenstalk.com/8-habits-that-are-bad-for-your-heart/)
-- [stylo primped previous](https://hair.allwomenstalk.com/things-that-wont-help-grow-your-hair-faster/)
+- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/worst-interview-mistakes/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/annoying-things-about-supermarkets/)
+- [7 things you should always keep secret](https://lifestyle.allwomenstalk.com/things-you-should-keep-secret/)
 - [le stylo timeless spark](https://lifestyle.allwomenstalk.com/table-manners-you-dont-want-to-forget/)
+- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
+- [topics to talk with friends](https://lifestyle.allwomenstalk.com/conversation-topics-you-dont-want-to-bring-up-too-soon/)
+- [stylo primped previous](https://hair.allwomenstalk.com/things-that-wont-help-grow-your-hair-faster/)
 - [8 Things to Give up Today ...](https://lifestyle.allwomenstalk.com/8-things-to-give-up-today/)
 - [12 Bad Habits You Should Break Right Now ...](https://allwomenstalk.com/12-bad-habits-you-should-break-right-now/)
 

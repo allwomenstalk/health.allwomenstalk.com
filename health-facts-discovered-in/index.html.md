@@ -3,7 +3,7 @@ title: "10 Health Facts Discovered in 2014 ..."
 description: "Bodyism; Don’t Turn down Chocolate; Colds Can Be Beat; Celery Isn’t a Negative Food; 8pm Isn’t Evil; More ..."
 url: "https://health.allwomenstalk.com/health-facts-discovered-in/"
 category: "health"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 10 Health Facts Discovered in 2014 ...
@@ -54,16 +54,16 @@ Of course, there were a lot of other health facts discovered in 2014 – coverin
 
 ## Related Posts
 
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/common-causes-of-stomach-pain/)
+- [7 Positive Things about Your Period to Make You Ha...](https://health.allwomenstalk.com/positive-things-about-your-period-to-make-you-hate-it-less/)
 - [7 Things You Should Know about Your Tap Water ...](https://health.allwomenstalk.com/things-you-should-know-about-your-tap-water/)
 - [9 Things You Should Know about Colds and Flu ...](https://health.allwomenstalk.com/things-you-should-know-about-colds-and-flu/)
-- [7 Ways You're Sabotaging Your Immune System ...](https://health.allwomenstalk.com/ways-youre-sabotaging-your-immune-system/)
-- [7 Things to Know about Invisalign Braces ...](https://beauty.allwomenstalk.com/things-to-know-about-invisalign-braces/)
-- [7 Positive Things about Your Period to Make You Ha...](https://health.allwomenstalk.com/positive-things-about-your-period-to-make-you-hate-it-less/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/common-causes-of-stomach-pain/)
 - [7 Important Things to Know about Your Melanoma Ris...](https://skincare.allwomenstalk.com/important-things-to-know-about-your-melanoma-risk/)
+- [7 Risks to Take before You Die ...](https://inspiration.allwomenstalk.com/risks-to-take-before-you-die/)
 - [Common Pregnancy Skin Conditions You Might Experie...](https://skincare.allwomenstalk.com/pregnancy-skin-conditions-you-might-have-to-deal-with/)
 - [7 Medical Problems You Don't Need to Go to the Eme...](https://health.allwomenstalk.com/medical-problems-you-dont-need-to-go-to-the-emergency-room-for/)
-- [7 Risks to Take before You Die ...](https://inspiration.allwomenstalk.com/risks-to-take-before-you-die/)
+- [7 Ways You're Sabotaging Your Immune System ...](https://health.allwomenstalk.com/ways-youre-sabotaging-your-immune-system/)
+- [7 Things to Know about Invisalign Braces ...](https://beauty.allwomenstalk.com/things-to-know-about-invisalign-braces/)
 - [5 Facts on 2012 ...](https://twilight.allwomenstalk.com/facts-on/)
 - [9 Interesting Facts about Mythology ...](https://lifestyle.allwomenstalk.com/interesting-facts-about-mythology/)
 

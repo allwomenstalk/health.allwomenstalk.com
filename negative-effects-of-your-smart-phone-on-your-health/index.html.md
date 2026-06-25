@@ -3,7 +3,7 @@ title: "7 Negative Effects of Your Smart Phone on Your Health ..."
 description: "Germs; Creativity; Disconnect; Texting and Driving; Stress; More ..."
 url: "https://health.allwomenstalk.com/negative-effects-of-your-smart-phone-on-your-health/"
 category: "health"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 Negative Effects of Your Smart Phone on Your Health ...
@@ -42,16 +42,16 @@ As you can see, smart phones easily affect several areas of our overall health. 
 
 ## Related Posts
 
-- [myths about stds](https://health.allwomenstalk.com/common-myths-about-sexually-transmitted-diseases-and-infections/)
-- [men and anorexia](https://health.allwomenstalk.com/facts-about-male-anorexia-that-you-probably-dont-know-but-should/)
-- [tired all the time blood test](https://health.allwomenstalk.com/blood-tests-for-fatigue-to-have-your-doctor-do-if-youre-always-tired/)
 - [what to look for in a juicer](https://health.allwomenstalk.com/essential-things-to-consider-when-buying-a-juicer/)
-- [does hot yoga tone your body](https://lifestyle.allwomenstalk.com/pros-and-cons-of-hot-yoga-that-you-should-know/)
-- [the skin book tattoo](https://lifestyle.allwomenstalk.com/things-you-didnt-know-about-getting-a-tattoo/)
-- [how to educate yourself on politics](https://lifestyle.allwomenstalk.com/important-political-issues-you-need-to-educate-yourself-on/)
-- [life saving items](https://lifestyle.allwomenstalk.com/life-saving-items-you-must-keep-in-your-emergency-kit/)
-- [multivitamin without titanium dioxide](https://health.allwomenstalk.com/toxic-ingredients-to-avoid-when-buying-supplements/)
 - [bad things for your heart](https://health.allwomenstalk.com/bad-habits-that-could-damage-your-heart/)
+- [tired all the time blood test](https://health.allwomenstalk.com/blood-tests-for-fatigue-to-have-your-doctor-do-if-youre-always-tired/)
+- [the skin book tattoo](https://lifestyle.allwomenstalk.com/things-you-didnt-know-about-getting-a-tattoo/)
+- [does hot yoga tone your body](https://lifestyle.allwomenstalk.com/pros-and-cons-of-hot-yoga-that-you-should-know/)
+- [multivitamin without titanium dioxide](https://health.allwomenstalk.com/toxic-ingredients-to-avoid-when-buying-supplements/)
+- [how to educate yourself on politics](https://lifestyle.allwomenstalk.com/important-political-issues-you-need-to-educate-yourself-on/)
+- [men and anorexia](https://health.allwomenstalk.com/facts-about-male-anorexia-that-you-probably-dont-know-but-should/)
+- [life saving items](https://lifestyle.allwomenstalk.com/life-saving-items-you-must-keep-in-your-emergency-kit/)
+- [myths about stds](https://health.allwomenstalk.com/common-myths-about-sexually-transmitted-diseases-and-infections/)
 - [5 Major Health Issues You Should Be Aware of ...](https://allwomenstalk.com/5-major-health-issues-you-should-be-aware-of/)
 - [8 Negative Effects of over-Exercise ...](https://allwomenstalk.com/8-negative-effects-of-over-exercise/)
 

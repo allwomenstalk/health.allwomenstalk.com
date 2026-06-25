@@ -3,7 +3,7 @@ title: "7 Easy and Helpful Tricks for Eating Health when You Live in a Dorm ..."
 description: "Get a Mini Fridge; Invest in a Microwave; Stick to Salads; Reach for Whole Grains; Apples and Bananas Are Your Friends; More ..."
 url: "https://health.allwomenstalk.com/easy-and-helpful-tricks-for-eating-health-when-you-live-in-a-dorm/"
 category: "health"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 Easy and Helpful Tricks for Eating Health when You Live in a Dorm ...
@@ -42,16 +42,16 @@ Eating healthy when you live in a dorm can be a challenge, but it is possible. U
 
 ## Related Posts
 
+- [How to Avoid Chowing down when You're Bored ...](https://diet.allwomenstalk.com/tips-on-how-to-avoid-eating-when-you-are-bored/)
 - [7 Tips for Vegans Going to Christmas Parties ...](https://lifestyle.allwomenstalk.com/tips-for-vegans-going-to-christmas-parties/)
 - [7 Tips on Hosting a Healthy Holiday Party ...](https://health.allwomenstalk.com/tips-on-hosting-a-healthy-holiday-party/)
-- [7 Tips for Healthy Grocery Shopping ...](https://health.allwomenstalk.com/tips-for-healthy-grocery-shopping/)
-- [7 Simple Ways to Prevent Food Poisoning ...](https://health.allwomenstalk.com/simple-ways-to-prevent-food-poisoning/)
-- [Top Tips for a Happy, Healthy Thanksgiving ...](https://diet.allwomenstalk.com/tips-for-making-thanksgiving-healthy/)
-- [sticking to diet](https://diet.allwomenstalk.com/tips-for-sticking-to-your-diet-this-year/)
 - [7 Healthy Meal Ideas to Start off 2019 ...](https://food.allwomenstalk.com/healthy-meal-ideas-to-start-off/)
-- [How to Avoid Chowing down when You're Bored ...](https://diet.allwomenstalk.com/tips-on-how-to-avoid-eating-when-you-are-bored/)
-- [cut down on calorie intake](https://weightloss.allwomenstalk.com/ways-to-reduce-your-calorie-intake-over-christmas/)
+- [7 Tips for Healthy Grocery Shopping ...](https://health.allwomenstalk.com/tips-for-healthy-grocery-shopping/)
 - [fall into healthy habits](https://health.allwomenstalk.com/healthy-habits-to-get-into-this-fall/)
+- [cut down on calorie intake](https://weightloss.allwomenstalk.com/ways-to-reduce-your-calorie-intake-over-christmas/)
+- [sticking to diet](https://diet.allwomenstalk.com/tips-for-sticking-to-your-diet-this-year/)
+- [Top Tips for a Happy, Healthy Thanksgiving ...](https://diet.allwomenstalk.com/tips-for-making-thanksgiving-healthy/)
+- [7 Simple Ways to Prevent Food Poisoning ...](https://health.allwomenstalk.com/simple-ways-to-prevent-food-poisoning/)
 - [9 Tips to Eating Healthy on Vacation ...](https://allwomenstalk.com/9-tips-to-eating-healthy-on-vacation/)
 - [7 Tips on Eating Well ...](https://allwomenstalk.com/7-tips-on-eating-well/)
 

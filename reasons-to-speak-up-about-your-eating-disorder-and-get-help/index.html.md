@@ -3,7 +3,7 @@ title: "Speak up about Your Eating Disorder and Get Help ..."
 description: "Stuck; Lose Everything?; Sick Enough; You Can Recover; Hard; More ..."
 url: "https://health.allwomenstalk.com/reasons-to-speak-up-about-your-eating-disorder-and-get-help/"
 category: "health"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # Speak up about Your Eating Disorder and Get Help ...
@@ -42,16 +42,16 @@ It’s scary opening up about your eating disorder and getting help, but I know 
 
 ## Related Posts
 
-- [Helpful Ways to Find the Right Diet for You ...](https://diet.allwomenstalk.com/ways-to-find-the-right-diet-for-you/)
-- [7 Tips for Success when Eating out on a Diet ...](https://diet.allwomenstalk.com/tips-for-success-when-eating-out-on-a-diet/)
+- [9 Ways to Embrace Cultural Foods when Dieting ...](https://eatial.com/ways-to-embrace-cultural-foods-when-dieting/)
 - [7 Smart Ways to Maximize Your Calories Each and Ev...](https://diet.allwomenstalk.com/smart-ways-to-maximize-your-calories-each-and-every-day/)
-- [7 Simple Strategies to Make Changes to Your Diet ....](https://diet.allwomenstalk.com/simple-strategies-to-make-changes-to-your-diet/)
-- [9 Helpful Tips for Eating out While on a Diet ...](https://diet.allwomenstalk.com/delicious-tips-for-eating-out-while-on-a-diet/)
+- [7 Ways to Avoid Unwanted Calories Daily ...](https://diet.allwomenstalk.com/ways-to-avoid-unwanted-calories-daily/)
 - [7 Things to do While Recovering from an Eating Dis...](https://health.allwomenstalk.com/things-to-do-while-recovering-from-an-eating-disorder-to-help-you-heal/)
 - [7 Ways Fitness Can Make You Eat Healthier ...](https://fitness.allwomenstalk.com/ways-fitness-can-make-you-eat-healthier/)
-- [7 Ways to Avoid Unwanted Calories Daily ...](https://diet.allwomenstalk.com/ways-to-avoid-unwanted-calories-daily/)
+- [Helpful Ways to Find the Right Diet for You ...](https://diet.allwomenstalk.com/ways-to-find-the-right-diet-for-you/)
+- [9 Helpful Tips for Eating out While on a Diet ...](https://diet.allwomenstalk.com/delicious-tips-for-eating-out-while-on-a-diet/)
+- [7 Simple Strategies to Make Changes to Your Diet ....](https://diet.allwomenstalk.com/simple-strategies-to-make-changes-to-your-diet/)
+- [7 Tips for Success when Eating out on a Diet ...](https://diet.allwomenstalk.com/tips-for-success-when-eating-out-on-a-diet/)
 - [7 Ways to Improve Your Bone Health ...](https://health.allwomenstalk.com/ways-to-improve-your-bone-health/)
-- [9 Ways to Embrace Cultural Foods when Dieting ...](https://eatial.com/ways-to-embrace-cultural-foods-when-dieting/)
 - [8 Signs You Have an Overeating Problem ...](https://allwomenstalk.com/8-signs-you-have-an-overeating-problem/)
 - [8 Signs of Anorexia ...](https://mindfulness.allwomenstalk.com/8-signs-of-anorexia/)
 

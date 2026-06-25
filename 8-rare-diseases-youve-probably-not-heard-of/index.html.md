@@ -3,7 +3,7 @@ title: "8 Rare Diseases You've Probably Not Heard of ..."
 description: "Stevens-Johnson Syndrome; Pompe Disease; Laryngeal Papillomatosis; Batten Disease; Eumycetoma; More ..."
 url: "https://health.allwomenstalk.com/8-rare-diseases-youve-probably-not-heard-of/"
 category: "health"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 8 Rare Diseases You've Probably Not Heard of ...
@@ -48,15 +48,15 @@ Top Photo Credit: [InWaves](https://www.flickr.com/photos/inwaves/3928004716/)
 
 ## Related Posts
 
-- [11 Things You Should Know about Farmer's Markets ....](https://lifestyle.allwomenstalk.com/things-you-should-know-about-farmers-markets/)
-- [5 Mysterious Medical Issues Men Face ...](https://lifestyle.allwomenstalk.com/mysterious-medical-issues-men-face/)
 - [disadvantages of pads](https://allwomenstalk.com/10-pros-and-cons-of-using-pads-for-your-period/)
-- [sunburn bags under eyes](https://allwomenstalk.com/4-things-that-cause-your-under-eye-dark-circles-and-puffiness/)
-- [pros and cons to liposuction](https://allwomenstalk.com/10-liposuction-pros-and-cons/)
-- [pros and cons of the pill](https://allwomenstalk.com/18-pros-and-cons-of-birth-control-pills/)
+- [5 Mysterious Medical Issues Men Face ...](https://lifestyle.allwomenstalk.com/mysterious-medical-issues-men-face/)
+- [11 Things You Should Know about Farmer's Markets ....](https://lifestyle.allwomenstalk.com/things-you-should-know-about-farmers-markets/)
 - [Common Foot Problems ...](https://allwomenstalk.com/common-foot-problems/)
-- [Eye Care, What You Should Know ...](https://allwomenstalk.com/eye-care-what-you-should-know-2/)
+- [pros and cons to liposuction](https://allwomenstalk.com/10-liposuction-pros-and-cons/)
+- [sunburn bags under eyes](https://allwomenstalk.com/4-things-that-cause-your-under-eye-dark-circles-and-puffiness/)
 - [disadvantage of tampons](https://allwomenstalk.com/10-pros-and-cons-of-using-tampons-for-your-period/)
+- [Eye Care, What You Should Know ...](https://allwomenstalk.com/eye-care-what-you-should-know-2/)
+- [pros and cons of the pill](https://allwomenstalk.com/18-pros-and-cons-of-birth-control-pills/)
 - [detox facts](https://allwomenstalk.com/15-important-facts-about-detox-you-must-know/)
 - [8 Horrifying Problems Faced by Children across the...](https://parenting.allwomenstalk.com/8-horrifying-problems-faced-by-children-across-the-world/)
 - [8 Incurable Diseases ...](https://health.allwomenstalk.com/incurable-diseases/)
