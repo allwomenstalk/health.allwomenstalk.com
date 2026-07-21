@@ -3,7 +3,7 @@ title: "7 Personality Traits of Someone with an Eating Disorder ..."
 description: "Perfectionism; OCD; All or Nothing; The Constant Need for More; Low Self Esteem; More ..."
 url: "https://health.allwomenstalk.com/personality-traits-of-someone-with-an-eating-disorder/"
 category: "health"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Personality Traits of Someone with an Eating Disorder ...
@@ -45,15 +45,15 @@ Remember, no matter how much eating disorders don’t make sense, they’re alwa
 ## Related Posts
 
 - [what is a keto diey](https://diet.allwomenstalk.com/unrealistic-diet-claims-out-there-you-need-to-ignore/)
-- [i keep binging at night](https://diet.allwomenstalk.com/reasons-you-cant-stop-binging-at-night/)
-- [is shawarma good for protein](https://food.allwomenstalk.com/foods-to-never-eat-after-your-workout/)
-- [bingeing on](https://health.allwomenstalk.com/symptoms-of-binging-that-often-go-overlooked/)
-- [why dieting doesn't work](https://diet.allwomenstalk.com/reasons-dieting-doesnt-work-for-most-people/)
 - [worst coffee](https://diet.allwomenstalk.com/worst-things-to-order-at-coffee-shops-for-your-weight/)
 - [smoothies bad for weight loss](https://food.allwomenstalk.com/things-to-never-put-in-your-green-smoothie-for-weight-loss/)
-- [preparing food in advance](https://weightloss.allwomenstalk.com/reasons-why-preparing-meals-in-advance-is-effective-for-weight-loss/)
-- [french women don't get fat](https://weightloss.allwomenstalk.com/reasons-french-women-dont-get-fat/)
+- [i keep binging at night](https://diet.allwomenstalk.com/reasons-you-cant-stop-binging-at-night/)
+- [why dieting doesn't work](https://diet.allwomenstalk.com/reasons-dieting-doesnt-work-for-most-people/)
 - [calories in 1 tsp sugar](https://food.allwomenstalk.com/natural-sweeteners-that-make-you-gain-weight/)
+- [french women don't get fat](https://weightloss.allwomenstalk.com/reasons-french-women-dont-get-fat/)
+- [preparing food in advance](https://weightloss.allwomenstalk.com/reasons-why-preparing-meals-in-advance-is-effective-for-weight-loss/)
+- [bingeing on](https://health.allwomenstalk.com/symptoms-of-binging-that-often-go-overlooked/)
+- [is shawarma good for protein](https://food.allwomenstalk.com/foods-to-never-eat-after-your-workout/)
 - [7 Signs That Your Child is Developing an Eating Di...](https://allwomenstalk.com/7-signs-that-your-child-is-developing-an-eating-disorder/)
 - [7 Signs You're a Compulsive Eater ...](https://allwomenstalk.com/7-signs-youre-a-compulsive-eater/)
 
