@@ -3,7 +3,7 @@ title: "The Warning Signs of Anorexia Nervosa You Should Know ..."
 description: "Are You Afraid of Gaining Weight?; Do You Have Problems with Menstruation?; Do You Refuse to Maintain a Normal BMI?; Do You Self-induce Vomiting?; Do You Engage in Too Much Exercise?; More ..."
 url: "https://health.allwomenstalk.com/signs-of-anorexia-nervosa/"
 category: "health"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # The Warning Signs of Anorexia Nervosa You Should Know ...
@@ -64,16 +64,16 @@ Do you feel pressure from society and your peers to be smaller than you are? Thi
 
 ## Related Posts
 
-- [taeyong](https://music.allwomenstalk.com/signs-youre-addicted-to-kpop/)
-- [playa girls](https://lifestyle.allwomenstalk.com/signs-youre-a-beach-girl/)
-- [is my friend toxic](https://lifestyle.allwomenstalk.com/signs-of-a-toxic-friendship/)
+- [nature deficit disorder symptoms](https://health.allwomenstalk.com/signs-of-nature-deficit-disorder/)
 - [dating addiction](https://love.allwomenstalk.com/signs-youre-becoming-an-online-dating-addict/)
 - [signs of a busy mind](https://inspiration.allwomenstalk.com/signs-your-busy-mind-is-blocking-your-path-to-happiness/)
 - [7 signs you're getting better at rapping](https://money.allwomenstalk.com/signs-you-are-a-shopaholic/)
-- [signs of overthinker](https://inspiration.allwomenstalk.com/signs-youre-an-overthinker/)
-- [br email sign off](https://lifestyle.allwomenstalk.com/what-your-email-sign-off-says-about-you/)
-- [nature deficit disorder symptoms](https://health.allwomenstalk.com/signs-of-nature-deficit-disorder/)
+- [taeyong](https://music.allwomenstalk.com/signs-youre-addicted-to-kpop/)
+- [is my friend toxic](https://lifestyle.allwomenstalk.com/signs-of-a-toxic-friendship/)
+- [playa girls](https://lifestyle.allwomenstalk.com/signs-youre-a-beach-girl/)
 - [what are the 7 signs of emotional abuse](https://love.allwomenstalk.com/signs-of-emotional-abuse/)
+- [br email sign off](https://lifestyle.allwomenstalk.com/what-your-email-sign-off-says-about-you/)
+- [signs of overthinker](https://inspiration.allwomenstalk.com/signs-youre-an-overthinker/)
 - [10 Signs Someone's Obese ...](https://allwomenstalk.com/10-signs-someones-obese/)
 - [8 Signs You Have an Overeating Problem ...](https://allwomenstalk.com/8-signs-you-have-an-overeating-problem/)
 

@@ -3,7 +3,7 @@ title: "7 Ways to Keep Your Sanity While Recovering from a Broken Leg ..."
 description: "Good Support System; Plenty of Entertainment; Creativity; Sense of Humor; Cast Protector; More ..."
 url: "https://health.allwomenstalk.com/ways-to-keep-your-sanity-while-recovering-from-a-broken-leg/"
 category: "health"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 7 Ways to Keep Your Sanity While Recovering from a Broken Leg ...
@@ -42,16 +42,16 @@ I would love to hear other people's experience in a cast. How did you manage to 
 
 ## Related Posts
 
-- [cure boredom](https://lifestyle.allwomenstalk.com/simple-ways-to-cure-your-boredom-and-make-your-day-exciting-again/)
+- [de stressing after work](https://lifestyle.allwomenstalk.com/ways-to-de-stress-after-work/)
+- [at ease (uncomfortable)](https://lifestyle.allwomenstalk.com/things-you-can-do-to-ease-uncomfortable-situations/)
+- [dale carnegie anxiety](https://inspiration.allwomenstalk.com/ways-to-stop-worrying-based-on-dale-carnegies-top-tips/)
 - [how to beat monday morning blues](https://lifestyle.allwomenstalk.com/ways-to-beat-the-monday-blues/)
 - [ways to fight depression](https://health.allwomenstalk.com/ways-to-fight-depression-naturally/)
-- [natural way to calm nerves](https://health.allwomenstalk.com/natural-and-easy-ways-to-calm-your-nerves/)
+- [cure boredom](https://lifestyle.allwomenstalk.com/simple-ways-to-cure-your-boredom-and-make-your-day-exciting-again/)
 - [mantras to stop binge eating](https://inspiration.allwomenstalk.com/positive-mantras-to-overcome-stress-that-work-like-a-charm/)
-- [dale carnegie anxiety](https://inspiration.allwomenstalk.com/ways-to-stop-worrying-based-on-dale-carnegies-top-tips/)
-- [a case of the mondays](https://inspiration.allwomenstalk.com/tips-on-how-to-cure-a-case-of-the-mondays/)
 - [7 Ways to Wind down after Finals ...](https://lifestyle.allwomenstalk.com/ways-to-wind-down-after-finals/)
-- [at ease (uncomfortable)](https://lifestyle.allwomenstalk.com/things-you-can-do-to-ease-uncomfortable-situations/)
-- [de stressing after work](https://lifestyle.allwomenstalk.com/ways-to-de-stress-after-work/)
+- [natural way to calm nerves](https://health.allwomenstalk.com/natural-and-easy-ways-to-calm-your-nerves/)
+- [a case of the mondays](https://inspiration.allwomenstalk.com/tips-on-how-to-cure-a-case-of-the-mondays/)
 - [7 Ways to Move past a Breakup ...](https://love.allwomenstalk.com/ways-to-move-past-a-breakup/)
 - [7 Ways to Feel Better ...](https://health.allwomenstalk.com/ways-to-feel-better/)
 
