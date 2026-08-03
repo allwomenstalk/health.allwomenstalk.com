@@ -3,7 +3,7 @@ title: "7 Useful Excuses to Give when You're Not Drinking ..."
 description: "Medication; I'm Driving; Don't like It; Don't Need It; Already Had One; More ..."
 url: "https://health.allwomenstalk.com/useful-excuses-to-give-when-youre-not-drinking/"
 category: "health"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 7 Useful Excuses to Give when You're Not Drinking ...
@@ -42,16 +42,16 @@ You should be able to decline an alcoholic drink without needing to give excuses
 
 ## Related Posts
 
+- [why am i trying to be perfect](https://inspiration.allwomenstalk.com/reasons-to-stop-trying-to-be-perfect/)
+- [why failing is good](https://inspiration.allwomenstalk.com/surprising-reasons-why-its-okay-to-fail-sometimes/)
+- [how to remain calm when angry](https://lifestyle.allwomenstalk.com/reasons-for-staying-calm-when-someone-has-made-you-angry/)
+- [being a celebrity is often difficult](https://celebs.allwomenstalk.com/reasons-why-being-famous-isnt-that-great/)
+- [is private relationship good](https://love.allwomenstalk.com/good-reasons-to-keep-your-relationship-problems-quiet/)
 - [who can i talk to about my marriage problems](https://love.allwomenstalk.com/reason-to-avoid-telling-others-about-problems-in-your-marriage/)
+- [why you should never give up on your dreams](https://inspiration.allwomenstalk.com/very-important-reasons-not-to-give-up-on-your-dreams/)
 - [he texted after first date but not since](https://love.allwomenstalk.com/reasons-why-he-hasnt-called-after-the-first-date/)
 - [love is overrated meaning](https://love.allwomenstalk.com/reasons-romantic-relationships-are-overrated/)
-- [how to remain calm when angry](https://lifestyle.allwomenstalk.com/reasons-for-staying-calm-when-someone-has-made-you-angry/)
-- [why am i trying to be perfect](https://inspiration.allwomenstalk.com/reasons-to-stop-trying-to-be-perfect/)
-- [is private relationship good](https://love.allwomenstalk.com/good-reasons-to-keep-your-relationship-problems-quiet/)
-- [why failing is good](https://inspiration.allwomenstalk.com/surprising-reasons-why-its-okay-to-fail-sometimes/)
-- [why you should never give up on your dreams](https://inspiration.allwomenstalk.com/very-important-reasons-not-to-give-up-on-your-dreams/)
 - [when not to get married](https://love.allwomenstalk.com/reasons-why-its-okay-to-not-get-married/)
-- [being a celebrity is often difficult](https://celebs.allwomenstalk.com/reasons-why-being-famous-isnt-that-great/)
 - [7 Sure Ways to Have Fun without Drinking ...](https://allwomenstalk.com/8-sure-ways-to-have-fun-without-drinking/)
 - [7 Popular Excuses for Calling into Work ...](https://allwomenstalk.com/7-popular-excuses-for-calling-into-work/)
 

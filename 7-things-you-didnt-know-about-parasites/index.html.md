@@ -3,7 +3,7 @@ title: "7 Things You Didn't Know about Parasites ..."
 description: "Parasites Have Been Gotten from Sushi; The Most Commonly Overlooked Carriers of Parasites Are Raw Veggies and Lunchmeats!; Lice Prefer Clean Hair; That Pet Licking Your Face....; Eating Pumpkin Seeds Helps Prevent; More ..."
 url: "https://health.allwomenstalk.com/7-things-you-didnt-know-about-parasites/"
 category: "health"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 7 Things You Didn't Know about Parasites ...
@@ -74,16 +74,16 @@ Top Photo Credit: [leslieworms](https://www.flickr.com/photos/86448061@N00/29186
 
 ## Related Posts
 
-- [Five Things You Didn't Know about Us](https://allwomenstalk.com/five-things-you-didnt-know-about-us/)
+- [7 Facts about Coffee ...](https://lifestyle.allwomenstalk.com/7-facts-about-coffee/)
+- [facts about 9/11 you didn't know](https://lifestyle.allwomenstalk.com/interesting-facts-about-911/)
 - [facts about myth](https://lifestyle.allwomenstalk.com/interesting-facts-about-mythology/)
+- [Five Things You Didn't Know about Us](https://allwomenstalk.com/five-things-you-didnt-know-about-us/)
+- [physical geography facts](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
+- [cool and interesting facts about diamonds](https://jewelry.allwomenstalk.com/unique-facts-about-diamonds-you-did-not-know/)
+- [winter solstice fun facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-the-yule-holiday/)
+- [brad pitt fun facts](https://allwomenstalk.com/10-things-you-didnt-know-about-brad-pitt/)
 - [harry potter book facts you didn't know](https://lifestyle.allwomenstalk.com/fun-harry-potter-facts-you-didnt-know/)
 - [pawn shop 9 mile](https://lifestyle.allwomenstalk.com/9-things-you-might-not-know-about-pawn-shops/)
-- [brad pitt fun facts](https://allwomenstalk.com/10-things-you-didnt-know-about-brad-pitt/)
-- [facts about 9/11 you didn't know](https://lifestyle.allwomenstalk.com/interesting-facts-about-911/)
-- [winter solstice fun facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-the-yule-holiday/)
-- [cool and interesting facts about diamonds](https://jewelry.allwomenstalk.com/unique-facts-about-diamonds-you-did-not-know/)
-- [physical geography facts](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
-- [7 Facts about Coffee ...](https://lifestyle.allwomenstalk.com/7-facts-about-coffee/)
 - [5 Things You Should Know about Vampires ...](https://twilight.allwomenstalk.com/5-things-you-should-know-about-vampires/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 
