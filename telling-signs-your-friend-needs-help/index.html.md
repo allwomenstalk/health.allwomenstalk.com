@@ -3,7 +3,7 @@ title: "8 Telling Signs Your Friend Needs Help ..."
 description: "Weight Loss or Gain; Acting Recklessly or Impulsively; Mood Swings; Social Isolation; Aggressive Behavior; More ..."
 url: "https://health.allwomenstalk.com/telling-signs-your-friend-needs-help/"
 category: "health"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 8 Telling Signs Your Friend Needs Help ...
@@ -48,16 +48,16 @@ Top Image Source: [styleite.com](http://runwayriot.com/)
 
 ## Related Posts
 
-- [5 symptoms of workplace bullying](https://lifestyle.allwomenstalk.com/telltale-signs-of-a-bully-boss/)
-- [signs someone is living beyond their means](https://money.allwomenstalk.com/signs-that-youre-living-beyond-your-means/)
-- [how to compliment new haircut](https://hair.allwomenstalk.com/signs-you-need-a-new-haircut/)
-- [signs of love addiction](https://love.allwomenstalk.com/signs-youre-a-love-addict/)
-- [make up signs](https://makeup.allwomenstalk.com/telling-signs-you-could-be-addicted-to-makeup/)
-- [signs of overspending](https://money.allwomenstalk.com/signs-you-are-overspending/)
-- [7 Ways to Tell if You Are Gay ...](https://love.allwomenstalk.com/ways-to-tell-if-you-are-gay/)
-- [what is a diva girl](https://fashion.allwomenstalk.com/signs-youre-a-diva/)
-- [am i spending too much money](https://money.allwomenstalk.com/indications-that-you-are-spending-too-much-money/)
 - [taking a break from.facebook](https://health.allwomenstalk.com/signs-that-you-should-take-a-break-from-facebook/)
+- [5 symptoms of workplace bullying](https://lifestyle.allwomenstalk.com/telltale-signs-of-a-bully-boss/)
+- [what is a diva girl](https://fashion.allwomenstalk.com/signs-youre-a-diva/)
+- [signs of love addiction](https://love.allwomenstalk.com/signs-youre-a-love-addict/)
+- [signs someone is living beyond their means](https://money.allwomenstalk.com/signs-that-youre-living-beyond-your-means/)
+- [make up signs](https://makeup.allwomenstalk.com/telling-signs-you-could-be-addicted-to-makeup/)
+- [am i spending too much money](https://money.allwomenstalk.com/indications-that-you-are-spending-too-much-money/)
+- [7 Ways to Tell if You Are Gay ...](https://love.allwomenstalk.com/ways-to-tell-if-you-are-gay/)
+- [signs of overspending](https://money.allwomenstalk.com/signs-you-are-overspending/)
+- [how to compliment new haircut](https://hair.allwomenstalk.com/signs-you-need-a-new-haircut/)
 - [8 Signs Your Relationship is in Trouble ...](https://allwomenstalk.com/8-signs-your-relationship-is-in-trouble/)
 - [10 Signs Your Friend is in an Abusive Relationship...](https://allwomenstalk.com/10-signs-your-friend-is-in-an-abused-relationship/)
 

@@ -3,7 +3,7 @@ title: "9 Everyday Foods That Lower Libido and Kill Your Sex Drive"
 description: "Cheese; Corn Flakes; Mint; Chocolate; Coffee; More ..."
 url: "https://health.allwomenstalk.com/low-libido-foods-that-can-kill-your-sex-drive/"
 category: "health"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 9 Everyday Foods That Lower Libido and Kill Your Sex Drive
@@ -83,15 +83,15 @@ By prioritizing whole, nutrient-rich foods and limiting processed additives, you
 ## Related Posts
 
 - [pillow talk long distance](https://love.allwomenstalk.com/the-fine-art-of-pillow-talk/)
-- [how often do couples make out](https://love.allwomenstalk.com/twists-to-make-making-out-more-fun/)
-- [what men wish you knew](https://love.allwomenstalk.com/what-men-wish-women-knew-about-sex/)
-- [Fail-Proof Tips to Make Your ManHorny AF ...](https://love.allwomenstalk.com/how-to-make-your-man-horny/)
-- [libido in girls](https://love.allwomenstalk.com/things-that-are-killing-your-libido/)
-- [how to save boyfriend name in contact](https://love.allwomenstalk.com/things-your-boyfriend-deserves-to-hear-from-you/)
 - [body changes after losing virginity](https://love.allwomenstalk.com/things-that-wont-change-when-you-lose-your-virginity/)
-- [what to do when a guy comes over the first time](https://love.allwomenstalk.com/things-you-should-do-before-your-boyfriend-comes-over/)
-- [hot married couple](https://love.allwomenstalk.com/these-things-make-married-sex-sizzling-hot/)
+- [libido in girls](https://love.allwomenstalk.com/things-that-are-killing-your-libido/)
 - [best exercise to develop female voice](https://love.allwomenstalk.com/voice-exercises-for-a-sexier-voice/)
+- [what men wish you knew](https://love.allwomenstalk.com/what-men-wish-women-knew-about-sex/)
+- [hot married couple](https://love.allwomenstalk.com/these-things-make-married-sex-sizzling-hot/)
+- [how often do couples make out](https://love.allwomenstalk.com/twists-to-make-making-out-more-fun/)
+- [how to save boyfriend name in contact](https://love.allwomenstalk.com/things-your-boyfriend-deserves-to-hear-from-you/)
+- [what to do when a guy comes over the first time](https://love.allwomenstalk.com/things-you-should-do-before-your-boyfriend-comes-over/)
+- [Fail-Proof Tips to Make Your ManHorny AF ...](https://love.allwomenstalk.com/how-to-make-your-man-horny/)
 - [7 Tips for a Healthy Menopause Diet ...](https://health.allwomenstalk.com/tips-for-a-healthy-menopause-diet/)
 - [8 Things to Help Suppress Your Appetite ...](https://allwomenstalk.com/8-things-to-help-suppress-your-appetite/)
 

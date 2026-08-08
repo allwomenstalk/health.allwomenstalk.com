@@ -3,7 +3,7 @@ title: "8 Myths About Psychology and Psychiatry That Everybody Buys Into"
 description: "The Autism Epidemic; Opposites Attract; The Accuracy of Lie Detectors; Freud as a Master Hypnotist; Being Stuck in Childhood; More ..."
 url: "https://health.allwomenstalk.com/myths-about-psychology-and-psychiatry-that-everybody-buys-into/"
 category: "health"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 8 Myths About Psychology and Psychiatry That Everybody Buys Into
@@ -58,16 +58,16 @@ When examining these widespread myths about psychology and psychiatry, it is eas
 
 ## Related Posts
 
-- [How to Make Childhood Last Forever: Pleasures We S...](https://inspiration.allwomenstalk.com/how-to-make-childhood-last-forever-pleasures-we-should-never-grow-out-of/)
-- [It's Not All Bad - What Being the Middle Child Say...](https://inspiration.allwomenstalk.com/its-not-all-bad-what-being-the-middle-child-says-about-you/)
-- [7 Lies We All Tell That Will Hurt You More than He...](https://inspiration.allwomenstalk.com/lies-we-all-tell-that-will-hurt-you-more-than-help-you/)
-- [7 Things We Mistake for Happiness ...](https://inspiration.allwomenstalk.com/things-we-mistake-for-happiness/)
-- [7 Embarrassing Things That Will Actually Make You ...](https://inspiration.allwomenstalk.com/embarrassing-things-that-will-actually-make-you-happier/)
 - [good habits of grandmother](https://lifestyle.allwomenstalk.com/habits-you-should-pick-up-from-your-grandmother/)
-- [7 Surprising Benefits of Kindness ...](https://inspiration.allwomenstalk.com/surprising-benefits-of-kindness/)
-- [loreal paris smoky primped previous](https://inspiration.allwomenstalk.com/stop-worrying-some-things-just-arent-worth-it/)
 - [9 Surprising Causes of Depression That Could Affec...](https://health.allwomenstalk.com/surprising-causes-of-depression-that-could-affect-anyone/)
+- [7 Embarrassing Things That Will Actually Make You ...](https://inspiration.allwomenstalk.com/embarrassing-things-that-will-actually-make-you-happier/)
 - [7 Facts about Life You Need to Accept to Find True...](https://inspiration.allwomenstalk.com/facts-about-life-you-need-to-accept-to-find-true-happiness/)
+- [How to Make Childhood Last Forever: Pleasures We S...](https://inspiration.allwomenstalk.com/how-to-make-childhood-last-forever-pleasures-we-should-never-grow-out-of/)
+- [7 Things We Mistake for Happiness ...](https://inspiration.allwomenstalk.com/things-we-mistake-for-happiness/)
+- [loreal paris smoky primped previous](https://inspiration.allwomenstalk.com/stop-worrying-some-things-just-arent-worth-it/)
+- [7 Lies We All Tell That Will Hurt You More than He...](https://inspiration.allwomenstalk.com/lies-we-all-tell-that-will-hurt-you-more-than-help-you/)
+- [It's Not All Bad - What Being the Middle Child Say...](https://inspiration.allwomenstalk.com/its-not-all-bad-what-being-the-middle-child-says-about-you/)
+- [7 Surprising Benefits of Kindness ...](https://inspiration.allwomenstalk.com/surprising-benefits-of-kindness/)
 - [8 Myths about ADHD ...](https://parenting.allwomenstalk.com/8-myths-about-adhd/)
 - [9 Lies People Tell and Why ...](https://allwomenstalk.com/9-lies-people-tell-and-why/)
 
