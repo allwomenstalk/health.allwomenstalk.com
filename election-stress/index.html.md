@@ -8,7 +8,11 @@ last_updated: "2026-10-28"
 
 # Election Stress Is Real: A Calm Plan for Nov 3 and the Week After
 
-Election stress can make an ordinary day feel like a nonstop news alert. You can stay informed without giving every update your attention. Set one or two short news windows, avoid checking before bed, make a plan for the choices you control, and keep sleep and supportive people in the picture. If stress keeps disrupting daily life, ask a licensed professional for help.
+Election stress can make an ordinary day feel like a nonstop news alert. You can stay informed without giving every update your attention. Set one or two short news windows, avoid checking before bed, make a plan for the choices you control, and keep sleep and supportive people in the picture. If stress keeps disrupting daily life, ask a licensed professional for help. You do not need to follow every update to care about what happens.
+
+The pressure is understandable, and it is not limited to election night. The [survey context](#election-stress-context) below helps explain why uncertainty feels so widespread, but the useful question is what you can do with your own attention today. Start with [news boundaries that still keep you informed](#election-stress-news), then put energy into the decisions and routines you can actually control.
+
+When Nov 3 arrives, a simple [plan for the evening and the next morning](#election-stress-night) can spare you the endless refresh cycle. We also cover [how to step out of a tense conversation](#election-stress-conversations) and [when it is time to get professional support](#election-stress-help). None of those steps requires agreeing with anyone about politics.
 
 ## Why it feels heavy
 
