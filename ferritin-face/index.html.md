@@ -8,7 +8,11 @@ last_updated: "2026-10-28"
 
 # What Is “Ferritin Face”? Why a Mirror Cannot Tell You If Your Iron Is Low
 
-Ferritin face is a social-media nickname for the idea that dark circles, pale skin, or tired-looking eyes reveal low iron. They do not. A face is **not a medical diagnosis**: many things can change how skin looks, and a person with low iron may show no obvious facial change. If you are persistently tired or worried about iron, ask a clinician whether blood tests are appropriate rather than diagnosing yourself from a photo.
+Ferritin face is a social-media nickname for the idea that dark circles, pale skin, or tired-looking eyes reveal low iron. They do not. A face is **not a medical diagnosis**: many things can change how skin looks, and a person with low iron may show no obvious facial change. If you are persistently tired or worried about iron, ask a clinician whether blood tests are appropriate rather than diagnosing yourself from a photo. Your symptoms deserve attention even if your reflection looks ordinary.
+
+Part of the confusion is that [ferritin and anemia describe different pieces of the iron story](#ferritin-vs-anemia). Low iron stores can develop before anemia, while [facial clues are too unreliable](#ferritin-appearance) to show who needs care. That is especially important when skin tone changes how visible a sign might be.
+
+The practical path is to [describe symptoms and ask about appropriate blood tests](#ferritin-testing), then discuss what the results mean for your own history. It is tempting to treat a trending label as a shortcut, but [starting iron on your own has risks](#ferritin-supplements) and may delay finding the reason you feel unwell. The goal is an answer from evidence about your body, not a verdict from a selfie.
 
 ## Ferritin and anemia are different pieces of the story
 
