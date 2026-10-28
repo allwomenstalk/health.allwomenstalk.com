@@ -38,7 +38,7 @@ If you plan to vote, check dates, identification rules, and your polling locatio
 
 ## When conversation gets tense
 
-You can say, “I care about you, but I cannot have this conversation tonight.” APA suggests looking for shared underlying concerns and stepping away when a discussion cannot stay calm. A boundary is easier to keep when it names when you will reconnect, even if you never agree on the issue. If politics is straining a partnership, our guide to [dating across political differences](https://love.allwomenstalk.com/if-your-political-views-are-polarized-should-you-be-with-him/) offers ground rules for a calmer talk.
+You can say, “I care about you, but I cannot have this conversation tonight.” APA suggests looking for shared underlying concerns and stepping away when a discussion cannot stay calm. A boundary is easier to keep when it names when you will reconnect, even if you never agree on the issue.
 
 ## When to ask for help
 
