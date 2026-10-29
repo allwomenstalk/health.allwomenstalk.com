@@ -3,7 +3,7 @@ title: "Election Stress Is Real: A Calm Plan for Nov 3 and the Week After"
 description: "A nonpartisan plan for news limits, election night, daily routines and knowing when to seek professional help."
 url: "https://health.allwomenstalk.com/election-stress/"
 category: "health"
-last_updated: "2026-10-28"
+last_updated: "2026-10-29"
 ---
 
 # Election Stress Is Real: A Calm Plan for Nov 3 and the Week After
