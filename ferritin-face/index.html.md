@@ -3,7 +3,7 @@ title: "What Is “Ferritin Face”? Why a Mirror Cannot Tell You If Your Iron I
 description: "A medical-source guide to ferritin, anemia, symptoms, blood tests and why not to start iron supplements based on appearance."
 url: "https://health.allwomenstalk.com/ferritin-face/"
 category: "health"
-last_updated: "2026-10-28"
+last_updated: "2026-10-29"
 ---
 
 # What Is “Ferritin Face”? Why a Mirror Cannot Tell You If Your Iron Is Low
