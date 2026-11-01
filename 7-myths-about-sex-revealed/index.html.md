@@ -3,7 +3,7 @@ title: "7 Myths about Sex Revealed ..."
 description: "Oral Hygiene; It Comes Once a Month; The Condom Question; Everybody Searches for Sex; Guess What Muscle; More ..."
 url: "https://health.allwomenstalk.com/7-myths-about-sex-revealed/"
 category: "health"
-last_updated: "2026-09-02"
+last_updated: "2026-11-01"
 ---
 
 # 7 Myths about Sex Revealed ...
@@ -16,7 +16,7 @@ A lot of people are under the impression that if you French kiss someone, you ca
 
 ## 2. It Comes Once a Month
 
-Another prevailing myth involves how often people want to have sex. There's this belief, for instance, that people in America only get intimate once every month. This, too, is false. Sure, Americans are largely fast paced and increasingly on the go, that stereotype is pretty true, but in most relationships, you'll find that partners find time to be with each other once every week – at the very least!
+Another prevailing myth involves how often people want to have sex. There's this belief, for instance, that people in America only get intimate once every month. This, too, is false. Sure, Americans are largely fast paced and increasingly on the go, that stereotype is pretty true, but there is no weekly minimum couples need to meet. Frequency varies, and a [research-based guide](https://love.allwomenstalk.com/how-often-do-couples-have-sex/) explains why once a week is not a rule.
 
 ## 3. The Condom Question
 
@@ -44,16 +44,16 @@ Top Photo Credit: [Qoen](https://www.flickr.com/photos/johnbeton/111365189/)
 
 ## Related Posts
 
-- [7 Tips for Making out the First Time ...](https://love.allwomenstalk.com/tips-for-making-out-the-first-time/)
-- [female erogenous zones](https://love.allwomenstalk.com/erotically-charged-facts-the-essentials-things-you-should-know-about-erogenous-zones/)
-- [girlfriend toys](https://love.allwomenstalk.com/best-sex-toys-to-keep-your-relationship-hot/)
+- [new tricks in bed](https://love.allwomenstalk.com/sex-tricks-to-try-in-bed/)
+- [7 Passionately Romantic Ways to Improve Your Sex L...](https://love.allwomenstalk.com/passionately-romantic-ways-to-improve-your-sex-life/)
 - [7 Sure Ways to Overcome Insecurity in Bed and Beco...](https://love.allwomenstalk.com/sure-ways-to-overcome-insecurity-in-bed-and-become-the-sexiest-you/)
-- [tips one night stand](https://love.allwomenstalk.com/one-night-stand-tips-you-should-know/)
+- [female erogenous zones](https://love.allwomenstalk.com/erotically-charged-facts-the-essentials-things-you-should-know-about-erogenous-zones/)
+- [roleplay outfit ideas](https://love.allwomenstalk.com/sexy-role-playing-ideas-for-couples/)
+- [7 Tips for Making out the First Time ...](https://love.allwomenstalk.com/tips-for-making-out-the-first-time/)
 - [9 Unexpected Things They Don't Tell You about Sex ...](https://love.allwomenstalk.com/unexpected-things-they-dont-tell-you-about-sex/)
 - [types of lovemaking](https://love.allwomenstalk.com/top-7-best-types-of-sex/)
-- [7 Passionately Romantic Ways to Improve Your Sex L...](https://love.allwomenstalk.com/passionately-romantic-ways-to-improve-your-sex-life/)
-- [new tricks in bed](https://love.allwomenstalk.com/sex-tricks-to-try-in-bed/)
-- [roleplay outfit ideas](https://love.allwomenstalk.com/sexy-role-playing-ideas-for-couples/)
+- [tips one night stand](https://love.allwomenstalk.com/one-night-stand-tips-you-should-know/)
+- [girlfriend toys](https://love.allwomenstalk.com/best-sex-toys-to-keep-your-relationship-hot/)
 - [7 Misconceptions about Birth Control ...](https://parenting.allwomenstalk.com/misconceptions-about-birth-control/)
 - [8 Myths about Sexual Health Busted ...](https://health.allwomenstalk.com/8-myths-about-sexual-health-busted/)
 
