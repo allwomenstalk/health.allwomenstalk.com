@@ -32,7 +32,7 @@ Women in menopause or post-menopause should eat more B vitamins during this time
 
 ## 6. Nix the Nicotine and Booze
 
-If you smoke or drink, then stop. It not only affects your heart health, weight, mood, mind and aging, but also your hormones. It can interfere with natural hormone production and it has even been proven that women who smoke and drink early in life enter menopause earlier than those who don’t. Though this isn’t the reason I entered menopause, you should definitely drink with caution and quit smoking if you haven’t made the change yet. If you drink, keep it only to red wine once or twice a week and only have 5 ounces at a time.
+If you smoke or drink, then stop. It not only affects your heart health, weight, mood, mind and aging, but also your hormones. It can interfere with natural hormone production and it has even been proven that women who smoke and drink early in life enter menopause earlier than those who don���t. Though this isn’t the reason I entered menopause, you should definitely drink with caution and quit smoking if you haven’t made the change yet. If you drink, keep it only to red wine once or twice a week and only have 5 ounces at a time.
 
 ## 7. Eat Your Phytoestrogens
 
