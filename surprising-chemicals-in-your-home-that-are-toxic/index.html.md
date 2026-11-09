@@ -1,18 +1,18 @@
 ---
 title: "7 Surprising Chemicals in Your Home That Are Toxic ..."
-description: "Perfluorinated Compounds (PFCs); Bisphenol a (BPAs); Formaldehyde; Phthalates; Volatile Organic Compounds (VOCs); More ..."
+description: "PFAS (Previously Often Called PFCs); Bisphenol a (BPAs); Formaldehyde; Phthalates; Volatile Organic Compounds (VOCs)"
 url: "https://health.allwomenstalk.com/surprising-chemicals-in-your-home-that-are-toxic/"
 category: "health"
-last_updated: "2026-09-02"
+last_updated: "2026-11-09"
 ---
 
 # 7 Surprising Chemicals in Your Home That Are Toxic ...
 
 Environmental toxins are everywhere, including chemicals in your home that are potentially toxic. The best thing you can do is simply be informed and educated about what products you're using and what chemicals they contain. There are many known carcinogens that we're exposed to daily, however knowing about the chemicals in your home can help you avoid some of them by making different purchasing choices. Here is a list of chemicals that are found in everyday items!
 
-## 1. Perfluorinated Compounds (PFCs)
+## 1. PFAS (Previously Often Called PFCs)
 
-Some of the chemicals in your home are found in items like pots and pans and furniture. PFCs are used in non-stick cookware like Teflon, as well as in stain-resistant fabrics. Most everyone uses these products on a daily basis and sometimes don't second guess the potentially harmful chemicals they contain. PFCs are believed to cause birth defects and cancer and have shown to be highly concentrated in the breast milk of nursing mothers! Instead of non-stick cookware, use stainless steel or cast iron and avoid buying stain resistant furniture.
+PFAS are a large group of chemicals used in some water-, stain- and grease-resistant products. Exposure and health effects vary by chemical and route; a product category alone cannot tell you your personal cancer risk. An [NIH-supported study](https://www.hhs.gov/press-room/nih-study-pfas-forever-chemicals-aggressive-breast-cancer-risk.html) found associations between some measured PFAS levels and hormone-receptor-negative breast cancer, rather than proof that PFAS caused an individual cancer. Read our [PFAS and breast-cancer evidence guide](https://allwomenstalk.com/pfas-forever-chemicals-breast-cancer/) for the study limits and practical questions to ask. The [EPA recommends checking local drinking-water information](https://www.epa.gov/pfas/meaningful-and-achievable-steps-you-can-take-reduce-your-risk) and choosing exposure-reduction steps suited to your situation. Breastfeeding has established benefits; do not stop because of a general PFAS warning. Discuss specific concerns with your clinician.
 
 ## 2. Bisphenol a (BPAs)
 
@@ -44,16 +44,16 @@ It may seem scary that all these chemicals are floating around your home every s
 
 ## Related Posts
 
-- [7 DIY Ways to Organize Your Home Office That Reall...](https://diy.allwomenstalk.com/diy-ways-to-organize-your-home-office-that-really-work/)
-- [7 Ways to Be More Organized This Year ...](https://lifestyle.allwomenstalk.com/ways-to-be-more-organized-in-the-coming-year/)
 - [7 Ways to Clear Last Year's Stuff for This Year's ...](https://lifestyle.allwomenstalk.com/ways-to-clear-last-years-stuff-for-this-years-treasures/)
 - [7 Unusual Uses for Coffee and Coffee Grounds ...](https://food.allwomenstalk.com/unusual-uses-for-coffee-and-coffee-grounds/)
 - [7 Eco-friendly Ways to Commute That You Should Try...](https://lifestyle.allwomenstalk.com/eco-friendly-ways-to-commute-that-you-should-try-today/)
-- [perfect party planning](https://lifestyle.allwomenstalk.com/ways-to-get-organized-for-perfect-party-planning/)
 - [short shower](https://lifestyle.allwomenstalk.com/ways-to-make-the-most-of-a-short-shower/)
-- [how to extend the life of workout clothing](https://fashion.allwomenstalk.com/things-you-can-do-to-extend-the-life-of-your-clothing/)
-- [7 Steps I Follow to Achieve a Thorough Weekly Clea...](https://lifestyle.allwomenstalk.com/steps-i-follow-to-achieve-a-thorough-weekly-cleaning/)
 - [7 Tips on How to Make Your Bathroom like a Spa ...](https://diy.allwomenstalk.com/tips-on-how-to-make-your-bathroom-like-a-spa/)
+- [7 Steps I Follow to Achieve a Thorough Weekly Clea...](https://lifestyle.allwomenstalk.com/steps-i-follow-to-achieve-a-thorough-weekly-cleaning/)
+- [7 DIY Ways to Organize Your Home Office That Reall...](https://diy.allwomenstalk.com/diy-ways-to-organize-your-home-office-that-really-work/)
+- [7 Ways to Be More Organized This Year ...](https://lifestyle.allwomenstalk.com/ways-to-be-more-organized-in-the-coming-year/)
+- [how to extend the life of workout clothing](https://fashion.allwomenstalk.com/things-you-can-do-to-extend-the-life-of-your-clothing/)
+- [perfect party planning](https://lifestyle.allwomenstalk.com/ways-to-get-organized-for-perfect-party-planning/)
 - [8 Horrid Health Dangers in the Home ...](https://health.allwomenstalk.com/horrid-health-dangers-in-the-home/)
 - [7 Organic Cleaning Ingredients from Your Kitchen ....](https://allwomenstalk.com/7-organic-cleaning-ingredients-from-your-kitchen/)
 
